@@ -1552,7 +1552,7 @@ No one said the old Order had failed entirely.
 
 But almost no one believed it should remain unchanged either.
 
-—————
+—
 
 The darksaber became Obi-Wan’s problem almost immediately.
 
@@ -1598,7 +1598,7 @@ But occasionally, during ceremonies or moments of crisis, the black blade reappe
 
 And every single time, Mandalorians around him stood a little straighter.
 
-—————
+—
 
 Life on Raxus Secundus surprised Ahsoka.
 
@@ -1652,7 +1652,7 @@ Ahsoka glanced upward.
 
 Their children adored her completely.
 
-—————
+—
 
 The confrontation over Luke and Leia became legendary within certain Jedi circles afterward because of how catastrophically it went.
 
@@ -1690,7 +1690,7 @@ The instructor closed his eyes briefly.
 
 “Yes. That does sound like your father.”
 
-—————
+—
 
 The joke happened during dinner.
 
