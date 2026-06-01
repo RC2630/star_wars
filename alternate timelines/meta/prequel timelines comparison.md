@@ -2,7 +2,7 @@ i have built a whole bunch of alternate timelines of the star wars prequels era 
 
 can you read each of them and then compare them? in your comparison, focus on (surface-level) plot events like what are the results, how were the results arrived at, what did each character do, etc.
 
-the relevant branches can be found in these markdown files under the `alternate timelines` folder in the `RC2630/star_wars` repo. each markdown file has the same name as the name of the alternate timeline plus `.md`:
+the relevant branches can be found in these markdown files under the `alternate timelines/prequel era` folder. each markdown file has the same name as the name of the alternate timeline plus `.md`:
 1. anakin as king of naboo
 2. anakin serves padme branch
 3. anakin trained on mandalore
