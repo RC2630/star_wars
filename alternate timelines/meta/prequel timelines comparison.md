@@ -33,4 +33,5 @@ here are some things that you can compare (not exhaustive; you can add more):
 - whether an empire ever forms, or it is completely prevented from forming
 - how was palpatine revealed as darth sidious
 - the timing in the big duels: does cyber maul die first or does sidious die first?
+- who becomes the new chancellor at the end
 - remember this is not exhaustive and you should add more points of comparison as you see fit
