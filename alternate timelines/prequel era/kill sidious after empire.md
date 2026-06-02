@@ -418,7 +418,7 @@ Neither rushed into it.
 
 Neither hid from it.
 
-Years passed before either admitted the truth.
+Months passed before either admitted the truth.
 
 But once they did, neither saw any reason to deny it.
 
@@ -474,7 +474,7 @@ An intuition.
 
 An occasional voice at the edge of thought.
 
-Years passed before Anakin fully understood what was happening.
+Months passed before Anakin fully understood what was happening.
 
 One evening, alone in a Senate apartment overlooking Coruscant, he heard Qui-Gon's voice clearly for the first time.
 
@@ -588,8 +588,6 @@ healthy.
 
 The disaster many Jedi feared never appeared.
 
-Years passed.
-
 The Council continued criticizing Anakin from afar.
 
 A Force user without Jedi supervision.
@@ -610,7 +608,7 @@ And Obi-Wan increasingly knew it.
 
 —
 
-His own doubts had been growing for years.
+His own doubts had been growing for months.
 
 The war had changed the Jedi.
 
@@ -652,7 +650,7 @@ They married.
 
 Obi-Wan remained at her side.
 
-The years that followed became some of the happiest of his life.
+The months that followed became some of the happiest of his life.
 
 And when Darth Maul eventually launched his campaign to seize Mandalore, he discovered something unexpected.
 
@@ -1814,7 +1812,7 @@ Dozens of them.
 
 Heavy Imperial security models accompanied by Separatist tactical droids still secretly preserved within Palpatine’s hidden arsenals.
 
-Even now, after all these years, he had prepared contingencies upon contingencies.
+Even now, after all this time, he had prepared contingencies upon contingencies.
 
 Blasterfire intensified from every direction.
 
@@ -2060,7 +2058,7 @@ Not rage.
 
 Clarity.
 
-Every movement precise. Every strike purposeful. The years outside the Jedi Order had sanded away much of the instability that once lived inside him, but the intensity remained. Against stormtroopers advancing through smoke-filled corridors, he became almost unstoppable.
+Every movement precise. Every strike purposeful. The years had sanded away much of the instability that once lived inside him, but the intensity remained. Against stormtroopers advancing through smoke-filled corridors, he became almost unstoppable.
 
 At last they reached the lower landing sectors.
 
@@ -2086,7 +2084,7 @@ Not merely physical exhaustion.
 
 Historical exhaustion.
 
-They had spent years fighting toward a moment none of them fully expected to survive.
+They had spent months fighting toward a moment none of them fully expected to survive.
 
 And now it was over.
 
@@ -2168,7 +2166,7 @@ Shock.
 Relief.
 Hope.
 
-Even after years of forced exile from the Senate, Padmé still carried enormous moral authority. Many senators had quietly admired her resistance to Imperial overreach during the Empire’s earliest years. She had fought constantly for civil protections and senatorial limits on executive power until Palpatine himself finally ordered her removal.
+Even after months of forced exile from the Senate, Padmé still carried enormous moral authority. Many senators had quietly admired her resistance to Imperial overreach during the Empire’s earliest months. She had fought constantly for civil protections and senatorial limits on executive power until Palpatine himself finally ordered her removal.
 
 Most had lacked the courage to stop him.
 
