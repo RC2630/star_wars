@@ -11,6 +11,7 @@ the relevant branches can be found in these markdown files under the `alternate 
 6. maul fails to capture obi-wan and satine
 7. dabi maul branch
 8. kill sidious after empire
+9. empress padme
 
 only read and analyze the listed timelines. don't read the others - the rest are not relevant to this discussion.
 
@@ -27,4 +28,5 @@ here are some things that you can compare (not exhaustive; you can add more):
 - whether force spirits are involved, and who became a force spirit
 - the timing (year BBY) of various events, if mentioned or explicitly stated
 - specifically compare how the final duel with maul and the final duel with sidious went in each branch (who were involved, the location, the results, etc.) as applicable
+- whether an empire ever forms, or it is completely prevented from forming
 - remember this is not exhaustive and you should add more points of comparison as you see fit
