@@ -700,13 +700,9 @@ Temples burned.
 
 Centuries ended.
 
-Yet events unfolded differently than Sidious intended.
+Yet events unfolded not as perfectly as Sidious intended.
 
 Mace Windu survived.
-
-No one betrayed him.
-
-No one intervened on Sidious's behalf.
 
 Though grievously wounded during the confrontation, he escaped.
 
@@ -1245,24 +1241,6 @@ Obi-Wan gave a tired half-smile.
 
 “There isn’t much Order left to disappoint.”
 
-Anakin moved slightly ahead.
-
-Dooku’s eyes settled on him.
-
-“The famous Skywalker.”
-
-“The disappointed replacement,” Anakin replied coldly.
-
-That struck deeper than the others expected.
-
-Dooku’s expression tightened almost invisibly.
-
-He knew.
-
-Of course he knew.
-
-Sidious had spoken often enough of the boy he once intended to claim.
-
 The inquisitors ignited their sabers almost simultaneously.
 
 Circular crimson blades spun violently in the rain.
@@ -1403,8 +1381,6 @@ And this was not Geonosis.
 These opponents were united.
 
 Anakin and Obi-Wan unconsciously fell into complementary rhythm despite having never formally trained together. Defense and aggression. Patience and momentum.
-
-The old partnership still existed somewhere beneath everything.
 
 Dooku realized it too late.
 
