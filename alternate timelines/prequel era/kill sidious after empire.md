@@ -1,5 +1,823 @@
 # Part 1
 
+The Royal Naboo starship cut through hyperspace toward Coruscant.
+
+Behind them lay Tatooine: endless deserts, a podrace, a slave boy with impossible reflexes, and a Jedi Master who believed the Force had revealed something extraordinary.
+
+Inside the sleek silver vessel, the tension of recent events had begun to ease. Queen Amidala and her entourage finally had a chance to rest after escaping the Trade Federation blockade.
+
+Anakin Skywalker wandered the ship with the boundless curiosity of a child seeing the wider galaxy for the first time.
+
+Eventually he found himself seated with Qui-Gon Jinn, Obi-Wan Kenobi, and Padmé, who was still traveling under the identity of a simple handmaiden.
+
+The conversation drifted naturally toward the Jedi.
+
+Anakin listened eagerly at first.
+
+He had never met Jedi before Qui-Gon.
+
+Everything about them seemed remarkable.
+
+But as Qui-Gon and Obi-Wan explained the traditions of the Order, the boy's excitement slowly began to fade.
+
+The Jedi Temple.
+
+The years of training.
+
+The discipline.
+
+The expectations.
+
+The rules.
+
+Most of it merely sounded strange.
+
+Then they began discussing attachment.
+
+Obi-Wan explained it the way generations of Jedi had explained it.
+
+Attachment led to fear.
+
+Fear led to possessiveness.
+
+Possessiveness led to suffering.
+
+The Jedi therefore avoided attachment entirely.
+
+Anakin frowned.
+
+"You mean you don't have families?"
+
+"No," Obi-Wan answered.
+
+"You don't get married?"
+
+"No."
+
+"You don't have children?"
+
+"No."
+
+Anakin looked from Obi-Wan to Qui-Gon.
+
+Neither seemed troubled by the answer.
+
+The boy was.
+
+"What about your mothers?"
+
+The silence lasted a little too long.
+
+Anakin's expression tightened.
+
+"My mother is still on Tatooine."
+
+Neither Jedi interrupted him.
+
+"I don't care how important the Jedi are."
+
+His voice was becoming more uncomfortable with every sentence.
+
+"I don't care how powerful the Force is."
+
+Padmé watched him carefully.
+
+"If becoming a Jedi means I'm supposed to stop loving my mother, then I don't think I want to be a Jedi."
+
+Obi-Wan immediately leaned forward.
+
+"It isn't exactly like that—"
+
+"It sounds exactly like that."
+
+The boy looked down at his hands.
+
+For the first time since leaving Tatooine, uncertainty had replaced excitement.
+
+The Jedi life suddenly seemed less like an adventure and more like a choice that demanded he abandon pieces of himself.
+
+Obi-Wan tried to reassure him.
+
+Many younglings struggled at first.
+
+The Temple became home.
+
+The rules eventually made sense.
+
+The Jedi were a family of their own.
+
+But Qui-Gon quietly raised a hand.
+
+Obi-Wan stopped.
+
+The older Jedi regarded Anakin thoughtfully.
+
+"Perhaps the boy should decide for himself."
+
+Obi-Wan looked surprised.
+
+Qui-Gon's expression remained calm.
+
+"Forcing himself onto a path that isn't his will do neither him nor the Jedi any good."
+
+Anakin looked up.
+
+For the first time since the conversation began, he seemed relieved.
+
+No one argued with him after that.
+
+The subject quietly ended.
+
+But something important had already happened.
+
+For the first time in his life, Anakin Skywalker had been given permission to choose his own future.
+
+—
+
+Coruscant overwhelmed him.
+
+The endless city stretched farther than imagination.
+
+Worlds seemed to exist atop worlds.
+
+Yet despite the wonder, the question of the Jedi remained unresolved.
+
+Qui-Gon still believed the Force had guided him to Anakin.
+
+The Jedi Council still agreed to evaluate him.
+
+So Anakin entered the Temple.
+
+He stood before twelve Jedi Masters.
+
+He answered their questions honestly.
+
+He spoke of his mother.
+
+His fears.
+
+His hopes.
+
+His attachments.
+
+The Council deliberated.
+
+Then came their verdict.
+
+The boy was too old.
+
+Too emotionally attached.
+
+Too difficult to train.
+
+Too dangerous.
+
+Years later, Anakin would barely remember the exact words.
+
+Only the feeling.
+
+Not disappointment.
+
+Not anger.
+
+Relief.
+
+The Council's judgment merely confirmed what he had already begun realizing aboard the starship.
+
+The Jedi way was not his way.
+
+When the meeting ended, Anakin walked out without resentment.
+
+He simply accepted it.
+
+The Jedi had looked at him and concluded he was unsuited for their Order.
+
+And perhaps they were right.
+
+Padmé found him afterward.
+
+By then she had revealed her true identity.
+
+She was not a handmaiden.
+
+She was the Queen of Naboo.
+
+When she learned what had happened, she sat beside him and listened quietly.
+
+When he admitted that he no longer wanted to become a Jedi anyway, she smiled.
+
+"Then perhaps you'll have to find something else."
+
+Anakin shrugged.
+
+"I don't know what."
+
+Padmé thought for a moment.
+
+Then she smiled again.
+
+"You could always work for me."
+
+The boy laughed.
+
+At the time neither realized how important those words would become.
+
+—
+
+The Battle of Naboo changed many lives.
+
+The Trade Federation was defeated.
+
+The Gungans and Naboo united.
+
+Queen Amidala reclaimed her world.
+
+And in the depths of Theed's power generator complex, Qui-Gon Jinn confronted Darth Maul.
+
+The duel ended in tragedy.
+
+Qui-Gon fell.
+
+Obi-Wan defeated the Sith warrior moments later.
+
+When Obi-Wan reached his dying Master, he expected a final command.
+
+He expected to hear once again about the boy from Tatooine.
+
+Instead Qui-Gon's final concern was something else entirely.
+
+"Promise me something."
+
+Obi-Wan leaned closer.
+
+"Anything."
+
+Qui-Gon's voice had become faint.
+
+"The boy."
+
+Obi-Wan nodded.
+
+"I'll train him."
+
+A weak smile touched Qui-Gon's face.
+
+"No."
+
+Obi-Wan froze.
+
+Qui-Gon's eyes remained steady.
+
+"Respect his choice."
+
+The effort of speaking was clearly painful now.
+
+"If he chooses another path..."
+
+He struggled for breath.
+
+"...do not force him onto yours."
+
+Those were among the last words Obi-Wan Kenobi ever heard from his Master.
+
+—
+
+After the funeral, Obi-Wan approached Anakin one final time.
+
+The pyre still burned in the distance.
+
+The smoke rose into the Naboo sky.
+
+The Jedi Council had offered Obi-Wan knighthood.
+
+Many expected him to continue Qui-Gon's wishes and take Anakin as his apprentice.
+
+Instead Obi-Wan simply asked.
+
+"Are you sure?"
+
+Anakin nodded.
+
+"Yeah."
+
+No hesitation.
+
+No uncertainty.
+
+The boy had made up his mind.
+
+Obi-Wan looked at him for several moments.
+
+Then he smiled faintly.
+
+"All right."
+
+No argument.
+
+No persuasion.
+
+No disappointment.
+
+Just acceptance.
+
+When the Jedi departed Naboo, Obi-Wan left with them.
+
+Anakin remained behind.
+
+Their lives moved in different directions.
+
+But not permanently.
+
+—
+
+Queen Amidala kept her promise.
+
+Anakin Skywalker became her assistant.
+
+At first his duties were simple.
+
+Delivering messages.
+
+Organizing schedules.
+
+Helping with logistics.
+
+Learning protocol.
+
+Learning administration.
+
+Learning responsibility.
+
+Most expected the arrangement to be temporary.
+
+It was not.
+
+Anakin possessed an unusual combination of traits.
+
+He worked harder than anyone around him.
+
+He learned quickly.
+
+He never forgot where he came from.
+
+Years of slavery had taught him discipline long before anyone recognized it.
+
+Padmé gradually came to trust him more than almost anyone else.
+
+As the years passed, the boy from Tatooine became indispensable.
+
+When her time as Queen ended and she entered the Galactic Senate, she brought him to Coruscant.
+
+He remained at her side.
+
+Not as a servant.
+
+Not as a bodyguard.
+
+As a trusted aide.
+
+—
+
+Coruscant became Anakin's real education.
+
+Not the Jedi Temple.
+
+The Senate.
+
+Politics.
+
+Governance.
+
+Corruption.
+
+Idealism.
+
+Failure.
+
+He witnessed entire systems ignored because they lacked influence.
+
+He watched wealthy corporations manipulate legislation.
+
+He learned how slowly governments moved when ordinary people suffered.
+
+The experience changed him.
+
+Padmé believed institutions could be repaired.
+
+Anakin often doubted it.
+
+Yet despite their disagreements, they respected each other.
+
+Over time that respect became friendship.
+
+Then affection.
+
+Then love.
+
+Neither rushed into it.
+
+Neither hid from it.
+
+Years passed before either admitted the truth.
+
+But once they did, neither saw any reason to deny it.
+
+There were no Jedi vows.
+
+No forbidden attachments.
+
+No secret double lives.
+
+Eventually they married.
+
+Their closest friends celebrated with them.
+
+Among those friends was Obi-Wan Kenobi.
+
+—
+
+The Clone Wars began regardless.
+
+The Separatist Crisis escalated.
+
+Systems seceded.
+
+Violence spread.
+
+The Republic raised a clone army.
+
+The Jedi became generals.
+
+The galaxy marched toward war.
+
+Anakin, however, stood outside the conflict's military hierarchy.
+
+He traveled with Senator Amidala.
+
+Negotiated.
+
+Investigated.
+
+Observed.
+
+And quietly developed a growing interest in the Force.
+
+Because Qui-Gon Jinn had not truly vanished.
+
+—
+
+At first it was subtle.
+
+A feeling.
+
+An intuition.
+
+An occasional voice at the edge of thought.
+
+Years passed before Anakin fully understood what was happening.
+
+One evening, alone in a Senate apartment overlooking Coruscant, he heard Qui-Gon's voice clearly for the first time.
+
+The experience should have frightened him.
+
+Instead it felt familiar.
+
+Comforting.
+
+Like speaking with an old friend.
+
+Qui-Gon explained the Force slowly.
+
+Carefully.
+
+Without urgency.
+
+Without doctrine.
+
+Without recruitment.
+
+He never tried to make Anakin into a Jedi.
+
+Instead he taught him how to listen.
+
+How to feel.
+
+How to trust.
+
+How to remain compassionate without surrendering to fear.
+
+Over time those lessons deepened.
+
+Anakin learned meditation.
+
+Force awareness.
+
+Telekinesis.
+
+Precognition.
+
+Eventually he learned lightsaber fundamentals.
+
+The old lessons of Form I.
+
+Basic footwork.
+
+Basic defense.
+
+Basic control.
+
+Afterward Anakin began experimenting on his own.
+
+His understanding became something unique.
+
+Part Jedi.
+
+Part self-taught.
+
+Part guided by Qui-Gon's wisdom.
+
+Entirely his own.
+
+Years later he would become one of the most powerful Force users in the galaxy.
+
+Yet he never belonged to the Jedi Order.
+
+And that distinction would change everything.
+
+—
+
+The war dragged on.
+
+Thousands of worlds suffered.
+
+The Republic and Separatists bled each other endlessly.
+
+During those years Obi-Wan occasionally crossed paths with Anakin.
+
+The relationship that formed between them was unlike anything either man expected.
+
+Not Master and apprentice.
+
+Not teacher and student.
+
+Friends.
+
+Equals.
+
+Brothers by choice rather than obligation.
+
+Obi-Wan watched Anakin carefully.
+
+At first with concern.
+
+Then curiosity.
+
+Then growing respect.
+
+The young man was powerful.
+
+Attached.
+
+Married.
+
+Emotionally open.
+
+And somehow...
+
+healthy.
+
+The disaster many Jedi feared never appeared.
+
+Years passed.
+
+The Council continued criticizing Anakin from afar.
+
+A Force user without Jedi supervision.
+
+A dangerous precedent.
+
+A troubling example.
+
+Eventually Obi-Wan grew tired of hearing it.
+
+Because the evidence stood before him.
+
+Anakin was thriving.
+
+The Council was wrong.
+
+And Obi-Wan increasingly knew it.
+
+—
+
+His own doubts had been growing for years.
+
+The war had changed the Jedi.
+
+Generals instead of peacekeepers.
+
+Soldiers instead of guardians.
+
+The Order seemed increasingly trapped by its own traditions.
+
+Then came a realization he could no longer ignore.
+
+Qui-Gon had been right.
+
+About Anakin.
+
+About many things.
+
+Eventually Obi-Wan made a decision that shocked the Order.
+
+He left.
+
+Not in anger.
+
+Not in rebellion.
+
+Simply because his path no longer aligned with theirs.
+
+There was only one place he wished to go.
+
+Mandalore.
+
+And one person waiting there.
+
+Satine Kryze.
+
+At long last, neither of them allowed duty to stand in the way.
+
+They married.
+
+Obi-Wan remained at her side.
+
+The years that followed became some of the happiest of his life.
+
+And when Darth Maul eventually launched his campaign to seize Mandalore, he discovered something unexpected.
+
+Obi-Wan Kenobi had never left.
+
+Every move met resistance.
+
+Every scheme encountered preparation.
+
+Every assassination attempt failed.
+
+When Maul finally came for Satine, Obi-Wan was there.
+
+Waiting.
+
+Mandalore survived.
+
+Satine survived.
+
+Maul's ambitions died beneath Mandalorian skies.
+
+—
+
+As the war approached its final phase, the galaxy moved toward catastrophe.
+
+Only a handful understood how dangerous Supreme Chancellor Palpatine had become.
+
+Mace Windu was one of them.
+
+Yoda was another.
+
+When the truth finally emerged—that Palpatine was Darth Sidious—the Jedi attempted to stop him.
+
+The confrontation ended in disaster.
+
+Order 66 followed.
+
+Across the galaxy, clone troopers turned on their Jedi commanders.
+
+The Jedi Order collapsed in a single day.
+
+Thousands died.
+
+Temples burned.
+
+Centuries ended.
+
+Yet events unfolded differently than Sidious intended.
+
+Mace Windu survived.
+
+No one betrayed him.
+
+No one intervened on Sidious's behalf.
+
+Though grievously wounded during the confrontation, he escaped.
+
+Yoda survived as well.
+
+The two greatest Jedi Masters of their age endured the purge.
+
+But the Order itself did not.
+
+The Jedi were finished.
+
+—
+
+With his enemies broken and the Republic terrified, Palpatine made his final move.
+
+The Senate gathered.
+
+Emergency powers expanded once again.
+
+Fear overwhelmed reason.
+
+And the Galactic Empire was born.
+
+Thunderous applause echoed through the chamber.
+
+The Republic died.
+
+Emperor Palpatine ascended.
+
+Beside him stood a new enforcer.
+
+Count Dooku.
+
+No longer leader of the Separatists.
+
+No longer merely Darth Tyranus.
+
+The Emperor's right hand.
+
+The visible fist of Imperial authority.
+
+Across the galaxy, storm clouds gathered.
+
+—
+
+The survivors found one another.
+
+Yoda.
+
+Mace Windu.
+
+Obi-Wan Kenobi.
+
+Anakin Skywalker.
+
+Soon Padmé and Satine joined them.
+
+The old Jedi Order was gone.
+
+The Republic was gone.
+
+The Empire had arrived.
+
+Yet something remained.
+
+Friendship.
+
+Trust.
+
+Shared purpose.
+
+In a hidden chamber beneath Sundari, capital of Mandalore, they gathered around a circular table.
+
+No ranks.
+
+No councils.
+
+No masters.
+
+No apprentices.
+
+Only allies.
+
+Outside, the Empire tightened its grip on the galaxy.
+
+Inside, a different decision was being made.
+
+Not to hide.
+
+Not to wait decades.
+
+Not to leave the future to the next generation.
+
+Palpatine had won.
+
+For now.
+
+But as the discussion deepened beneath the city of Sundari, a new resolve began taking shape among the survivors.
+
+They would not spend the rest of their lives running.
+
+They would not watch the Empire become permanent.
+
+This time, they would strike back.
+
+And they would do it soon.
+
+---
+
+# Part 2
+
 The underground chamber beneath Sundari had once been designed as a continuity bunker — a final refuge for Mandalore’s government in the event of siege. The architects had imagined orbital bombardment, collapsing domes, poisoned atmosphere.
 
 They had not imagined the Empire.
@@ -132,7 +950,7 @@ Obi-Wan’s expression sharpened faintly.
 
 Anakin stepped toward the table again.
 
-“Sidious trusts systems less now than he used to. Order Sixty-Six worked, but surviving Jedi changed the equation. He knows Yoda survived. He knows you survived,” he said to Mace. “He doesn’t know where Obi-Wan is. He doesn’t know what I’m doing.”
+“Sidious trusts systems less now than he used to. Order 66 worked, but surviving Jedi changed the equation. He knows Yoda survived. He knows you survived,” he said to Mace. “He doesn’t know where Obi-Wan is. He doesn’t know what I’m doing.”
 
 “And that troubles him,” Yoda said softly.
 
@@ -274,7 +1092,7 @@ When he spoke, his voice was calm.
 
 ---
 
-# Part 2
+# Part 3
 
 The rain came hard against the domes of Sundari.
 
@@ -734,7 +1552,7 @@ Anakin turned back toward the others.
 
 ---
 
-# Part 3
+# Part 4
 
 The decision was made within minutes.
 
@@ -1162,7 +1980,7 @@ And somewhere far below them, across a trillion lives and countless worlds, the 
 
 ---
 
-# Part 4
+# Part 5
 
 The four stood in silence over Sidious’s body.
 

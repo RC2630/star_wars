@@ -16,10 +16,11 @@ the relevant branches can be found in these markdown files under the `alternate 
 only read and analyze the listed timelines. don't read the others - the rest are not relevant to this discussion.
 
 here are some things that you can compare (not exhaustive; you can add more):
+- the point of divergence from canon
 - fate of the main characters (anakin, padme, obi-wan, satine, qui-gon, maul, sidious, dooku, ahsoka, bo-katan, etc.). note that not all characters will be present or mentioned in every branch.
 - for any characters that were killed, who kills them / who participates in the duel that kills them (if applicable)
 - relationships between characters, including romantic ones
-- how successful sidious' plan was; did order 66 happen, aftermath and resolution of order 66, etc.
+- how successful sidious' plan was; did order 66 happen or not, how/when was order 66 triggered, aftermath and resolution of order 66, etc.
 - final state of the galaxy; fate of the republic, of the clones, who becomes new galactic leader, etc.
 - (if applicable) fate of the darksaber; who wields it at the end
 - who has children, how did the children come (born, adopted, cloned, etc.), and when
@@ -29,4 +30,5 @@ here are some things that you can compare (not exhaustive; you can add more):
 - the timing (year BBY) of various events, if mentioned or explicitly stated
 - specifically compare how the final duel with maul and the final duel with sidious went in each branch (who were involved, the location, the results, etc.) as applicable
 - whether an empire ever forms, or it is completely prevented from forming
+- how was palpatine revealed as darth sidious
 - remember this is not exhaustive and you should add more points of comparison as you see fit
