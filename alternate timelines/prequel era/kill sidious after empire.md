@@ -806,7 +806,7 @@ They would not spend the rest of their lives running.
 
 They would not watch the Empire become permanent.
 
-This time, they would strike back.
+Instead, they would strike back.
 
 And they would do it soon.
 
