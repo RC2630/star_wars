@@ -1586,12 +1586,6 @@ Anakin sat forward near the cockpit, elbows on knees, staring at nothing.
 
 Obi-Wan watched him quietly from across the compartment.
 
-Years ago, during the Clone Wars, there would have been tension in a moment like this. Friction. Unspoken hierarchy. The strain of master and apprentice trapped inside roles they no longer fit.
-
-Now there was none.
-
-Only trust.
-
 Mace stood near the rear bulkhead, eyes closed in meditation.
 
 Yoda sat cross-legged on the deck plating, cane laid beside him.
@@ -2363,7 +2357,7 @@ On Mandalore, Satine continued ruling beside Obi-Wan openly now at last.
 No more secrecy.
 No more hiding.
 
-And Anakin Skywalker, once feared as the possible destroyer of the Republic, spent his later years helping rebuild it beside Padmé and their children.
+And Anakin Skywalker, once feared by the Jedi for his deep attachments and late training start, spent his later years helping rebuild the Republic beside Padmé and their children.
 
 Not as a Jedi.
 Not as a conqueror.
