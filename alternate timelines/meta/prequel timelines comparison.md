@@ -32,4 +32,5 @@ here are some things that you can compare (not exhaustive; you can add more):
 - specifically compare how the final duel with maul and the final duel with sidious went in each branch (who were involved, the location, the results, etc.) as applicable
 - whether an empire ever forms, or it is completely prevented from forming
 - how was palpatine revealed as darth sidious
+- the timing in the big duels: does cyber maul die first or does sidious die first?
 - remember this is not exhaustive and you should add more points of comparison as you see fit
