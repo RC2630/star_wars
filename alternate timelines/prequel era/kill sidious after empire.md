@@ -2076,7 +2076,7 @@ STATUS OF EMPEROR UNKNOWN.
 
 MILITARY LOCKDOWN IN EFFECT.
 
-**[Point A]**
+**[Point 5.1A]**
 
 The four said little during the return to Mandalore.
 
@@ -2180,7 +2180,7 @@ The chamber gradually quieted as Padmé ascended toward the central speaking pla
 
 Anakin remained beside her the entire time, calm but watchful.
 
-**[Point B]**
+**[Point 5.1B]**
 
 The Senate waited.
 
@@ -2304,6 +2304,8 @@ The protection.
 
 The choice.
 
+**[Insert Interlude 5.2 Here]**
+
 The years that followed were difficult.
 
 The Empire did not vanish overnight. Entire sectors resisted reform. Some moffs attempted regional secessions. Several military governors refused civilian authority outright.
@@ -2347,9 +2349,589 @@ And because of that, the galaxy survived.
 
 ---
 
-# Interlude
+# Part 6
 
-*(Runs concurrently with Part 5, from the labelled Point A to Point B)*
+Several years had passed since the fall of the Empire.
+
+The galaxy was still healing.
+
+The restored Republic was no longer a fragile experiment but a functioning government. Worlds that had been plagued with war, corruption, and authoritarian rule were slowly rediscovering ordinary life.
+
+On Mandalore, the scars of history remained visible, but the future felt brighter than it had in generations.
+
+Satine still ruled from Sundari.
+
+Obi-Wan divided his time between Mandalore and various travels throughout the Republic, often helping mediate disputes or advising younger Force-sensitive students who sought guidance. Not a Jedi Master. Not an official leader of anything.
+
+Just Obi-Wan.
+
+Anakin and Padmé had settled into a quieter life than either had once imagined possible.
+
+Their twins were growing quickly.
+
+The palace that had once hidden a rebellion now echoed with the sounds of children running through its halls.
+
+Which was why the message caused such immediate concern.
+
+It arrived through official diplomatic channels.
+
+Simple.
+
+Brief.
+
+Unexpected.
+
+The sender identified himself plainly.
+
+**Maul.**
+
+For a long moment after the message finished playing, nobody spoke.
+
+Satine was the first.
+
+"No."
+
+Padmé immediately nodded.
+
+"Absolutely not."
+
+Anakin folded his arms.
+
+"This has to be a trap."
+
+Obi-Wan remained silent.
+
+The recorded image of Maul lingered above the projector.
+
+Older now.
+
+Still scarred.
+
+Still unmistakably Maul.
+
+But something seemed different.
+
+Less intensity.
+
+Less rage.
+
+Or perhaps simply exhaustion.
+
+The message itself had been surprisingly direct.
+
+He wished to speak.
+
+Nothing more.
+
+No demands.
+
+No threats.
+
+No conditions.
+
+After several days of discussion, they reached a compromise.
+
+Maul would be allowed to visit Mandalore under extremely strict conditions.
+
+He would arrive alone.
+
+No guards.
+
+No escorts.
+
+No weapons.
+
+He would submit to a complete search upon arrival.
+
+Any violation ended the meeting immediately.
+
+To everyone's surprise—
+
+He agreed without argument.
+
+—
+
+The shuttle arrived three weeks later.
+
+Mandalorian security teams met it immediately.
+
+Dozens of warriors waited on the landing platform.
+
+Blasters ready.
+
+Jetpacks equipped.
+
+Prepared for the worst.
+
+Maul emerged alone.
+
+No hidden companions.
+
+No assassins.
+
+No ambush.
+
+He surrendered himself to inspection without protest.
+
+The searches were thorough.
+
+Extremely thorough.
+
+When they finished, the commander reported the results.
+
+"No weapons."
+
+No explosives.
+
+No hidden transmitters.
+
+Nothing.
+
+Only then was Maul escorted into Sundari.
+
+—
+
+The palace meeting chamber was quiet.
+
+Satine sat at one end of the table.
+
+Padmé beside her.
+
+Across from them sat Obi-Wan and Anakin.
+
+The twins had been kept elsewhere in the palace.
+
+Padmé had insisted.
+
+She wasn't prepared to trust Maul that far.
+
+Not yet.
+
+The doors opened.
+
+Maul entered.
+
+For a moment everyone simply looked at one another.
+
+So much history occupied the room.
+
+Naboo.
+
+The Clone Wars.
+
+Mandalore.
+
+Death.
+
+Loss.
+
+Years of hatred.
+
+All gathered together in silence.
+
+Finally Maul spoke.
+
+"I appreciate your willingness to hear me."
+
+His voice sounded different than any of them remembered.
+
+Still harsh.
+
+Still deep.
+
+But no longer burning with the same fury.
+
+Anakin watched carefully.
+
+"Start talking."
+
+Maul nodded.
+
+Then, surprisingly, he did exactly that.
+
+No manipulation.
+
+No theatrics.
+
+Just honesty.
+
+"After Naboo, I should have died," Maul said. "Instead I survived. Barely. For years I lived in pain, anger, and madness. Hatred was all I had left."
+
+His eyes shifted briefly toward Obi-Wan.
+
+"I convinced myself that everything was your fault. Every humiliation. Every loss. You became an obsession. Not because you had wronged me more than anyone else, but because I needed someone to blame."
+
+Obi-Wan said nothing.
+
+Maul continued.
+
+"Then there was Sidious."
+
+His expression hardened.
+
+"I had served him since childhood. He shaped me into a weapon. And when I was no longer useful, he replaced me."
+
+"With Dooku," Anakin said.
+
+"With Dooku," Maul confirmed. "As though I had never existed."
+
+He let out a bitter laugh.
+
+"For a long time, I wanted revenge on both of you. Kenobi for defeating me. Sidious for discarding me."
+
+He folded his hands together.
+
+"That was when I found my brother, Savage Opress. Together we tried to build something outside Sidious's control. Not the Sith as he envisioned them. Something that could challenge him."
+
+"The Shadow Collective," Satine said.
+
+Maul nodded.
+
+"The Shadow Collective. The Black Sun. Death Watch. Criminal syndicates, mercenaries, armies. Anything that could become a rival power."
+
+His voice grew quieter.
+
+"And behind it all was Mother Talzin. The Nightsisters. My true family."
+
+For the first time, genuine sadness appeared on his face.
+
+"Sidious destroyed that too."
+
+He looked down briefly.
+
+"He killed Savage himself. Right in front of me."
+
+Silence filled the room.
+
+"And Talzin?"
+
+"Grievous struck the blow," Maul said. "But Sidious arranged it. As he arranged everything."
+
+His jaw tightened.
+
+"By the end, my empire was shattered. My family was dead. My brother was dead. My master wanted me dead. And somehow I still believed revenge would solve something."
+
+The room grew quiet.
+
+Even after all these years, old wounds still existed.
+
+Maul slowly shook his head.
+
+"I hated Kenobi."
+
+His yellow eyes shifted toward Obi-Wan.
+
+"I believed my suffering was his fault."
+
+Obi-Wan met the gaze calmly.
+
+"I know."
+
+Maul gave a small humorless laugh.
+
+"Yet every time I tried to destroy him, my life became worse."
+
+Nobody argued.
+
+Because that was simply true.
+
+Then Maul said something none of them expected.
+
+"After Sidious died, I had time to think."
+
+Anakin raised an eyebrow.
+
+"Dangerous habit."
+
+The faintest smile appeared on Maul's face.
+
+"Apparently."
+
+The smile vanished quickly.
+
+"I spent my entire life following teachings built on hatred. Power through anger. Strength through domination. Victory through fear."
+
+He leaned back slightly.
+
+"And where did it lead?"
+
+Nobody answered.
+
+Maul did.
+
+"To death."
+
+His voice had become very quiet.
+
+"To isolation. To failure. To endless revenge that solved nothing."
+
+Even Obi-Wan looked surprised.
+
+Maul shook his head.
+
+"I began wondering if perhaps my master had lied about more than politics."
+
+The room remained still.
+
+"I no longer call myself Sith."
+
+The statement hung in the air.
+
+"I dissolved the Shadow Collective. Released its territories. Ended its command structure."
+
+Satine looked genuinely surprised.
+
+Maul continued.
+
+"I returned to Dathomir."
+
+"And?" Padmé asked carefully.
+
+"And lived."
+
+The answer was strangely simple.
+
+No grand revelation.
+
+No dramatic redemption speech.
+
+Just that.
+
+Lived.
+
+For a while nobody spoke.
+
+Then Maul looked directly at Obi-Wan.
+
+"I realized there was one matter unresolved."
+
+Obi-Wan folded his hands.
+
+"Me."
+
+"Yes."
+
+The silence lingered.
+
+Then Obi-Wan nodded slowly.
+
+"I think we've both spent enough years carrying that."
+
+Maul stared at him.
+
+Perhaps expecting anger.
+
+Perhaps expecting accusation.
+
+Instead he found understanding.
+
+Not forgiveness exactly.
+
+But understanding.
+
+At length Obi-Wan smiled faintly.
+
+"You don't seem interested in conquering Mandalore anymore."
+
+"No."
+
+"Or murdering me?"
+
+"No."
+
+"Good."
+
+The smile widened slightly.
+
+"Then I recommend living well on Dathomir."
+
+For several seconds Maul simply stared.
+
+Then, unexpectedly, he laughed.
+
+Not a cruel laugh.
+
+Not a bitter one.
+
+Just genuine amusement.
+
+The sound surprised everyone.
+
+Even him.
+
+Eventually the conversation shifted.
+
+Toward the Empire.
+
+Toward Sidious.
+
+Toward the final battle.
+
+When they described the confrontation in the Imperial Palace, Maul listened carefully.
+
+Then slowly shook his head.
+
+"Impressive."
+
+Anakin blinked.
+
+"What?"
+
+Maul looked at all four of them.
+
+"You defeated Sidious."
+
+Nobody responded.
+
+"You have no idea how difficult that is."
+
+His gaze shifted briefly.
+
+"Savage and I challenged him once."
+
+The memory clearly remained painful.
+
+"We lost badly."
+
+His expression darkened.
+
+"Hopelessly."
+
+Then he looked back toward them.
+
+"You succeeded where I failed."
+
+For perhaps the first time in his life, there was no jealousy in his voice.
+
+Only acknowledgment.
+
+Padmé noticed it.
+
+So did Obi-Wan.
+
+Something fundamental had changed.
+
+The hatred was simply gone.
+
+Eventually Maul hesitated.
+
+Then looked toward Padmé.
+
+"The children."
+
+Padmé immediately stiffened.
+
+Anakin's expression became guarded.
+
+Maul raised both hands slightly.
+
+"Only if you are comfortable."
+
+A long silence followed.
+
+Then Padmé studied him carefully.
+
+Years ago she would have refused instantly.
+
+Today she wasn't so sure.
+
+Finally she nodded.
+
+"Briefly."
+
+—
+
+A short time later, the twins entered the room.
+
+Curious.
+
+Energetic.
+
+Completely unaware of the extraordinary history surrounding them.
+
+Maul regarded them quietly.
+
+Not as future tools.
+
+Not as threats.
+
+Not as opportunities.
+
+Just children.
+
+The interaction lasted only a few minutes.
+
+Simple introductions.
+
+A few awkward questions.
+
+The twins were mostly interested in why he looked different from everyone else.
+
+Maul answered patiently.
+
+To everyone's surprise, they seemed to like him.
+
+Children often sensed sincerity before adults did.
+
+Eventually they left again.
+
+The room grew quiet.
+
+Maul stood.
+
+"I should go."
+
+Nobody tried to stop him.
+
+He looked around the chamber one final time.
+
+At Satine.
+
+At Padmé.
+
+At Anakin.
+
+And finally at Obi-Wan.
+
+For perhaps the first time since Naboo, there was no hatred between them.
+
+Only history.
+
+And acceptance.
+
+Maul inclined his head slightly.
+
+"Goodbye, Kenobi."
+
+Obi-Wan returned the gesture.
+
+"Goodbye, Maul."
+
+Then Maul departed.
+
+A shuttle left Sundari later that evening.
+
+Bound for Dathomir.
+
+It arrived without incident.
+
+And from that point onward, nobody heard from Maul again.
+
+No criminal empire emerged.
+
+No revenge campaign followed.
+
+No final tragedy occurred.
+
+He simply disappeared into the quiet life he had chosen.
+
+And for a man who had spent nearly his entire existence consumed by conflict, that may have been the most remarkable ending of all.
+
+---
+
+# Interlude 5.1
+
+*(Runs concurrently with Part 5, from the labelled Point 5.1A to Point 5.1B)*
 
 The ship climbed through Coruscant's lower atmosphere and vanished into hyperspace.
 
@@ -2914,3 +3496,349 @@ Relief.
 Hope.
 
 And for the first time since the Emperor's death, the Senate had fallen completely silent.
+
+---
+
+# Interlude 5.2
+
+When Anakin and Padmé returned to Mandalore from Coruscant after the Senate settled down, Anakin found himself being marched through the halls of Sundari by Satine Kryze.
+
+"This feels suspicious," he said.
+
+"It should."
+
+Anakin immediately slowed.
+
+"See? That's not reassuring."
+
+Ahead of them, Satine continued walking without turning around.
+
+"Good."
+
+They entered one of the palace's medical recovery suites.
+
+Anakin stopped.
+
+"...oh."
+
+Inside, three familiar faces looked back at him.
+
+Yoda floated peacefully in a bacta tank.
+
+Mace sat submerged in another, looking profoundly unimpressed with the entire situation.
+
+Obi-Wan occupied a third.
+
+He looked embarrassed.
+
+Which somehow made it worse.
+
+Anakin pointed.
+
+"What happened to you three?"
+
+Obi-Wan immediately answered.
+
+"Satine happened."
+
+Satine folded her arms.
+
+"You mean I got Obi-Wan, Yoda, and Mace a bacta bath."
+
+Obi-Wan looked offended.
+
+"You mean you forced us into a bacta bath."
+
+"Well, you needed it."
+
+A deep sigh escaped him.
+
+Anakin smirked.
+
+"You got forced into a bacta tank?"
+
+Obi-Wan gave him a look.
+
+"It can happen to anyone."
+
+"It really can't."
+
+"It can."
+
+"It absolutely cannot."
+
+Satine pointed toward an empty tank.
+
+"Anakin, you go in as well."
+
+Immediately:
+
+"I'm fine."
+
+Mace made a noise suspiciously close to a laugh.
+
+Satine pointed at him.
+
+"That's what the others said too."
+
+Yoda nodded from his tank.
+
+"Fine, I was not."
+
+"See?"
+
+Anakin gestured helplessly.
+
+"I don't need a bacta bath."
+
+"Anakin."
+
+He recognized that tone.
+
+It was the same tone Padmé occasionally used.
+
+The one that meant resistance was pointless.
+
+"You sound too determined."
+
+Satine raised an eyebrow.
+
+"Or stubborn, even."
+
+"That's exactly what Obi-Wan says."
+
+"Go."
+
+Anakin looked around the room.
+
+Nobody appeared willing to help him.
+
+Traitors.
+
+All of them.
+
+Even Obi-Wan.
+
+Especially Obi-Wan.
+
+With a dramatic sigh, Anakin surrendered.
+
+"Fine."
+
+Several minutes later he was submerged in the fourth bacta tank.
+
+The silence lasted approximately ten seconds.
+
+Then Obi-Wan spoke.
+
+"You know, I did warn you."
+
+Anakin rolled his eyes.
+
+"Oh, here we go."
+
+"I specifically remember warning you about charging Sith Lords."
+
+"You charged Sith Lords too."
+
+"Yes, but I was older."
+
+"That's not how that works."
+
+"It should be."
+
+Across the room, Mace shook his head.
+
+"Neither of you should ever be allowed to explain tactical decisions."
+
+"That's fair," Obi-Wan admitted.
+
+Nearby, Satine and Padmé had settled into comfortable chairs beside the recovery area.
+
+Luke and Leia sat on the floor between them.
+
+At two years old, they had reached the age where sitting still was considered an outrageous violation of personal freedom.
+
+Leia was attempting to climb onto a chair she was clearly too small to climb.
+
+Luke was investigating a nearby medical scanner with the determination of a scientist discovering a new continent.
+
+Padmé intercepted both before disaster occurred.
+
+Again.
+
+For perhaps the sixth time in five minutes.
+
+"I swear they coordinate these things."
+
+Satine smiled.
+
+"They absolutely do."
+
+Luke looked up innocently.
+
+Nobody believed him.
+
+Leia somehow looked even more innocent.
+
+Nobody believed her either.
+
+The twins had inherited many traits from their parents.
+
+Including, unfortunately, strategic thinking.
+
+Anakin watched them from his tank.
+
+The sight still surprised him sometimes.
+
+For years his future had seemed locked into one path after another.
+
+Slave.
+
+Podracer.
+
+Potential Jedi.
+
+Political aide.
+
+Rebel.
+
+Force user.
+
+All of it constantly moving.
+
+Constantly uncertain.
+
+Yet somehow this—
+
+This was the thing he never expected.
+
+A quiet room.
+
+Friends.
+
+Family.
+
+Children.
+
+No war.
+
+No Sith.
+
+No secret police.
+
+No galactic catastrophe currently in progress.
+
+Just people.
+
+Living.
+
+Leia finally managed to escape Padmé's supervision and marched directly toward the bacta tanks.
+
+Anakin immediately knew this would end badly.
+
+Sure enough, she planted both hands on the glass and peered inside.
+
+"Papa!"
+
+"Hello."
+
+Luke joined her moments later.
+
+"Papa!"
+
+"Also hello."
+
+The twins stared into the tank.
+
+Fascinated.
+
+Then Luke looked toward Obi-Wan's.
+
+Then Mace's.
+
+Then Yoda's.
+
+His tiny face became increasingly confused.
+
+Eventually he pointed.
+
+"Why?"
+
+The room immediately erupted into laughter.
+
+Even Mace smiled.
+
+Barely.
+
+But it counted.
+
+Padmé buried her face in one hand.
+
+"Oh no."
+
+Leia pointed too.
+
+"Why?"
+
+Yoda opened one eye.
+
+"Healing, we are."
+
+The twins considered this.
+
+Neither appeared convinced.
+
+Satine leaned back in her chair, watching the scene.
+
+For a long moment she said nothing.
+
+Then quietly:
+
+"This is nice."
+
+The room settled slightly.
+
+Obi-Wan looked toward her.
+
+Satine smiled.
+
+"No crisis. No emergency. No conspiracy."
+
+Padmé nodded.
+
+"No one trying to overthrow a government."
+
+"No Sith."
+
+"No Separatists."
+
+"No death cults."
+
+Anakin raised a hand from inside the tank.
+
+"To be fair, we did just overthrow a government."
+
+Padmé pointed at him.
+
+"That was different."
+
+"It definitely sounds similar."
+
+"It was different."
+
+Obi-Wan laughed.
+
+Mace laughed.
+
+Even Yoda's shoulders shook slightly.
+
+The twins, having no idea what anyone was laughing about, started laughing too.
+
+And for the first time in a very long time, the sound wasn't followed by alarms. Or explosions. Or news of some new disaster.
+
+Just laughter.
+
+Simple and ordinary.
+
+Exactly the sort of thing they had spent years fighting to protect.
