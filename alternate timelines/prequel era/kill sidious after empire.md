@@ -1402,7 +1402,7 @@ And this was not Geonosis.
 
 These opponents were united.
 
-Anakin and Obi-Wan unconsciously fell into complementary rhythm despite years apart. Defense and aggression. Patience and momentum.
+Anakin and Obi-Wan unconsciously fell into complementary rhythm despite having never formally trained together. Defense and aggression. Patience and momentum.
 
 The old partnership still existed somewhere beneath everything.
 
