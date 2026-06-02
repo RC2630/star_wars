@@ -20,6 +20,7 @@ here are some things that you can compare (not exhaustive; you can add more):
 - fate of the main characters (anakin, padme, obi-wan, satine, qui-gon, maul, sidious, dooku, ahsoka, bo-katan, etc.). note that not all characters will be present or mentioned in every branch.
 - for any characters that were killed, who kills them / who participates in the duel that kills them (if applicable)
 - relationships between characters, including romantic ones
+- the fate of the jedi, the sith, the republic, and any other important institutions
 - how successful sidious' plan was; did order 66 happen or not, how/when was order 66 triggered, aftermath and resolution of order 66, etc.
 - final state of the galaxy; fate of the republic, of the clones, who becomes new galactic leader, etc.
 - (if applicable) fate of the darksaber; who wields it at the end
