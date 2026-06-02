@@ -2076,6 +2076,8 @@ STATUS OF EMPEROR UNKNOWN.
 
 MILITARY LOCKDOWN IN EFFECT.
 
+**[Point A]**
+
 The four said little during the return to Mandalore.
 
 Exhaustion settled over them at last.
@@ -2177,6 +2179,8 @@ And she looked furious.
 The chamber gradually quieted as Padmé ascended toward the central speaking platform.
 
 Anakin remained beside her the entire time, calm but watchful.
+
+**[Point B]**
 
 The Senate waited.
 
@@ -2340,3 +2344,573 @@ Not as a conqueror.
 Simply as himself.
 
 And because of that, the galaxy survived.
+
+---
+
+# Interlude
+
+*(Runs concurrently with Part 5, from the labelled Point A to Point B)*
+
+The ship climbed through Coruscant's lower atmosphere and vanished into hyperspace.
+
+For several seconds after the jump, nobody spoke.
+
+Blue starlines stretched endlessly beyond the cockpit canopy.
+
+The adrenaline was fading.
+
+Reality was not.
+
+Anakin sat in the co-pilot's seat, staring out at hyperspace. His lightsaber rested on the console beside him.
+
+The same lightsaber that had just killed Darth Sidious.
+
+Obi-Wan sat several rows back.
+
+Mace leaned against a bulkhead with his arms folded.
+
+Yoda remained motionless, eyes closed.
+
+Eventually Obi-Wan broke the silence.
+
+"Did we actually do it?"
+
+Anakin glanced back.
+
+The question sounded strangely un-Obi-Wan-like.
+
+But then again, very little about the last twenty-four hours had been normal.
+
+Mace gave a short breath that might have been a laugh.
+
+"The Emperor is dead."
+
+"Yes," Obi-Wan said.
+
+Another pause.
+
+"That's what concerns me."
+
+That earned the faintest smile from Anakin.
+
+"Only you would say that after helping kill the most dangerous Sith Lord in history."
+
+Obi-Wan shrugged.
+
+"I've spent most of my life cleaning up the consequences of apparently good ideas."
+
+Even Mace looked amused.
+
+Yoda finally opened his eyes.
+
+"Difficult, the next part will be."
+
+The humor faded immediately.
+
+Because everyone knew he was right.
+
+Defeating Sidious had been a military problem.
+
+What came next was a political one.
+
+And political problems were often harder.
+
+Anakin leaned back in his chair.
+
+"The Senate is probably tearing itself apart already."
+
+"Probably?" Obi-Wan said.
+
+"The Senate is absolutely tearing itself apart already."
+
+That got an actual laugh out of Mace.
+
+A rare occurrence.
+
+Then silence returned.
+
+Not uncomfortable silence.
+
+Exhausted silence.
+
+The kind shared by people who had survived something together.
+
+Hours later, Mandalore appeared before them.
+
+The gray world emerged from hyperspace beneath a blanket of cloud and storm.
+
+As the transport descended toward Sundari, Anakin felt a surprising amount of tension leave his shoulders.
+
+Home.
+
+Not Tatooine.
+
+Not Coruscant.
+
+Mandalore.
+
+Somewhere along the way, it had become home.
+
+The transport settled onto a private landing platform attached directly to the royal palace.
+
+Before the ramp had even fully lowered, two figures were already waiting.
+
+Padmé.
+
+Satine.
+
+The moment Anakin stepped off the ship, Padmé crossed the platform at almost a run.
+
+Years earlier she might have restrained herself.
+
+Maintained some senatorial dignity.
+
+Not anymore.
+
+She wrapped her arms around him immediately.
+
+Anakin held her tightly.
+
+For a moment neither spoke.
+
+Neither cared who was watching.
+
+Eventually Padmé leaned back just enough to study his face.
+
+"You look terrible."
+
+Anakin smiled.
+
+"You always know exactly what to say."
+
+"You look like you've been fighting a Sith Lord."
+
+The smile widened.
+
+"Funny story."
+
+Padmé stared at him for another second.
+
+Then she understood.
+
+Not intellectually.
+
+Emotionally.
+
+The tension she had been carrying since his departure suddenly disappeared.
+
+Her shoulders relaxed.
+
+Her eyes closed briefly.
+
+"He really is gone."
+
+Anakin nodded once.
+
+"He's gone."
+
+Nearby, Satine had already reached Obi-Wan.
+
+Their reunion was quieter.
+
+Less dramatic.
+
+No less meaningful.
+
+She simply took his hand.
+
+Obi-Wan squeezed it gently.
+
+Neither needed words.
+
+Satine looked at the others.
+
+"Inside."
+
+Everyone agreed immediately.
+
+—
+
+The underground conference chamber beneath the palace was far less tense than it had been the previous time they gathered there.
+
+Not relaxed.
+
+But different.
+
+A pressure had vanished from the room.
+
+For the first time in months, Palpatine was no longer lurking somewhere in the background of every conversation.
+
+The surviving members of the rebellion sat around the table.
+
+Satine.
+
+Padmé.
+
+Obi-Wan.
+
+Anakin.
+
+Mace.
+
+Yoda.
+
+For a few minutes they simply exchanged information.
+
+The battle.
+
+Dooku.
+
+The Imperial Palace.
+
+The death of Sidious.
+
+Then came the question.
+
+What now?
+
+The room fell quiet.
+
+It was Padmé who spoke first.
+
+"How much time has passed since you left Coruscant?"
+
+"A few hours," said Obi-Wan.
+
+Padmé frowned.
+
+"A few hours."
+
+Nobody missed the significance.
+
+She stood suddenly.
+
+Anakin immediately recognized the expression on her face.
+
+The others did too.
+
+Satine sighed.
+
+"Oh no."
+
+Padmé was already pacing.
+
+"The Senate."
+
+Mace looked up.
+
+"The Senate?"
+
+"Of course the Senate."
+
+She turned toward him.
+
+"Do you think they're sitting calmly waiting for instructions?"
+
+Mace considered this.
+
+"No."
+
+"They're probably in complete chaos."
+
+"Definitely."
+
+Padmé resumed pacing.
+
+"The Emperor is dead. No successor exists. The military doesn't know who to obey. Every ambitious senator in the galaxy is probably trying to claim authority."
+
+Anakin watched her work through the problem in real time.
+
+It was honestly impressive.
+
+Padmé stopped pacing and looked directly at him.
+
+"We need to go back."
+
+Anakin blinked.
+
+"Immediately."
+
+"There it is," Satine muttered.
+
+Obi-Wan smiled faintly.
+
+"I was wondering how long it would take."
+
+Padmé ignored him.
+
+"If we leave the political situation unattended, someone else will fill the vacuum."
+
+Mace nodded slowly.
+
+She was right.
+
+Unfortunately.
+
+"You're thinking about succession."
+
+"I'm thinking about preventing another Palpatine."
+
+Yoda's ears lifted slightly.
+
+"Wise, that is."
+
+Padmé looked around the room.
+
+"The Empire's institutions still exist. The military still exists. The bureaucracy still exists."
+
+"And if a hardliner gains control?" Obi-Wan asked.
+
+"We get a second emperor."
+
+Nobody liked that answer.
+
+Because it was plausible.
+
+Very plausible.
+
+Padmé turned toward Anakin.
+
+"I'm going."
+
+There wasn't even a hint of hesitation.
+
+Anakin nodded immediately.
+
+"I'm coming with you."
+
+"Expected that, I did," Yoda said.
+
+Satine folded her arms.
+
+"What about the twins?"
+
+The question lingered briefly.
+
+Anakin's expression softened.
+
+Luke and Leia were asleep elsewhere in the palace.
+
+Completely unaware that galactic history had just changed.
+
+Satine smiled slightly.
+
+"They'll be fine here."
+
+Obi-Wan nodded.
+
+"They'll be safer here than on Coruscant."
+
+Padmé looked relieved.
+
+That settled it.
+
+The decision was made.
+
+—
+
+Less than thirty minutes later another ship departed Sundari.
+
+This time carrying only two passengers.
+
+Padmé Amidala and Anakin Skywalker.
+
+The trip back to Coruscant felt very different from the previous one.
+
+Neither was exhausted enough to sleep.
+
+Neither was relaxed enough to rest.
+
+Instead they sat together near the cockpit.
+
+Watching hyperspace.
+
+Thinking.
+
+After a long silence Padmé spoke.
+
+"What if they're already trying to appoint a replacement?"
+
+"They probably are."
+
+"What if they've already chosen one?"
+
+Anakin shrugged.
+
+"Then you'll convince them otherwise."
+
+Padmé looked at him.
+
+"You say that very confidently."
+
+"I've seen you argue with entire committees."
+
+"Committees are different."
+
+"You once terrified an entire trade delegation."
+
+Padmé smiled despite herself.
+
+"That's not true."
+
+"It absolutely is."
+
+For the first time that day, she laughed.
+
+The sound eased some of the tension between them.
+
+Anakin looked at her for a moment.
+
+"You know," he said quietly, "you don't have to do this."
+
+Padmé immediately shook her head.
+
+"Yes I do."
+
+He wasn't surprised.
+
+She looked out at the stars.
+
+"If we leave this unfinished, then everything we've done could be wasted."
+
+Anakin understood.
+
+That was the thing about Padmé.
+
+When everyone else finally got to stop fighting, she often found the next battle waiting.
+
+—
+
+Coruscant appeared once again.
+
+The planet looked different now.
+
+Not physically.
+
+Psychologically.
+
+The giant holograms promoting Imperial authority suddenly seemed fragile.
+
+Temporary.
+
+Like monuments already beginning to crack.
+
+Their ship landed in a secure senatorial district.
+
+The city was buzzing.
+
+News screens flashed contradictory reports.
+
+Crowds gathered around public holoprojectors.
+
+Military patrols moved through major intersections.
+
+Nobody seemed entirely sure what was happening.
+
+Only that something enormous had happened.
+
+Padmé moved quickly through the chaos.
+
+Anakin stayed beside her.
+
+The closer they got to the Senate District, the more obvious the political crisis became.
+
+Convoys arriving.
+
+Senators rushing inside.
+
+Security forces arguing over authority.
+
+Staffers running everywhere.
+
+The Senate itself was already in session.
+
+Or perhaps "shouting match" was more accurate.
+
+Even from outside the building they could hear echoes of raised voices.
+
+Padmé paused briefly at the main entrance.
+
+Not because she was uncertain.
+
+Because she hadn't been here in months.
+
+Palpatine had taken this place from her.
+
+Now she was returning.
+
+Anakin looked at her.
+
+"Ready?"
+
+Padmé inhaled slowly.
+
+Then nodded.
+
+Together they entered.
+
+Inside, the corridors were packed.
+
+The reaction began almost immediately.
+
+People recognized her.
+
+Staffers stopped walking.
+
+Senators turned.
+
+Conversations died mid-sentence.
+
+Word spread ahead of them like a wave.
+
+Padmé Amidala is here.
+
+Padmé Amidala is back.
+
+By the time they reached the chamber entrance, half the building seemed aware of their presence.
+
+The massive doors opened.
+
+The Senate chamber beyond was a storm of argument.
+
+Hundreds of voices.
+
+Dozens of speaking platforms.
+
+Accusations flying in every direction.
+
+Then the first senator noticed the doorway.
+
+And stopped talking.
+
+Then another.
+
+Then another.
+
+Like falling dominoes, attention spread outward across the chamber.
+
+The noise began to die.
+
+Heads turned.
+
+Platforms rotated.
+
+Conversations halted.
+
+A ripple moved across the entire Senate floor.
+
+People were staring toward the main entrance.
+
+Padmé Amidala had entered the chamber.
+
+And beside her walked Anakin Skywalker.
+
+The reaction was immediate.
+
+Shock.
+
+Relief.
+
+Hope.
+
+And for the first time since the Emperor's death, the Senate had fallen completely silent.
