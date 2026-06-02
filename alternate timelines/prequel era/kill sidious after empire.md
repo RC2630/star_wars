@@ -2360,8 +2360,8 @@ No more hiding.
 And Anakin Skywalker, once feared by the Jedi for his deep attachments and late training start, spent his later years helping rebuild the Republic beside Padmé and their children.
 
 Not as a Jedi.
+Not as a Sith.
 Not as a conqueror.
-Not as Darth Vader.
 
 Simply as himself.
 
