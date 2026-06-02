@@ -1142,7 +1142,7 @@ Anakin was already moving toward the exit.
 
 “How many?”
 
-“Six inquisitors,” said Yoda softly. “And Dooku.”
+“Seven inquisitors,” said Yoda softly. “And Dooku.”
 
 Obi-Wan looked toward Satine and Padmé.
 
