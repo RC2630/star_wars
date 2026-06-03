@@ -70,7 +70,7 @@ For the first time in years, Qui-Gon felt hope instead of frustration.
 
 *(32 BBY)*
 
-**[Insert Optional Interlude 1.1 Here]**
+**[Insert Interlude 1.1 Here]**
 
 Then, on a world at the edge of Hutt Space, he met a slave boy named Anakin Skywalker.
 
@@ -144,7 +144,7 @@ Qui-Gon said nothing at first.
 
 But as they boarded their ship and left Tatooine behind, he found himself wondering whether the Jedi Order had misunderstood attachment for a thousand years.
 
-**[Insert Optional Interlude 1.2 Here]**
+**[Insert Interlude 1.2 Here]**
 
 They returned to Mandalore together.
 
@@ -348,13 +348,13 @@ There, she found herself spending long evenings in discussion with Dooku.
 
 They spoke endlessly about the Republic’s failures: corruption in the Senate, the growing influence of corporate alliances, entire systems abandoned by distant politicians. By then the Trade Federation and its allies had begun consolidating into something larger, rebranding themselves openly as the Separatist movement.
 
-**[Insert Optional Interlude 2.1 Here]**
+**[Insert Interlude 2.1 Here]**
 
 Padmé opposed them fiercely.
 
 But she understood more of Dooku’s criticism than she wanted to admit.
 
-**[Insert Optional Interlude 2.2 Here]**
+**[Insert Interlude 2.2 Here]**
 
 Then Qui-Gon disappeared investigating a bounty hunter named Jango Fett.
 
@@ -516,7 +516,7 @@ She attacked the Chancellor’s emergency powers relentlessly.
 
 Palpatine tolerated it for months.
 
-**[Insert Optional Interlude 3.1 Here]**
+**[Insert Interlude 3.1 Here]**
 
 Then one day, midway through another speech criticizing wartime overreach, he finally snapped.
 
@@ -692,7 +692,7 @@ Human.
 
 And after everything they had endured, it mattered.
 
-**[Insert Optional Interlude 3.2 Here]**
+**[Insert Interlude 3.2 Here]**
 
 Back in the Republic, the surviving senators demanded answers immediately.
 
@@ -722,7 +722,7 @@ And in the rebuilt Senate chamber, the shaken but determined senators made a vow
 
 Never again.
 
-**[Insert Optional Interlude 3.3 Here]**
+**[Insert Interlude 3.3 Here]**
 
 *(18 BBY)*
 
@@ -3924,7 +3924,7 @@ Obi-Wan nodded thoughtfully.
 
 And he was right.
 
-**[Insert Optional Interlude A1.4.1 Here]**
+**[Insert Interlude A1.4.1 Here]**
 
 ---
 
@@ -5215,7 +5215,7 @@ The Hutts themselves she killed without hesitation.
 
 One by one.
 
-**[Insert Optional Interlude A2.3.1 Here]**
+**[Insert Interlude A2.3.1 Here]**
 
 Five in total.
 
@@ -5397,7 +5397,7 @@ Cad Bane himself attempted an infiltration operation against Sundari before narr
 
 Others died trying.
 
-**[Insert Optional Interlude A2.4.1 Here]**
+**[Insert Interlude A2.4.1 Here]**
 
 The Dabi fought them off repeatedly. Ahsoka, Obi-Wan, and the clone peacekeepers proved more than capable militarily. But over time the constant violence strained Mandalore badly.
 
@@ -5459,6 +5459,10 @@ Just an ugly, silent understanding between both sides:
 enough.
 
 The galaxy moved on uneasily.
+
+*(7 BBY)*
+
+**[Insert Interlude A2.4.2 Here]**
 
 *(4 BBY)*
 
@@ -6100,3 +6104,293 @@ The hunter finally stopped fighting after that. Not from fear, but simple recogn
 And standing there amid the wreckage with one white blade and one black blade illuminating the rain-filled chamber, Ahsoka realized something deeply unsettling:
 
 part of her had enjoyed the fight far too much.
+
+---
+
+### Interlude A2.4.2
+
+*(7 BBY)*
+
+By 7 BBY, the galaxy had settled into something that would have seemed almost impossible twenty years earlier.
+
+The Clone Wars were a memory rather than a daily reality. The Republic and Confederacy maintained an imperfect but enduring peace. The Jedi Order and the Dabi had evolved alongside one another rather than destroying each other. Trade flowed. Travel was common. Entire generations of children had grown up knowing stories of war without personally experiencing it.
+
+It was in that atmosphere that the announcement appeared across the HoloNet.
+
+An Aki-Aki representative stood before colorful banners and dancing kites, smiling broadly as millions watched.
+
+"The Festival of the Ancestors returns to Pasaana this year. We invite all peoples of the galaxy to celebrate with us."
+
+Images followed: endless desert valleys filled with color, music, crowds, and celebrations stretching across the horizon.
+
+For most viewers, it was simply a pleasant news story.
+
+For eleven-year-old Luke and Leia Skywalker, it was the most exciting thing they had seen all week.
+
+"We should go," Luke immediately declared.
+
+Leia, who usually considered things more carefully, surprised everyone by agreeing almost instantly.
+
+"It only happens every forty-two years."
+
+Padmé laughed. "You've already researched it?"
+
+Leia looked mildly offended.
+
+"Of course."
+
+Within days, the Skywalkers had contacted Mandalore.
+
+The response there was mixed.
+
+Ahsoka liked the idea immediately.
+
+Lux thought it sounded wonderful.
+
+Mark and Luna, now two years old, mostly responded by trying to climb furniture while the adults discussed logistics.
+
+"They're probably too young to remember much," Lux admitted.
+
+"But they might still enjoy it," Ahsoka said.
+
+"And it would be something different."
+
+Satine was less convinced.
+
+"Crowded deserts full of strangers from across the galaxy?"
+
+"That's generally what festivals are," Obi-Wan observed.
+
+Satine gave him a look.
+
+Then Obi-Wan added the argument that ultimately won the debate.
+
+"It only happens every forty-two years."
+
+"So?"
+
+"If we miss this one, the next is in 35 ABY."
+
+Satine paused.
+
+Obi-Wan continued.
+
+"We'll be ninety-two."
+
+That produced a much longer pause.
+
+"...that's a good point."
+
+"Thank you."
+
+"We're still not riding any suspicious local animals."
+
+"I wasn't planning to."
+
+"You absolutely were."
+
+In the end, Satine agreed.
+
+Before departing, she entrusted day-to-day leadership of Mandalore to Bo-Katan.
+
+The conversation reportedly ended with:
+
+"Please don't ruin the planet while I'm gone."
+
+"I won't."
+
+"That's somehow not reassuring."
+
+When the time came, the Skywalkers traveled from Coruscant to Mandalore first.
+
+Luke and Leia immediately disappeared to find Mark and Luna.
+
+R2-D2 and C-3PO accompanied them as always.
+
+Threepio spent most of the boarding process attempting to keep the younger children away from important ship systems while R2 enthusiastically encouraged exactly the opposite behavior.
+
+Eventually everyone was aboard:
+
+Obi-Wan and Satine.
+
+Ahsoka and Lux.
+
+Mark and Luna.
+
+Anakin and Padmé.
+
+Luke and Leia.
+
+R2-D2 and C-3PO.
+
+Together they set course for Pasaana.
+
+The journey itself was lively.
+
+Luke spent much of it asking Obi-Wan questions about ancient Jedi history.
+
+Leia alternated between discussing politics with Padmé and helping entertain Mark and Luna.
+
+Threepio worried about travel schedules.
+
+R2 ignored him.
+
+Anakin spent a surprisingly large amount of time trying to teach the twins simple Force exercises while Padmé repeatedly reminded him they were still children.
+
+Then they arrived.
+
+Pasaana was crowded beyond anything they expected.
+
+Ships filled landing areas as far as they could see.
+
+Visitors arrived from every corner of the galaxy: Core Worlds, Mid Rim colonies, Expansion Region settlements, Outer Rim frontier communities, and places many of them had never even heard of.
+
+Colorful banners stretched across desert valleys.
+
+Music drifted through the air constantly.
+
+The entire world seemed alive.
+
+Anakin stepped down the ramp, looked across the endless dunes, and immediately frowned.
+
+"It's all sand."
+
+Ahsoka burst out laughing.
+
+Padmé rolled her eyes.
+
+Anakin crossed his arms.
+
+"I still don't like sand."
+
+Threepio nodded vigorously.
+
+"I must concur, Master Anakin. Sand infiltration remains one of the most persistent maintenance challenges faced by protocol droids."
+
+R2 emitted a series of noises that sounded suspiciously like mockery.
+
+Before Anakin could respond, however, a Dug visitor from Malastare spotted him.
+
+The Dug froze.
+
+Then pointed.
+
+Then hurried over.
+
+"You're Anakin Skywalker!"
+
+Anakin blinked.
+
+"Yes?"
+
+"The podracer!"
+
+Several nearby visitors immediately turned around.
+
+Within minutes, Anakin somehow found himself trapped in an enthusiastic discussion about podracing history with a growing crowd of strangers.
+
+Padmé watched the situation unfold.
+
+"Should we help him?"
+
+Obi-Wan looked toward the increasingly animated conversation.
+
+"No."
+
+The rest of the group dispersed through the festival.
+
+The Aki-Aki proved welcoming and delighted by the enormous turnout. Visitors shared stories, traditions, music, and food from all across the galaxy.
+
+Luke and Leia spent hours exploring.
+
+Mark and Luna chased colorful kites across the sand while Lux followed closely behind.
+
+Ahsoka watched them run beneath a bright desert sky and felt something she had struggled to find during much of the previous decade.
+
+Peace.
+
+Real peace.
+
+Not merely the absence of war.
+
+The presence of joy.
+
+The festival itself was everything people promised.
+
+Music echoed through vast gathering grounds.
+
+Colorful streamers and kites filled the sky.
+
+Families from countless worlds celebrated together.
+
+The group sampled local foods, some excellent and some questionable.
+
+Obi-Wan quietly discovered several varieties he genuinely enjoyed.
+
+Satine pretended not to notice when he returned for seconds.
+
+Padmé spent part of the day discussing local governance and culture with Aki-Aki organizers.
+
+"This is fascinating," she remarked afterward.
+
+"What is?" Leia asked.
+
+"Pasaana."
+
+Padmé gestured around them.
+
+"It's part of the Expansion Region. Not as heavily urbanized as the Core Worlds. Not as isolated as the Outer Rim."
+
+She smiled.
+
+"Places like this often preserve very distinct local cultures. They don't get absorbed into galactic sameness quite as easily."
+
+Leia considered that thoughtfully.
+
+Later that evening, HoloNet broadcasts covering the festival announced record attendance.
+
+The presenters cited extensive promotion efforts throughout the galaxy and highlighted the unprecedented number of offworld visitors.
+
+The camera swept across massive crowds stretching into the distance.
+
+Among them, unnoticed by most viewers, stood Jedi, Dabi, senators, Mandalorians, former clone troopers, Aki-Aki locals, and families from dozens of worlds all celebrating together.
+
+No battles.
+
+No Sith.
+
+No invasions.
+
+Just people.
+
+When the festival finally ended and the group returned home—to Coruscant, to Mandalore, and to their various responsibilities—they found themselves carrying something unexpected back with them.
+
+Gratitude.
+
+The older generation felt it most strongly.
+
+Anakin remembered growing up as a slave on Tatooine.
+
+Padmé remembered Naboo under occupation.
+
+Obi-Wan remembered the Clone Wars.
+
+Ahsoka remembered nearly losing herself.
+
+Satine remembered decades spent trying to keep Mandalore from destroying itself.
+
+To stand together on a distant desert world celebrating peacefully with strangers would once have seemed impossible.
+
+Yet here they were.
+
+Even Mark and Luna seemed changed.
+
+They were far too young to understand politics, history, or the significance of the moment. They would remember only fragments: bright colors, strange music, warm sand, and the feeling of being surrounded by people laughing.
+
+But perhaps that was enough.
+
+Because for their generation, peace was not a hard-won miracle.
+
+It was normal.
+
+And everyone who had fought, suffered, compromised, failed, learned, and rebuilt over the previous decades silently hoped it would stay that way.
