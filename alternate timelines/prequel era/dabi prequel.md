@@ -5464,6 +5464,10 @@ The galaxy moved on uneasily.
 
 **[Insert Interlude A2.4.2 Here]**
 
+*(6 BBY)*
+
+**[Insert Interlude A2.4.3 Here]**
+
 *(4 BBY)*
 
 And amid all of it, Mark and Luna grew.
@@ -6394,3 +6398,281 @@ Because for their generation, peace was not a hard-won miracle.
 It was normal.
 
 And everyone who had fought, suffered, compromised, failed, learned, and rebuilt over the previous decades silently hoped it would stay that way.
+
+---
+
+### Interlude A2.4.3
+
+In 6 BBY, one of the more unusual diplomatic conversations of Chancellor Padmé Amidala's tenure began with a routine holocall and ended with a family argument.
+
+Padmé was reviewing budget proposals in her Coruscant office when a representative of the Corporate Sector Authority appeared on the holoprojector.
+
+The CSA official was polite, professional, and immediately suspicious in the way many corporate executives tended to be.
+
+"Chancellor Amidala," he began, "the Corporate Sector Authority wishes to inquire about the Republic's opinion regarding a potential development project on Cantonica."
+
+Padmé already had a bad feeling.
+
+"What kind of development project?"
+
+"A podracing arena."
+
+There was a pause.
+
+Then another.
+
+Padmé slowly lowered the datapad she had been reading.
+
+"A podracing arena."
+
+"Yes."
+
+"Beside the existing fathier racetracks."
+
+"Correct."
+
+Padmé folded her hands.
+
+"Podracing is illegal within the Republic."
+
+The CSA representative smiled politely.
+
+"Fortunately, Cantonica is not within Republic jurisdiction."
+
+"Then why are you calling me?"
+
+"We value positive relations with the Republic and wished to hear your government's perspective."
+
+Padmé stared at him.
+
+"If you're not going to follow Republic law regardless, then feel free to build it. Just don't expect Republic funding."
+
+The representative looked mildly amused.
+
+"We have no intention of requesting Republic funding."
+
+"Good."
+
+"We possess more than sufficient capital ourselves."
+
+Before Padmé could continue, another voice entered the conversation.
+
+"That's actually a fantastic idea."
+
+Padmé closed her eyes.
+
+Anakin Skywalker had been sitting on a nearby couch the entire time.
+
+The CSA representative brightened immediately.
+
+"Master Skywalker."
+
+"Have you seen the old Malastare circuits?" Anakin asked enthusiastically. "Or the Boonta Eve routes on Tatooine? Podracing's incredible."
+
+Padmé looked as though she was reconsidering several life decisions.
+
+The CSA representative wisely chose not to interrupt.
+
+By the time the call ended, Anakin had spent several minutes explaining the cultural significance of podracing while Padmé repeatedly reminded everyone involved that she was still Chancellor of the Republic.
+
+The moment the holoprojector switched off, the argument began.
+
+"You just undermined the official position of the Republic."
+
+"I expressed a personal opinion."
+
+"You expressed it during an official government call."
+
+"I didn't know it was official."
+
+"You literally heard me say 'Chancellor Amidala.'"
+
+Anakin considered this.
+
+"That's not conclusive."
+
+Padmé stared at him.
+
+Luke and Leia, who had unfortunately overheard the entire exchange, immediately sided with their father.
+
+This was not surprising.
+
+Over the years Anakin had told them countless stories about podracing on Tatooine. To Luke especially, the stories sounded like the greatest adventures imaginable.
+
+"Dad's right," Luke declared.
+
+"Podracing sounds amazing," Leia agreed.
+
+Padmé looked betrayed.
+
+"You're both supposed to support responsible government."
+
+"We support exciting government," Luke replied.
+
+Anakin looked extremely pleased.
+
+Bolstered by his newfound political coalition, he pressed his advantage.
+
+"Maybe we should legalize podracing in the Republic."
+
+Padmé sighed deeply.
+
+"That would have to go through the Senate."
+
+The answer was less an argument than a strategic withdrawal.
+
+Anakin interpreted it as encouragement.
+
+Padmé interpreted it as escaping the conversation.
+
+Several months later, the arena was completed.
+
+The Corporate Sector Authority spared no expense.
+
+Built near Canto Bight's famous fathier racing facilities, the new circuit became one of the most expensive sporting venues in the galaxy almost overnight. Corporate sponsors poured credits into the project. Wealthy investors arrived from every corner of known space.
+
+The grand opening race became a major media event.
+
+Naturally, Anakin wanted to attend.
+
+Naturally, Padmé resisted.
+
+"I am the Chancellor of the Republic."
+
+"So?"
+
+"So it will look like I'm endorsing podracing."
+
+"You'd just be watching."
+
+"It will absolutely be interpreted politically."
+
+Anakin leaned back casually.
+
+"You could always pretend to be a handmaiden or something."
+
+A cushion struck him directly in the face.
+
+Luke and Leia laughed so hard neither could speak for nearly a minute.
+
+Eventually, after much discussion and several more thrown cushions, Padmé agreed to attend openly.
+
+"If anyone asks," she warned, "I'm there as a private citizen."
+
+"You're the Chancellor."
+
+"I know."
+
+The trip to Cantonica proved memorable almost immediately.
+
+Canto Bight itself was exactly as advertised: extravagant, wealthy, glamorous, and almost absurdly determined to demonstrate how wealthy and glamorous it was.
+
+Luke spent most of the arrival process staring at luxury yachts.
+
+Leia spent it judging the architecture.
+
+Anakin spent it trying to get to the racetrack as quickly as possible.
+
+The race itself was spectacular.
+
+Racers arrived from across the galaxy. Massive sponsorship banners covered nearly every visible surface. Commentators spoke excitedly over roaring engines while enormous crowds packed the stands.
+
+The winner ended up being a prominent Dug racer from Malastare.
+
+Not Sebulba, whose name still appeared frequently in racing discussions despite being sidelined by a recent injury sustained during another competition.
+
+The victorious Dug received thunderous applause.
+
+Anakin loved every second of it.
+
+Padmé spent much of the race studying the business arrangements around her.
+
+"I still think this entire city is ridiculous."
+
+"It is not ridiculous."
+
+"It absolutely is."
+
+"It's beautiful."
+
+"It's a money laundering scheme with decorative fountains."
+
+Anakin laughed.
+
+Padmé pointed toward a cluster of corporate executives celebrating nearby.
+
+"Look at them."
+
+"They seem happy."
+
+"They seem taxable."
+
+Afterward, Luke and Leia successfully persuaded their parents to spend additional time exploring the city.
+
+The family stayed overnight in one of Canto Bight's famous luxury hotels.
+
+Padmé remained suspicious of the entire establishment.
+
+The next day they attended a fathier race.
+
+This immediately sparked a new debate.
+
+Luke maintained that podracing was clearly superior.
+
+Leia argued that fathier racing involved actual strategy rather than simply surviving impossible speeds.
+
+Luke called that unfair.
+
+Leia called that accurate.
+
+The discussion continued for hours.
+
+Meanwhile Padmé developed increasingly strong opinions about Cantonica itself.
+
+As their transport prepared to depart, she summarized her thoughts.
+
+"Canto Bight is the Outer Rim pretending to be the Core Worlds."
+
+Anakin looked confused.
+
+"What does that mean?"
+
+"It means they're doing exactly what places like Tatooine do."
+
+"Tatooine has podracing."
+
+"That's not my point."
+
+She gestured toward the city.
+
+"Gambling. Speculation. Betting. People making fortunes from other people's risk-taking."
+
+"Without the violence," Anakin pointed out.
+
+"Less visible violence."
+
+"That's an improvement."
+
+Padmé crossed her arms.
+
+"The Corporate Sector Authority is still just a more sophisticated version of the Trade Federation."
+
+Anakin glanced out the viewport one last time.
+
+"I liked the podrace."
+
+"I know."
+
+"It was really good."
+
+"I know."
+
+Luke immediately agreed.
+
+Leia remained unconvinced and continued defending fathier racing all the way back to Coruscant.
+
+By the time they landed, the debate had become so detailed that Padmé and Anakin had stopped trying to mediate entirely.
+
+Somewhere in the galaxy, the Corporate Sector Authority celebrated another successful tourism event.
+
+And somewhere else, Chancellor Padmé Amidala quietly added "podracing legalization proposal" to the long list of things she hoped the Senate would never seriously bring to a vote.
