@@ -6403,6 +6403,8 @@ And everyone who had fought, suffered, compromised, failed, learned, and rebuilt
 
 ### Interlude A2.4.3
 
+*(6 BBY)*
+
 In 6 BBY, one of the more unusual diplomatic conversations of Chancellor Padmé Amidala's tenure began with a routine holocall and ended with a family argument.
 
 Padmé was reviewing budget proposals in her Coruscant office when a representative of the Corporate Sector Authority appeared on the holoprojector.
