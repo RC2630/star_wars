@@ -34,4 +34,5 @@ here are some things that you can compare (not exhaustive; you can add more):
 - how was palpatine revealed as darth sidious
 - the timing in the big duels: does cyber maul die first or does sidious die first?
 - who becomes the new chancellor at the end
+- who raised anakin growing up? who / which institution (if any) trained anakin in the force?
 - remember this is not exhaustive and you should add more points of comparison as you see fit
