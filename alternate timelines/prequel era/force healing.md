@@ -300,7 +300,7 @@ The former Sith lord had changed since Naboo. Years of rage and survival had sha
 
 Obi-Wan was captured quickly after entering the palace.
 
-They brought him bound before the throne room while Satine struggled helplessly against guards nearby. Maul paced slowly before them with the darksaber in hand.
+They brought him bound before the throne room while Satine struggled helplessly against guards nearby. Maul paced slowly before them with the Darksaber in hand.
 
 “You survive everything, Kenobi,” Maul said softly. “Master after master. Friend after friend. Yet still the Force leaves you alive.”
 
@@ -310,7 +310,7 @@ Maul smiled faintly.
 
 “No. You simply haven’t understood the lesson yet.”
 
-Then he turned and drove the darksaber through Satine’s abdomen.
+Then he turned and drove the Darksaber through Satine’s abdomen.
 
 The sound Obi-Wan made was not a scream.
 
@@ -348,7 +348,7 @@ Maul’s eyes narrowed.
 
 He struck immediately.
 
-The darksaber crashed against the shield and rebounded violently.
+The Darksaber crashed against the shield and rebounded violently.
 
 The chamber shook.
 
@@ -424,7 +424,7 @@ Satine survived.
 
 But the damage was irreversible.
 
-The darksaber had destroyed too much tissue along her spine. Even advanced reconstruction could not fully restore mobility. When Satine finally awakened days later, medical droids explained gently that she would require a repulsorlift hoverchair permanently.
+The Darksaber had destroyed too much tissue along her spine. Even advanced reconstruction could not fully restore mobility. When Satine finally awakened days later, medical droids explained gently that she would require a repulsorlift hoverchair permanently.
 
 Obi-Wan sat beside her in silence for a long time after the doctors left.
 
@@ -1228,7 +1228,7 @@ But beneath the warmth remained a harder truth neither could escape.
 
 Satine still suffered.
 
-The hoverchair gave her mobility, and she refused to let others pity her, but pain lingered constantly beneath the surface. Some mornings she woke unable to move comfortably at all. Certain injuries the darksaber inflicted never truly stopped burning.
+The hoverchair gave her mobility, and she refused to let others pity her, but pain lingered constantly beneath the surface. Some mornings she woke unable to move comfortably at all. Certain injuries the Darksaber inflicted never truly stopped burning.
 
 And Obi-Wan could not accept that as final.
 
@@ -1254,7 +1254,7 @@ Maul descended upon Mandalore at the head of a brutal but comparatively small fo
 
 It was vengeance.
 
-And at his side he carried the darksaber once more.
+And at his side he carried the Darksaber once more.
 
 The fighting across Sundari became savage but controlled. Mandalore had prepared exactly for this moment. Defense batteries locked down major transit routes while Bo-Katan’s forces isolated Maul’s landing zones before his followers could spread chaos through civilian sectors.
 
@@ -1270,7 +1270,7 @@ The city around them burned with reflected firelight while Mandalorian gunships 
 
 Maul ignited both weapons simultaneously.
 
-The darksaber hissed to life in one hand.
+The Darksaber hissed to life in one hand.
 
 His double-bladed crimson lightsaber erupted in the other.
 
@@ -1326,7 +1326,7 @@ Years of fear transformed into focus. Every nightmare about losing Satine. Every
 
 All of it converged here.
 
-Finally Maul lunged too aggressively with the darksaber.
+Finally Maul lunged too aggressively with the Darksaber.
 
 Obi-Wan pivoted.
 
@@ -1338,7 +1338,7 @@ Silence fell across the plaza.
 
 Maul staggered backward, staring downward in disbelief.
 
-The darksaber slipped from his grasp and clattered across the stone.
+The Darksaber slipped from his grasp and clattered across the stone.
 
 For a moment the hatred in his eyes faded, replaced by exhaustion deeper than pain.
 
@@ -1358,7 +1358,7 @@ Then Darth Maul died at last beneath Mandalorian skies.
 
 The war he began decades earlier finally ended with him.
 
-Obi-Wan stood slowly afterward and picked up the darksaber.
+Obi-Wan stood slowly afterward and picked up the Darksaber.
 
 Around him, Mandalorian warriors knelt.
 
@@ -1426,7 +1426,7 @@ The procedure took place privately within the palace medical chamber.
 
 No crowds. No ceremony.
 
-Only Obi-Wan, Satine, a handful of medical droids, and the darksaber resting between them.
+Only Obi-Wan, Satine, a handful of medical droids, and the Darksaber resting between them.
 
 Satine positioned herself upright from her hoverchair as Obi-Wan steadied his breathing.
 
@@ -1444,7 +1444,7 @@ Obi-Wan’s hands trembled only once before he steadied them completely. He posi
 
 Satine nodded once.
 
-Obi-Wan drove the darksaber through her body.
+Obi-Wan drove the Darksaber through her body.
 
 Satine cried out in agony, gripping the chair hard enough to crack the armrests. Fresh pain exploded through old trauma all at once. Tears streamed down her face instantly.
 
@@ -1456,7 +1456,7 @@ The healing state overtook him completely.
 
 He saw the old wound as it truly existed—not merely flesh damaged, but a moment frozen inside Satine’s body and spirit. The injury had never fully ended. Part of her remained trapped inside that throne room with Maul standing over her.
 
-Carefully, impossibly carefully, Obi-Wan began withdrawing the darksaber backward along the exact path it had originally traveled.
+Carefully, impossibly carefully, Obi-Wan began withdrawing the Darksaber backward along the exact path it had originally traveled.
 
 As the blade moved, the Force flowed behind it.
 
@@ -1476,7 +1476,7 @@ Scar tissue vanished beneath the retreating blade. Nerve damage reformed. Destro
 
 Obi-Wan focused so deeply he barely breathed.
 
-Finally the darksaber cleared her body completely.
+Finally the Darksaber cleared her body completely.
 
 The wound was gone.
 
@@ -1488,7 +1488,7 @@ Satine collapsed forward into Obi-Wan’s arms shaking violently while medical d
 
 Every reading came back normal.
 
-Obi-Wan deactivated the darksaber slowly.
+Obi-Wan deactivated the Darksaber slowly.
 
 “Satine…” he whispered.
 
@@ -1554,7 +1554,7 @@ But almost no one believed it should remain unchanged either.
 
 —
 
-The darksaber became Obi-Wan’s problem almost immediately.
+The Darksaber became Obi-Wan’s problem almost immediately.
 
 At first he simply intended to lock the weapon away somewhere secure and never think about it again. To him, it was less a symbol of leadership than an extremely traumatic piece of metal associated with Maul ruining his life repeatedly.
 
@@ -1562,7 +1562,7 @@ Unfortunately, Mandalorians had opinions.
 
 Very strong opinions.
 
-The fact that Obi-Wan defeated Maul in direct combat while Maul wielded the darksaber triggered ancient cultural traditions many clans still took seriously. Within months, rumors spread through Mandalorian space referring to Obi-Wan as Mand’alor.
+The fact that Obi-Wan defeated Maul in direct combat while Maul wielded the Darksaber triggered ancient cultural traditions many clans still took seriously. Within months, rumors spread through Mandalorian space referring to Obi-Wan as Mand’alor.
 
 This horrified Obi-Wan personally.
 
@@ -1588,7 +1588,7 @@ To many Mandalorians, this accidentally made him ideal leadership material.
 
 The compromise that eventually emerged was awkward but functional: Satine remained ruler of Mandalore politically, while Obi-Wan became an unofficial symbolic figure associated with the defense and unity of the planet.
 
-The darksaber itself stayed in his possession.
+The Darksaber itself stayed in his possession.
 
 Mostly because nobody else could convince him to hand it over safely.
 
@@ -1696,7 +1696,7 @@ The joke happened during dinner.
 
 Which somehow made it worse.
 
-Years had passed since Satine’s healing, enough that the trauma surrounding the darksaber no longer dominated every conversation involving it. Obi-Wan had even developed the ability to occasionally speak about the entire ordeal without looking emotionally devastated afterward.
+Years had passed since Satine’s healing, enough that the trauma surrounding the Darksaber no longer dominated every conversation involving it. Obi-Wan had even developed the ability to occasionally speak about the entire ordeal without looking emotionally devastated afterward.
 
 This proved dangerous.
 
@@ -1706,7 +1706,7 @@ The conversation itself had nothing to do with Maul initially. They were discuss
 
 Without thinking, Obi-Wan replied:
 
-“Well, to be fair, you are one of the few people qualified to compare being stabbed by the darksaber twice.”
+“Well, to be fair, you are one of the few people qualified to compare being stabbed by the Darksaber twice.”
 
 Silence.
 
