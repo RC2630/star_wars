@@ -1685,7 +1685,7 @@ Leia grabbed his arm and pulled him upright.
 
 “We can discuss it later.”
 
-Luke Skywalker appeared in the shattered doorway moments later, black robes sweeping behind him. R2-D2 rolled beside him while Chewbacca, who had just been freed by Luke a few moments ago, barreled into the chamber with a roaring Wookiee battle cry.
+Luke Skywalker appeared in the shattered doorway moments later, black robes sweeping behind him. R2-D2 rolled beside him while Chewbacca, newly freed from captivity by Luke, barreled into the chamber with a roaring Wookiee battle cry.
 
 Luke took one look at Jabba’s bisected corpse.
 
