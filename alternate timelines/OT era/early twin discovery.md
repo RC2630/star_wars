@@ -1380,13 +1380,13 @@ And when it did, both Jedi twins would be ready.
 
 # Part 4
 
-The moons of Tatooine hung low over the Dune Sea as a lone figure approached Jabba the Hutt’s palace.
+The moons of Tatooine hung low over the Dune Sea as a lone figure approached Jabba the Hutt’s palace, dragging a restrained Wookiee behind her.
 
 Massive stone walls rose from the desert like the remains of some ancient beast half-buried in sand. Torchfire flickered along the battlements. Somewhere deep within the fortress came the muffled echo of music, drunken laughter, and creatures growling in chains.
 
 The armored bounty hunter paused before the great metal gate.
 
-Two GAMORREAN GUARDS lowered their axes suspiciously.
+Two Gamorrean guards lowered their axes suspiciously.
 
 The disguised figure spoke through a distorted voice filter.
 
@@ -1404,9 +1404,9 @@ The protocol droid translated.
 
 “His Excellency wishes to know your business.”
 
-The bounty hunter gestured toward the carbonite slab hauled in behind them.
+The bounty hunter gestured toward the restrained Wookiee behind her.
 
-“I bring Captain Solo.”
+“I bring Chewbecca the Wookiee.”
 
 A ripple of excitement passed through the court.
 
@@ -1420,7 +1420,7 @@ Even after all this time, seeing him like that struck her harder than she expect
 
 Jabba barked orders in Huttese. Payment was arranged. The disguised Leia accepted the bounty with calculated calm while silently counting guards, exits, weapons, firing angles.
 
-Everything Luke had taught her flowed instinctively now:
+Everything Yoda had taught her flowed instinctively now:
 awareness,
 patience,
 control.
@@ -1446,7 +1446,7 @@ At last she reached the carbon-freezing chamber.
 
 Han Solo’s slab stood upright against the wall.
 
-Leia removed her helmet.
+Leia loosened her helmet.
 
 Cool air touched her face.
 
@@ -1484,7 +1484,7 @@ Han frowned weakly.
 
 “Who are you?”
 
-Leia smiled despite herself and lifted away the helmet.
+Leia smiled despite herself and lifted away the helmet completely.
 
 “Someone who loves you.”
 
@@ -1540,7 +1540,7 @@ Jabba’s heavy voice boomed again.
 
 The court laughed cruelly as Leia was shoved forward.
 
-“You have powerful friends,” Leia warned coldly. “You’re gonna regret this.”
+“We have powerful friends,” Leia warned coldly. “You’re gonna regret this.”
 
 Jabba’s massive tongue lolled as he chuckled.
 
@@ -1685,7 +1685,7 @@ Leia grabbed his arm and pulled him upright.
 
 “We can discuss it later.”
 
-Luke Skywalker appeared in the shattered doorway moments later, black robes sweeping behind him. R2-D2 rolled beside him while Chewbacca barreled into the chamber with a roaring Wookiee battle cry.
+Luke Skywalker appeared in the shattered doorway moments later, black robes sweeping behind him. R2-D2 rolled beside him while Chewbacca, who had just been freed by Luke a few moments ago, barreled into the chamber with a roaring Wookiee battle cry.
 
 Luke took one look at Jabba’s bisected corpse.
 
