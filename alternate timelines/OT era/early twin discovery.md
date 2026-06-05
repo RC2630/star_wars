@@ -1406,7 +1406,7 @@ The protocol droid translated.
 
 The bounty hunter gestured toward the restrained Wookiee behind her.
 
-“I bring Chewbecca the Wookiee.”
+“I bring Chewbacca the Wookiee.”
 
 A ripple of excitement passed through the court.
 
