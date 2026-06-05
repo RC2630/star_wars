@@ -1725,7 +1725,7 @@ And somewhere, waiting at the center of it all, sat Emperor Palpatine.
 
 Before confronting any of that, however, Luke and Leia had one promise left to fulfill.
 
----
+—
 
 Dagobah had not changed.
 
@@ -1841,7 +1841,7 @@ The twins stood in silence.
 
 A Jedi Master who had lived for centuries had become one with the Force.
 
----
+—
 
 Not long afterward, the Alliance received its greatest opportunity.
 
@@ -1861,7 +1861,7 @@ And somehow, Darth Vader and the Emperor would have to be confronted.
 
 Luke and Leia both understood who would handle the third objective.
 
----
+—
 
 The moon of Endor was beautiful.
 
@@ -1915,7 +1915,7 @@ Neither turning away.
 
 Without a word, Vader ordered them brought aboard the Death Star.
 
----
+—
 
 The Emperor was waiting.
 
@@ -1963,7 +1963,7 @@ Palpatine noticed.
 
 And smiled wider.
 
----
+—
 
 Far below, the battle began.
 
@@ -1981,7 +1981,7 @@ At the same time, Han's strike team launched its assault against the shield gene
 
 Everything depended on success.
 
----
+—
 
 Inside the throne room, the final confrontation began.
 
@@ -2243,7 +2243,7 @@ The Emperor laughed.
 
 And Darth Vader watched.
 
----
+—
 
 Across the moon of Endor, Han Solo's team finally succeeded.
 
@@ -2255,7 +2255,7 @@ Fire consumed the bunker.
 
 The protective barrier around the Death Star vanished.
 
----
+—
 
 In space, Admiral Ackbar immediately recognized the opportunity.
 
@@ -2267,7 +2267,7 @@ Fighters followed.
 
 The final attack run began.
 
----
+—
 
 Inside the throne room, Luke and Leia continued to suffer beneath the Emperor's lightning.
 
@@ -2319,7 +2319,7 @@ The Emperor was dead.
 
 The Sith were finished.
 
----
+—
 
 Moments later, the Death Star itself began to die.
 
@@ -2347,7 +2347,7 @@ The battle was over.
 
 The Empire had lost.
 
----
+—
 
 Back on Endor, Luke and Leia carried Vader from the shuttle.
 
@@ -2439,7 +2439,7 @@ Their father was dead.
 
 And somehow, despite everything, redeemed.
 
----
+—
 
 That night the forests of Endor became a celebration unlike any the galaxy had ever seen.
 
