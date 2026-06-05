@@ -2496,3 +2496,431 @@ Then slowly faded into the Cosmic Force.
 The night continued.
 
 And for the first time in a very long time, the future seemed bright.
+
+---
+
+# Epilogue
+
+The celebration on Endor lasted for days.
+
+For most of the galaxy, it was remembered as the moment the Empire lost its Emperor and its greatest weapon.
+
+For the people who had actually been there, however, the memories were more personal.
+
+Friends reunited.
+
+Wars survived.
+
+Lives reclaimed.
+
+And, in some cases, wounds finally noticed.
+
+—
+
+Han first realized something was wrong when he embraced Leia during the celebration.
+
+At first he could not identify it.
+
+Leia looked healthy.
+
+She was smiling.
+
+She was walking normally.
+
+Yet something felt off.
+
+A stiffness.
+
+An exhaustion hidden beneath determination.
+
+A faint tremor she seemed to be consciously suppressing.
+
+Later, after the celebrations had quieted somewhat, Leia described everything that had happened aboard the Death Star.
+
+The duel.
+
+The Emperor.
+
+The Force lightning.
+
+Han listened carefully.
+
+Then his expression changed.
+
+"You got hit by what?"
+
+Leia blinked.
+
+"The Emperor's lightning."
+
+Han looked toward Luke.
+
+"You too?"
+
+Luke nodded.
+
+Han stared at both of them.
+
+"You two are going to a medical facility."
+
+Leia immediately objected.
+
+"I'm fine."
+
+"No."
+
+"Han—"
+
+"No."
+
+Luke tried.
+
+"We've had worse."
+
+Han pointed at him.
+
+"That sentence is exactly why I'm not taking medical advice from either of you."
+
+—
+
+Within hours, both Jedi found themselves under the supervision of Rebel physicians and several highly concerned medical droids.
+
+The examinations quickly confirmed Han's suspicions.
+
+The Force lightning had left significant injuries.
+
+Not necessarily obvious ones.
+
+But real ones.
+
+Nerve damage.
+
+Cellular trauma.
+
+Exhaustion that neither twin had fully appreciated.
+
+Both were ordered into bacta treatment.
+
+Neither enjoyed it.
+
+Leia hated being immobilized.
+
+Luke complained constantly about boredom.
+
+Han enjoyed reminding them that he had been right.
+
+Several days later the doctors finally released them.
+
+The damage had largely healed.
+
+The twins were cleared to resume normal activity.
+
+Han celebrated his victory by refusing to let either of them argue about medical treatment ever again.
+
+The twins ignored this declaration immediately.
+
+—
+
+Not every gathering on Endor was celebratory.
+
+One ceremony carried a much heavier mood.
+
+Anakin Skywalker's funeral.
+
+The decision had not been simple.
+
+Many Rebels had suffered directly because of Darth Vader.
+
+Many had lost friends.
+
+Family.
+
+Entire worlds.
+
+Leia herself had spent years hating him.
+
+No one expected forgiveness.
+
+No one expected forgetting.
+
+Yet everyone present understood another truth.
+
+In the end, Vader had destroyed the Emperor.
+
+Without that act, the Battle of Endor would almost certainly have ended in disaster.
+
+The Rebel Alliance would have died.
+
+The Empire would have endured.
+
+So a funeral was held.
+
+Not for Darth Vader.
+
+For Anakin Skywalker.
+
+Jedi Knight.
+
+Father.
+
+The man who had returned in the final moments of his life.
+
+Luke and Leia stood together throughout the ceremony.
+
+Han stood nearby.
+
+Chewbacca.
+
+Lando.
+
+Mon Mothma.
+
+Pilots.
+
+Soldiers.
+
+Commanders.
+
+People who had once feared Vader more than anyone else in the galaxy.
+
+The mood remained complicated.
+
+Respectful.
+
+Uncertain.
+
+But genuine.
+
+When the ceremony ended, Luke felt a strange sense of completion.
+
+The story that had begun before either twin was born had finally reached its end.
+
+—
+
+Only a few days later, Endor hosted a much happier event.
+
+Han Solo and Leia Organa's wedding.
+
+The contrast with the funeral could not have been greater.
+
+The forest clearing chosen for the ceremony overlooked one of Endor's rivers.
+
+Sunlight filtered through towering trees.
+
+Ewoks decorated the area enthusiastically.
+
+No one was entirely certain what some of the decorations represented.
+
+It seemed impolite to ask.
+
+Luke served as officiant.
+
+A role he took very seriously.
+
+Han immediately regretted allowing it.
+
+"You practiced this speech, didn't you?"
+
+"Of course."
+
+Han groaned.
+
+Leia laughed.
+
+Nearby, Chewbacca rumbled approvingly.
+
+Lando looked far too entertained by the entire situation.
+
+Mon Mothma attended as well, along with many of their closest comrades from the Alliance.
+
+R2-D2 occupied a place of honor.
+
+C-3PO served as translator.
+
+Unfortunately, the Ewoks still regarded him as a divine being.
+
+This complicated matters.
+
+Several times during the ceremony, groups of Ewoks interrupted to bow reverently toward him.
+
+Threepio appeared simultaneously embarrassed and pleased.
+
+"I really wish they wouldn't do that."
+
+The Ewoks ignored him completely.
+
+The ceremony proceeded anyway.
+
+Luke eventually reached the important part.
+
+Han and Leia exchanged vows.
+
+Neither cared much about elaborate speeches.
+
+Neither had ever been particularly formal.
+
+The promises were simple.
+
+Sincere.
+
+Honest.
+
+The sort of promises forged through years of surviving impossible situations together.
+
+When it was finally over, the entire clearing erupted into applause.
+
+Chewbacca's celebratory roar nearly startled several Ewoks into a nearby river.
+
+Han kissed Leia.
+
+The crowd cheered.
+
+Threepio translated the cheering into six different languages before anyone asked him to stop.
+
+—
+
+The war, however, was not finished.
+
+The destruction of the Emperor had changed everything.
+
+But it had not instantly erased the Empire.
+
+Thousands of Imperial ships still existed.
+
+Entire sectors remained under Imperial control.
+
+Governors, admirals, and generals continued fighting.
+
+Mon Mothma acted quickly.
+
+Almost immediately after Endor, she formally proclaimed the New Republic.
+
+The Rebel Alliance became the foundation of a new government.
+
+A government dedicated to replacing Imperial rule.
+
+The struggle continued.
+
+Campaign after campaign followed.
+
+System after system was liberated.
+
+Imperial fleets were driven back.
+
+The New Republic advanced relentlessly.
+
+Victory had become possible.
+
+Now it needed to be secured.
+
+—
+
+Meanwhile, Luke and Leia focused on a different mission.
+
+A promise.
+
+Yoda's final instruction remained with them.
+
+Pass on what you have learned.
+
+The Jedi Order had nearly vanished.
+
+If it remained extinct, the knowledge accumulated over thousands of years would disappear forever.
+
+Neither twin could accept that.
+
+So they began searching.
+
+Ancient archives.
+
+Forgotten temples.
+
+Hidden repositories.
+
+Old records scattered across the galaxy.
+
+Anything connected to the Jedi.
+
+The work was painstaking.
+
+Some discoveries consisted of little more than fragments.
+
+A damaged holocron.
+
+A partial manuscript.
+
+A ruined training site.
+
+Yet each piece mattered.
+
+Slowly, a foundation emerged.
+
+Luke often focused on recovering knowledge.
+
+Leia frequently proved more effective at organizing it.
+
+Together they made a formidable team.
+
+Eventually they began searching for students.
+
+Young people sensitive to the Force.
+
+Individuals who might become the next generation of Jedi.
+
+The project consumed increasing amounts of their time.
+
+Months passed.
+
+The effort grew.
+
+And one day Han found himself watching Leia prepare for yet another expedition connected to rebuilding the Order.
+
+She was discussing ancient Jedi records with Luke.
+
+Again.
+
+Maps covered a nearby table.
+
+Again.
+
+Neither sibling had noticed Han standing there for several minutes.
+
+Again.
+
+Eventually Han folded his arms.
+
+"A few years ago," he said, "I thought I lost Leia to Luke."
+
+Leia looked up.
+
+Luke looked confused.
+
+Han shook his head.
+
+"Turns out instead I lost her to the Jedi."
+
+Leia laughed.
+
+Luke laughed.
+
+Even Han eventually smiled.
+
+Because despite the complaint, he knew exactly why she was doing it.
+
+The galaxy had spent decades under darkness.
+
+The Empire was being defeated.
+
+The Republic was returning.
+
+And somewhere in the future, new Jedi would rise.
+
+Not because of ancient legends.
+
+Not because of forgotten masters.
+
+But because two twins had refused to let hope die.
+
+The children of Anakin Skywalker had inherited a broken galaxy.
+
+Together, they helped rebuild it.
