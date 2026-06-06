@@ -2,7 +2,7 @@
 - a rapid peace treaty was signed between the republic and the CIS, and the republic formally acknowledged and recognized the CIS as an independent, sovereign, legitimate entity with legal jurisdiction over the worlds that it controlled at the moment the treaty was signed. the clone wars were finally over.
 - eventually, the cloning facilities on kamino were shut down.
 - the republic later recognized formal clone rights, and granted personhood to every clone trooper.
-- sweeping reforms of the republic were enacted to prevent another palpatine from ever happening again. stronger limits on power, massive reduction in emergency powers, stronger democratic safeguards.
-- the republic steps into a new bipolar era, with a fragile peace between the republic and the CIS. however, after three years of intense fighting, nobody wants another war soon, giving hope for lasting peace.
+- sweeping reforms of the republic were enacted to prevent another palpatine from ever happening again: stronger limits on power, massive reduction in emergency powers, stronger democratic safeguards.
+- the galaxy steps into a new bipolar era, with a fragile peace between the republic and the CIS. however, after three years of intense fighting, nobody wants another war soon, giving hope for lasting peace.
 - yoda led the jedi order into an era of internal reform, horrified that the entire order had been dragged into a scheme by a sith lord.
 - luke and leia were born on coruscant in this environment (padme survived), and were raised openly in a loving family.
