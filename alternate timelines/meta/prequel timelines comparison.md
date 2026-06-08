@@ -14,6 +14,7 @@ the relevant branches can be found in these markdown files under the `alternate 
 9. empress padme
 10. mace kills sidious (no order 66)
 11. mace kills sidious (order 66)
+12. anakin kills palpatine early
 
 only read and analyze the listed timelines. don't read the others - the rest are not relevant to this discussion.
 
