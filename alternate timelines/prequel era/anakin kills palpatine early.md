@@ -2014,6 +2014,8 @@ The request was granted.
 
 A short time later Anakin Skywalker formally departed the Jedi Order.
 
+**[Insert Council Replacement Interlude Here]**
+
 His place on the Council was subsequently filled by Master Depa Billaba.
 
 A new chapter of his life had begun.
@@ -2207,3 +2209,663 @@ The Republic continued its reforms.
 The Confederacy developed its own future.
 
 And beyond the halls of governments and temples, Anakin and Ahsoka forged a new path of their own—one devoted to helping people, preserving peace, and carrying forward the ideals they both still believed in.
+
+---
+
+# Council Replacement Interlude
+
+The departure of Anakin Skywalker from the Jedi Order left more than an emotional void.
+
+It left a vacant seat on the Jedi High Council.
+
+A replacement would need to be chosen.
+
+Not immediately—the Council had more pressing matters to address in the aftermath of recent events—but eventually the question could no longer be postponed.
+
+One morning, the remaining eleven Council members assembled in the Council Chamber overlooking Coruscant.
+
+Present were Yoda, Obi-Wan Kenobi, Shaak Ti, Coleman Kcaj, Mace Windu, Kit Fisto, Agen Kolar, Saesee Tiin, Ki-Adi-Mundi, Plo Koon, and Stass Allie.
+
+Mace Windu opened the discussion.
+
+"The Council seat vacated by Skywalker remains empty. It is time we determine a successor."
+
+Several Masters nodded.
+
+Yoda folded his hands.
+
+"Candidates, we should identify."
+
+A list was eventually assembled.
+
+Twelve names.
+
+Quinlan Vos.
+
+Kelleran Beq.
+
+Oppo Rancisis.
+
+Eeth Koth.
+
+Cere Junda.
+
+Taron Malicos.
+
+Luminara Unduli.
+
+Jocasta Nu.
+
+Jaro Tapal.
+
+Depa Billaba.
+
+Aayla Secura.
+
+Kirak Infil'a.
+
+The Council agreed to contact each candidate directly.
+
+—
+
+The first conversation was with Quinlan Vos.
+
+Mace appeared via holocommunication.
+
+"Master Vos, the Council is considering candidates for a vacant seat. Would you be interested in serving?"
+
+Quinlan grinned.
+
+"A Council seat?"
+
+"Yes."
+
+"Interesting."
+
+Mace waited.
+
+Quinlan leaned back.
+
+"I'd be interested."
+
+—
+
+Kelleran Beq was next.
+
+"The Council wishes to know whether you would consider serving."
+
+Kelleran smiled politely.
+
+"I'm honored."
+
+"Will you accept consideration?"
+
+Kelleran shook his head.
+
+"No."
+
+"No?"
+
+"My place is with the younglings."
+
+He looked toward a nearby training group.
+
+"I prefer being a teacher rather than a decision maker."
+
+—
+
+Oppo Rancisis listened quietly.
+
+"Would you be willing to return to the Council?"
+
+The former Council member nodded.
+
+"Yes."
+
+No hesitation.
+
+"I would be interested."
+
+—
+
+Eeth Koth's answer came quickly.
+
+"No."
+
+"May we ask why?" Mace said.
+
+"You may."
+
+Eeth crossed his arms.
+
+"I left the Jedi Order after careful consideration. I have not changed my mind."
+
+"The Council respects your decision."
+
+"As I respect yours."
+
+—
+
+Cere Junda listened thoughtfully.
+
+"Council service?" she asked.
+
+"Yes."
+
+Cere smiled faintly.
+
+"I appreciate the confidence."
+
+"But?"
+
+"I am not experienced enough."
+
+"You underestimate yourself."
+
+"Perhaps."
+
+She shook her head.
+
+"Regardless, my answer is no."
+
+—
+
+Taron Malicos laughed.
+
+"The Council?"
+
+"Yes."
+
+"No."
+
+Mace raised an eyebrow.
+
+"No?"
+
+"I prefer action."
+
+Malicos shrugged.
+
+"I am a warrior. Not an administrator."
+
+—
+
+Luminara Unduli listened carefully.
+
+"Would you accept consideration?"
+
+"Yes."
+
+No further explanation was needed.
+
+—
+
+Jocasta Nu looked mildly amused.
+
+"The Council wants me back?"
+
+"The possibility is being considered."
+
+Jocasta smiled.
+
+"No."
+
+"No?"
+
+"The archives are far more interesting."
+
+Mace actually smiled slightly.
+
+"A familiar answer."
+
+"Then you already knew what I would say."
+
+—
+
+Jaro Tapal listened quietly.
+
+"Master Tapal?"
+
+"No."
+
+"May I ask why?"
+
+"My responsibilities already occupy me."
+
+He glanced toward his Padawan.
+
+"I prefer focusing on the field and on training my student."
+
+—
+
+Depa Billaba listened carefully.
+
+A former Council member herself, she understood the significance immediately.
+
+"Would you be interested?"
+
+"Yes."
+
+The answer came without hesitation.
+
+"I would."
+
+—
+
+Aayla Secura looked genuinely surprised.
+
+"The Council is considering me?"
+
+"It is."
+
+Aayla smiled.
+
+"I would be honored."
+
+"So that is a yes?"
+
+"Absolutely."
+
+—
+
+Finally came Kirak Infil'a.
+
+"The Council seeks your answer."
+
+Kirak laughed.
+
+"My answer is no."
+
+"Why?"
+
+"I have never been particularly interested in administration."
+
+The answer ended the matter.
+
+—
+
+After all responses were collected, only five candidates remained.
+
+Quinlan Vos.
+
+Oppo Rancisis.
+
+Luminara Unduli.
+
+Depa Billaba.
+
+Aayla Secura.
+
+The Council invited all five to Coruscant.
+
+One by one, they presented themselves before the eleven Masters.
+
+—
+
+Quinlan Vos spoke first.
+
+Mace gestured toward the center of the chamber.
+
+"You may begin."
+
+Quinlan nodded.
+
+"My view is simple."
+
+The Council listened.
+
+"The Jedi have spent years fighting a war."
+
+Several Masters nodded.
+
+"We need to reconnect with the people of the Republic."
+
+Kit Fisto smiled slightly.
+
+"How?"
+
+"Less time behind desks."
+
+A few Council members exchanged glances.
+
+"More time among ordinary citizens."
+
+Quinlan continued.
+
+"I would also encourage greater flexibility."
+
+Ki-Adi-Mundi raised an eyebrow.
+
+"Flexibility?"
+
+"Not every situation fits neatly within established doctrine."
+
+Mace thanked him after further discussion.
+
+—
+
+Next came Aayla Secura.
+
+"If selected," she said, "I would focus heavily on post-war reconstruction."
+
+Yoda nodded.
+
+"Explain further."
+
+"The galaxy is rebuilding."
+
+Aayla spoke confidently.
+
+"The Jedi should devote greater attention to humanitarian missions."
+
+Plo Koon smiled.
+
+"A worthy goal."
+
+She continued answering questions regarding diplomacy, training, and Jedi responsibilities.
+
+—
+
+Luminara Unduli followed.
+
+Her presentation was calm and measured.
+
+"The Order requires stability."
+
+Several Council members visibly approved.
+
+"The war changed much."
+
+"Indeed," Obi-Wan agreed.
+
+"We should preserve what remains valuable while adapting carefully."
+
+Her answers were thoughtful and disciplined throughout.
+
+—
+
+Oppo Rancisis spoke next.
+
+Unlike the others, he required little introduction.
+
+Many Council members had served beside him for years.
+
+"My priorities remain largely unchanged."
+
+"Which are?" Mace asked.
+
+"Patience."
+
+Several smiles appeared.
+
+"Deliberation."
+
+More smiles.
+
+"And careful consideration before action."
+
+That statement drew a glance from Obi-Wan, who briefly thought of Anakin.
+
+Oppo continued.
+
+"The Jedi Order faces a changing galaxy. Experience and continuity will be important."
+
+—
+
+Finally came Depa Billaba.
+
+The former Council member stood confidently before her old colleagues.
+
+"If selected, I would seek balance."
+
+"Balance?" Shaak Ti asked.
+
+"Between tradition and adaptation."
+
+Several Masters leaned forward.
+
+"The Jedi have learned painful lessons."
+
+Depa's voice remained steady.
+
+"We should not ignore them."
+
+She spoke about improving communication within the Order.
+
+About supporting younger Jedi.
+
+About rebuilding trust throughout the Republic.
+
+Most importantly, she spoke from experience.
+
+Not merely wartime experience.
+
+But personal experience.
+
+The coma that had removed her from service years earlier.
+
+The recovery that followed.
+
+The perspective she had gained since returning to active duty.
+
+When she finished, the Council thanked all five candidates.
+
+The candidates departed.
+
+The doors closed.
+
+Deliberations began.
+
+—
+
+Mace Windu spoke first.
+
+"Thoughts?"
+
+"Strong candidates, all are," Yoda observed.
+
+"Agreed," said Plo Koon.
+
+Ki-Adi-Mundi folded his hands.
+
+"We should begin narrowing the field."
+
+Several Masters nodded.
+
+The first debate centered around Quinlan Vos.
+
+Obi-Wan spoke carefully.
+
+"Vos is unquestionably capable."
+
+"Capable, yes," Agen Kolar agreed.
+
+"But?"
+
+"Unorthodox."
+
+Kit Fisto smiled.
+
+"That has never stopped Quinlan."
+
+"Nor would it stop him now," Saesee Tiin replied.
+
+Discussion continued.
+
+Eventually Mace summarized the emerging consensus.
+
+"Most of us believe he is perhaps too unconventional for Council service."
+
+No major objections emerged.
+
+Quinlan Vos was eliminated.
+
+—
+
+Attention shifted to Aayla Secura.
+
+"A remarkable Jedi," Shaak Ti said.
+
+"Without question," Plo Koon agreed.
+
+"However," Coleman Kcaj added, "she has been a Master for a comparatively short time."
+
+Several nodded.
+
+Mace looked around.
+
+"Experience concerns many of us."
+
+A lengthy discussion followed.
+
+Eventually consensus emerged.
+
+Aayla was eliminated.
+
+—
+
+Three candidates remained.
+
+Luminara Unduli.
+
+Oppo Rancisis.
+
+Depa Billaba.
+
+The discussion became noticeably more serious.
+
+All three possessed strong credentials.
+
+All three enjoyed broad respect.
+
+No obvious weakness existed among them.
+
+For a long time opinions remained divided.
+
+Eventually the conversation focused on experience.
+
+"Luminara has never served on the Council," Saesee Tiin noted.
+
+"True," said Obi-Wan.
+
+"Neither had Skywalker," Kit Fisto pointed out.
+
+"Skywalker's appointment was unusual."
+
+No one disagreed.
+
+Mace considered the matter.
+
+"Luminara is excellent."
+
+"Agreed," said Plo Koon.
+
+"Agreed," echoed Shaak Ti.
+
+Yet gradually a consensus formed.
+
+The remaining two candidates possessed prior Council experience.
+
+That fact carried weight.
+
+Not because of flaws in Luminara.
+
+Simply because Oppo and Depa had already served in the role.
+
+Eventually Luminara was eliminated.
+
+—
+
+Only two names remained.
+
+Oppo Rancisis.
+
+Depa Billaba.
+
+The debate intensified.
+
+For nearly an hour the Council discussed little else.
+
+"Oppo offers continuity," Ki-Adi-Mundi argued.
+
+"He knows the position."
+
+"So does Depa," Obi-Wan replied.
+
+"Oppo's experience is unmatched."
+
+"Depa's experience is substantial as well."
+
+Mace listened carefully.
+
+Yoda spoke rarely.
+
+When he did, everyone listened.
+
+"Much wisdom, Oppo possesses."
+
+Several nodded.
+
+"Much growth, Depa possesses."
+
+Several nodded again.
+
+Arguments continued.
+
+One group favored Oppo's long history and stability.
+
+Another emphasized Depa's recovery, perspective, and relatively recent experience navigating the Order's changing circumstances.
+
+Gradually the balance shifted.
+
+One vote at a time.
+
+One opinion at a time.
+
+Eventually Mace looked around the chamber.
+
+"I believe consensus is forming."
+
+The Masters exchanged glances.
+
+One by one they nodded.
+
+Even those who had favored Oppo seemed willing to accept the outcome.
+
+Finally Yoda spoke.
+
+"Chosen, Depa Billaba should be."
+
+No objections followed.
+
+The decision was made.
+
+—
+
+Later that day, Depa Billaba returned to the Council Chamber.
+
+The eleven Masters awaited her.
+
+Mace Windu rose.
+
+"Master Billaba."
+
+Depa inclined her head.
+
+"The Council has reached a decision."
+
+She remained silent.
+
+"We invite you to return to the Jedi High Council."
+
+For a brief moment, the normally composed Jedi Master appeared genuinely moved.
+
+Then she bowed respectfully.
+
+"I accept."
+
+Yoda smiled.
+
+"Welcome back, Master Billaba."
+
+And so Depa Billaba officially returned to the Jedi High Council, filling the seat left vacant by Anakin Skywalker's departure and becoming once again one of the twelve Masters entrusted with guiding the Jedi Order into a new era.

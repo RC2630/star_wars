@@ -70,7 +70,7 @@ For the first time in years, Qui-Gon felt hope instead of frustration.
 
 *(32 BBY)*
 
-**[Insert Optional Interlude 1.1 Here]**
+**[Insert Interlude 1.1 Here]**
 
 Then, on a world at the edge of Hutt Space, he met a slave boy named Anakin Skywalker.
 
@@ -144,7 +144,7 @@ Qui-Gon said nothing at first.
 
 But as they boarded their ship and left Tatooine behind, he found himself wondering whether the Jedi Order had misunderstood attachment for a thousand years.
 
-**[Insert Optional Interlude 1.2 Here]**
+**[Insert Interlude 1.2 Here]**
 
 They returned to Mandalore together.
 
@@ -348,13 +348,13 @@ There, she found herself spending long evenings in discussion with Dooku.
 
 They spoke endlessly about the Republic’s failures: corruption in the Senate, the growing influence of corporate alliances, entire systems abandoned by distant politicians. By then the Trade Federation and its allies had begun consolidating into something larger, rebranding themselves openly as the Separatist movement.
 
-**[Insert Optional Interlude 2.1 Here]**
+**[Insert Interlude 2.1 Here]**
 
 Padmé opposed them fiercely.
 
 But she understood more of Dooku’s criticism than she wanted to admit.
 
-**[Insert Optional Interlude 2.2 Here]**
+**[Insert Interlude 2.2 Here]**
 
 Then Qui-Gon disappeared investigating a bounty hunter named Jango Fett.
 
