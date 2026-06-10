@@ -232,7 +232,7 @@ Only fear remained.
 
 "You have no right—"
 
-A green blade ignited.
+A turquoise blade ignited.
 
 The lightsaber's hum filled the chamber.
 
@@ -876,7 +876,7 @@ Then Jacen spoke quietly.
 
 Tenel Ka drew her lightsaber.
 
-The green blade ignited between them.
+The turquoise blade ignited between them.
 
 "If necessary," she said, "I will."
 
@@ -2178,7 +2178,7 @@ The Sith Lady finally abandoned all pretense.
 
 Her lightwhip ignited.
 
-The crimson weapon crackled violently.
+The yellow weapon crackled violently.
 
 In response, two lightsabers came alive.
 
@@ -2405,3 +2405,581 @@ Tenel Ka privately agreed with both assessments.
 Whatever Luke had meant, however, one thing was clear.
 
 The next chapter of galactic history had already begun.
+
+---
+
+# Flashback: Han & Isolder Rivalry
+
+Historians who studied the Solo and Hapan royal families often found themselves confronted by an unusual problem.
+
+Many major galactic events were documented extensively.
+
+Wars.
+
+Political treaties.
+
+Military campaigns.
+
+Jedi missions.
+
+Yet buried among those records was something far more difficult to explain.
+
+A rivalry.
+
+Not a political rivalry.
+
+Not a military rivalry.
+
+Not even a particularly serious rivalry.
+
+At least not by the end.
+
+Instead, it was a decades-long contest between Han Solo and Prince Isolder that somehow survived marriages, children, wars, grandchildren, and the passage of more than thirty years.
+
+Nobody could quite explain why.
+
+Least of all the participants themselves.
+
+—
+
+The beginning was well known.
+
+In 8 ABY, after the events on Dathomir, Isolder formally ended his pursuit of Leia Organa Solo.
+
+The matter was settled.
+
+Leia had chosen Han.
+
+Isolder had chosen Teneniel Djo.
+
+Everyone involved moved on.
+
+Or at least, almost everyone.
+
+The trouble began shortly afterward.
+
+The four of them had gathered privately before departing Dathomir.
+
+The atmosphere was relaxed.
+
+The crisis had ended.
+
+Everyone was alive.
+
+For once, things seemed simple.
+
+Then Han made a mistake.
+
+A very Han Solo mistake.
+
+He slapped Isolder on the shoulder.
+
+"Good game."
+
+Isolder blinked.
+
+"What?"
+
+"You know."
+
+Han grinned.
+
+"The whole Leia thing."
+
+Leia immediately buried her face in her hands.
+
+Teneniel sighed.
+
+Han continued.
+
+"I guess that makes the score Han one, Isolder zero."
+
+Isolder stared at him.
+
+"Score?"
+
+"You know."
+
+"No."
+
+Han leaned closer.
+
+"The competition."
+
+"There was no competition."
+
+"There definitely was."
+
+"There absolutely was not."
+
+Han grinned wider.
+
+"Sounds like something somebody who lost would say."
+
+Teneniel later claimed she saw the exact moment Isolder decided vengeance would be necessary.
+
+The prince slowly smiled.
+
+Not a pleasant smile.
+
+A very deliberate smile.
+
+"Enjoy your victory, Solo."
+
+"Oh, I will."
+
+"Because someday I will get even."
+
+Han laughed.
+
+"I'm terrified."
+
+"You should be."
+
+Han laughed even harder.
+
+This turned out to be a mistake.
+
+—
+
+Several years later, Isolder struck back.
+
+The details became legendary.
+
+Not because the scheme itself was especially dangerous.
+
+But because of how absurdly elaborate it was.
+
+Han spent nearly two weeks dealing with increasingly bizarre complications.
+
+Cargo manifests disappeared.
+
+A customs inspection somehow followed him across three star systems.
+
+His favorite sabacc deck vanished and reappeared repeatedly.
+
+One of the Falcon's maintenance records was altered to indicate that the ship technically belonged to a Hapan agricultural cooperative.
+
+Nobody could explain any of it.
+
+Han certainly couldn't.
+
+Eventually he became convinced someone was targeting him.
+
+The mystery ended when he received a personal transmission.
+
+Isolder appeared on the screen.
+
+Perfectly composed.
+
+"Hello, Han."
+
+Han immediately groaned.
+
+"No."
+
+"Yes."
+
+"No."
+
+"Yes."
+
+"You did all this?"
+
+"Every bit of it."
+
+Han stared.
+
+"Why?"
+
+Isolder folded his arms.
+
+"Because now we're even."
+
+There was a long pause.
+
+Then Han realized.
+
+The score.
+
+The ridiculous score.
+
+Years later Isolder would insist the expression on Han's face made the entire operation worthwhile.
+
+Han eventually admitted it probably had.
+
+The score stood at one to one.
+
+Neither intended to stop there.
+
+—
+
+The following decades became increasingly ridiculous.
+
+Initially the rivalry retained traces of genuine competitiveness.
+
+Both men occasionally tried to outmaneuver one another.
+
+Neither trusted the other entirely.
+
+But as years passed, the hostility faded.
+
+The competition remained.
+
+The animosity did not.
+
+Instead, the rivalry evolved into something resembling a permanent practical joke.
+
+Whenever either man discovered an opportunity to score a point, he took it.
+
+No matter how trivial.
+
+No matter how ridiculous.
+
+No matter how little sense it made.
+
+—
+
+One famous incident involved a hunting expedition.
+
+Han successfully tracked and captured a dangerous predator on a remote world.
+
+Before he could celebrate, Isolder produced documentation showing he had successfully tracked the same animal three days earlier.
+
+The argument over who deserved the point lasted six months.
+
+Luke eventually settled the matter by declaring the point invalid.
+
+Both men accused him of bias.
+
+—
+
+Another dispute emerged after a diplomatic summit.
+
+Han accidentally offended three senators.
+
+Isolder offended four.
+
+Han claimed victory because fewer people were angry with him.
+
+Isolder argued that offending more senators demonstrated greater political influence.
+
+Neither position made any sense.
+
+The argument lasted two weeks.
+
+Leia eventually awarded neither side a point.
+
+Both men complained.
+
+—
+
+Soon Leia and Teneniel became involved.
+
+Not willingly.
+
+Simply by proximity.
+
+Han occasionally attempted to recruit Leia into his schemes.
+
+Isolder attempted the same with Teneniel.
+
+Neither woman appreciated this.
+
+Both occasionally retaliated.
+
+One memorable occasion saw Leia and Teneniel secretly cooperate to embarrass both men simultaneously.
+
+Han and Isolder spent nearly a year arguing over whether that counted as a point for either side.
+
+Luke refused to adjudicate.
+
+—
+
+Then the children became involved.
+
+Jacen.
+
+Jaina.
+
+Anakin.
+
+Tenel Ka.
+
+At first they simply observed.
+
+Then they discovered how entertaining the rivalry could be.
+
+The adults quickly learned that children possessed a natural talent for exploiting absurd situations.
+
+One year Jaina deliberately manipulated events so both men believed they had won the same point.
+
+The resulting argument became so convoluted that nobody remembered what the original point had been about.
+
+Jaina considered this one of her finest achievements.
+
+—
+
+By the early 30s ABY, matters became even stranger.
+
+Jacen and Tenel Ka's relationship had deepened significantly.
+
+This created opportunities.
+
+Han noticed first.
+
+Then Isolder.
+
+Soon both fathers had reached the same conclusion.
+
+If they could not directly defeat one another, perhaps they could compete through their children.
+
+Jacen and Tenel Ka quickly discovered what was happening.
+
+Neither objected.
+
+In fact, they found it hilarious.
+
+Whenever possible, they played along.
+
+Sometimes they even deliberately manipulated events to confuse both fathers.
+
+One occasion ended with Han and Isolder simultaneously claiming victory.
+
+Only to discover Jacen and Tenel Ka had engineered the entire situation for their own amusement.
+
+Both older men reluctantly awarded the younger pair a point.
+
+Neither enjoyed doing so.
+
+—
+
+The rivalry evolved further after Jacen and Tenel Ka became parents.
+
+Soon Han began treating Jacen's accomplishments as his own.
+
+If Jacen succeeded, Han claimed indirect credit.
+
+Isolder immediately adopted the same policy regarding Tenel Ka.
+
+This created endless opportunities for disagreement.
+
+The most famous example occurred during the Swarm War.
+
+Word spread that Tenel Ka had defeated Jacen in a lightsaber duel.
+
+The circumstances were serious.
+
+The debate that followed was not.
+
+Isolder immediately claimed a point.
+
+Han objected.
+
+Violently.
+
+"You didn't do anything."
+
+"I raised her."
+
+"That doesn't count."
+
+"It absolutely counts."
+
+"No it doesn't."
+
+"It does."
+
+"You weren't even there."
+
+"I contributed to her existence."
+
+Han stared.
+
+Then looked toward Luke.
+
+"Tell him that's not how points work."
+
+Luke rubbed his temples.
+
+"I don't know how points work."
+
+"Exactly," Han said triumphantly.
+
+"That supports my position."
+
+"It really doesn't," Luke replied.
+
+The ruling eventually favored Han.
+
+Isolder appealed.
+
+The appeal failed.
+
+He complained for months.
+
+—
+
+Eventually the rivalry reached perhaps its most dangerous stage.
+
+The arrival of Allana.
+
+Not dangerous in the military sense.
+
+Dangerous in the sense that both grandfathers now possessed a highly mobile, highly curious, highly impressionable new proxy.
+
+The opportunities were endless.
+
+The consequences were immediate.
+
+—
+
+Around 38 ABY, Allana became a toddler.
+
+At which point Han and Isolder made a discovery.
+
+Toddlers enjoyed repeating things adults told them.
+
+Especially embarrassing things.
+
+The possibilities proved irresistible.
+
+Han would teach Allana harmless but embarrassing stories about Isolder.
+
+Then send her to Hapes.
+
+A few days later Isolder would retaliate by teaching her embarrassing stories about Han.
+
+Then send her back.
+
+The process repeated endlessly.
+
+Within months Allana knew far more family history than anyone intended.
+
+She knew about failed diplomatic meetings.
+
+Awkward courtship attempts.
+
+Embarrassing wardrobe accidents.
+
+Questionable hairstyles.
+
+Poor decisions involving speeders.
+
+Even worse decisions involving animals.
+
+Somehow every visit resulted in new information.
+
+Jacen and Tenel Ka eventually realized what was happening.
+
+They were not entirely comfortable with it.
+
+But they also recognized that no actual harm was occurring.
+
+Allana simply enjoyed hearing stories.
+
+The grandfathers enjoyed scoring points.
+
+And everyone else enjoyed watching.
+
+—
+
+The rivalry required bookkeeping.
+
+Extensive bookkeeping.
+
+Both men maintained records.
+
+Detailed records.
+
+Painfully detailed records.
+
+The score mattered.
+
+Not because either could explain why.
+
+Only because it mattered.
+
+By 39 ABY the official tally stood at thirty-one points for Han and twenty-eight for Isolder.
+
+Unofficially, both claimed significantly higher numbers.
+
+This created problems.
+
+—
+
+Soon neutral arbitration became necessary.
+
+The preferred mediator was Jaina Solo.
+
+Not because she wanted the job.
+
+Because everyone trusted her.
+
+Relatively speaking.
+
+Whenever a dispute arose, Jaina reviewed the evidence.
+
+Witness statements.
+
+Mission reports.
+
+Occasionally security recordings.
+
+She would then issue a ruling.
+
+Neither side was usually happy.
+
+Both accepted her authority.
+
+Mostly.
+
+When Jaina was unavailable, the responsibility fell to Luke.
+
+Luke found the entire process absurd.
+
+Yet he continued participating.
+
+Partly because it amused him.
+
+Partly because watching Han and Isolder argue over technical scoring regulations was unexpectedly entertaining.
+
+And partly because he feared what might happen if nobody mediated.
+
+The answer was probably nothing catastrophic.
+
+Probably.
+
+Still, nobody wanted to find out.
+
+—
+
+By the time Jacen and Tenel Ka married in 39 ABY, the rivalry had become part of family life.
+
+Everyone understood it.
+
+Nobody truly controlled it.
+
+The competition no longer resembled the conflict that had begun over Leia decades earlier.
+
+The original cause had long since disappeared.
+
+Han loved Leia.
+
+Isolder loved Teneniel.
+
+Both families had become deeply intertwined.
+
+The rivalry survived anyway.
+
+No longer hostile.
+
+No longer serious.
+
+Yet somehow permanent.
+
+Even the participants occasionally admitted as much.
+
+Only occasionally.
+
+And never while points were being counted.
