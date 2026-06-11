@@ -2983,3 +2983,1753 @@ Even the participants occasionally admitted as much.
 Only occasionally.
 
 And never while points were being counted.
+
+---
+
+# Flashback: Reconstruction of Jacen Solo
+
+Jacen Solo's return to Mon Calamari sent a shockwave through the New Republic.
+
+For nearly a year, most of the galaxy had believed him dead.
+
+He had vanished on Myrkr after the destruction of the voxyn queen. Reports from survivors had been uncertain. His final presence in the Force had been a burst of unbearable agony before disappearing entirely. Many Jedi had mourned him.
+
+Now he had returned.
+
+Changed.
+
+Alive.
+
+And accompanied by Vergere.
+
+—
+
+The first days passed in a blur of debriefings, reunions, and endless questions.
+
+Fleet Intelligence wanted reports.
+
+Military leaders wanted information.
+
+Luke Skywalker wanted to understand what had happened.
+
+Everyone wanted something from Jacen.
+
+Eventually Luke intervened.
+
+"Enough," he said firmly.
+
+The Grand Master folded his arms and looked around the room.
+
+"He needs time."
+
+Nobody argued.
+
+Not even the admirals.
+
+Jacen was ordered to rest.
+
+For the first time in a year, nobody expected him to survive anything.
+
+—
+
+Heurkea Floating City drifted peacefully across Mon Calamari's oceans.
+
+The city seemed impossibly calm after everything he had endured.
+
+There were no screams.
+
+No Embrace of Pain.
+
+No Yuuzhan Vong guards.
+
+No slave seeds.
+
+No endless philosophical riddles.
+
+Only water.
+
+Sky.
+
+Silence.
+
+Jacen found himself staring out across the ocean for long periods of time.
+
+Sometimes he wasn't even certain what he was thinking about.
+
+Sometimes he wasn't thinking at all.
+
+—
+
+Several days later, a transport arrived.
+
+Jacen sensed the passengers before they emerged.
+
+A familiar presence.
+
+Then another.
+
+He stood immediately.
+
+Jaina descended the ramp first.
+
+The twins stared at each other for several seconds.
+
+Neither moved.
+
+Then Jaina crossed the distance between them and threw her arms around him.
+
+"You idiot."
+
+Jacen laughed.
+
+It was the first genuine laugh he had managed since returning.
+
+"I missed you too."
+
+Jaina pulled away.
+
+Her eyes were wet.
+
+"You were gone a year."
+
+"I know."
+
+"We thought you were dead."
+
+"I know."
+
+"You couldn't send a message?"
+
+"I was a little busy."
+
+That earned him a punch on the shoulder.
+
+Not a hard one.
+
+Just enough.
+
+The kind only a twin could deliver.
+
+Then another presence stepped down the ramp.
+
+Tenel Ka.
+
+For a moment neither spoke.
+
+The war.
+
+The captivity.
+
+The years of friendship.
+
+The emotions neither had ever fully discussed.
+
+All of it stood silently between them.
+
+At last Tenel Ka stepped forward.
+
+"I am glad you survived."
+
+Jacen smiled.
+
+"So am I."
+
+Then she embraced him.
+
+Briefly.
+
+Firmly.
+
+When she stepped back, Jacen noticed something unusual.
+
+The tension he had carried since his return eased slightly.
+
+Only slightly.
+
+But enough.
+
+—
+
+The three spent the afternoon together.
+
+Jaina filled him in on events across the galaxy.
+
+Jacen listened carefully.
+
+Then Jaina began describing her own struggles after Myrkr.
+
+The anger.
+
+The despair.
+
+The temptation of the dark side.
+
+When she finished, Jacen sat quietly.
+
+Finally he nodded.
+
+"I'm proud of you."
+
+Jaina looked surprised.
+
+"For what?"
+
+"You came back."
+
+"So did you."
+
+Jacen looked out across the ocean.
+
+"Not completely."
+
+Neither sister nor friend responded immediately.
+
+Both sensed there was more behind those words.
+
+But neither pressed him.
+
+Not yet.
+
+—
+
+That evening another transport arrived.
+
+Han Solo practically ran down the boarding ramp.
+
+Leia followed close behind.
+
+Jacen barely had time to react before his father wrapped him in an embrace powerful enough to crack armor.
+
+"You're alive."
+
+"I am."
+
+Han released him.
+
+Immediately hugged him again.
+
+Leia laughed through tears.
+
+Then she joined them.
+
+For a long time, nobody said very much.
+
+Words felt inadequate.
+
+The family had already lost Anakin.
+
+Now one son had somehow returned.
+
+That was enough.
+
+For one night, at least.
+
+—
+
+They gathered together overlooking the water.
+
+Han.
+
+Leia.
+
+Jacen.
+
+Jaina.
+
+Tenel Ka.
+
+The conversation wandered across countless subjects.
+
+Some were serious.
+
+Some were trivial.
+
+Nobody wanted to discuss captivity for very long.
+
+Nobody wanted to discuss Myrkr.
+
+Not tonight.
+
+Instead they talked about old memories.
+
+Training accidents.
+
+Family embarrassments.
+
+Anakin.
+
+The stories hurt.
+
+But they helped.
+
+Eventually Han laughed.
+
+"I still can't believe you survived all that."
+
+Jacen smirked.
+
+"I still can't believe you survived raising us."
+
+"Fair point."
+
+For a little while, the war felt very far away.
+
+—
+
+The following morning Han and Leia departed.
+
+Duty called them elsewhere.
+
+The war remained unfinished.
+
+Jaina also prepared to leave.
+
+As she loaded equipment aboard her transport, she glanced toward Tenel Ka.
+
+"You're staying."
+
+"Yes."
+
+Jaina smiled knowingly.
+
+"Good."
+
+Then she looked toward her brother.
+
+"Don't disappear again."
+
+"I'll try."
+
+"Try harder."
+
+With that, she departed.
+
+—
+
+For the first time since his return, Jacen found himself alone with Tenel Ka.
+
+Days passed peacefully.
+
+The floating city drifted through calm seas.
+
+Neither rushed anything.
+
+Neither forced conversation.
+
+Eventually it happened naturally.
+
+One evening they sat together watching the sunset over the ocean.
+
+Tenel Ka broke the silence.
+
+"I killed Ta'a Chume."
+
+Jacen turned toward her.
+
+She explained everything.
+
+The poisoning.
+
+Teneniel's collapse.
+
+Her suspicions.
+
+The confrontation.
+
+The Force probe.
+
+The execution.
+
+When she finished, silence settled between them.
+
+Finally Jacen nodded.
+
+"I understand."
+
+"That is not the same as approval."
+
+"No."
+
+"You disapprove?"
+
+Jacen considered carefully.
+
+Then he shook his head.
+
+"No."
+
+Tenel Ka raised an eyebrow.
+
+"No?"
+
+"You found the person responsible for attempting to murder your mother."
+
+"Yes."
+
+"You acted."
+
+"Yes."
+
+Jacen looked back toward the sunset.
+
+"I don't think I'd have done differently."
+
+For a moment neither spoke.
+
+Then Tenel Ka quietly asked:
+
+"Would you tell me what happened?"
+
+Jacen immediately knew what she meant.
+
+His expression darkened.
+
+—
+
+Over the following days, he told her everything.
+
+Not the abbreviated version he gave Intelligence.
+
+Not the version he gave Luke.
+
+Everything.
+
+The Embrace of Pain.
+
+The endless torture.
+
+Anakin's death.
+
+Vergere.
+
+The slave seed.
+
+The dhuryam.
+
+The force lightning.
+
+The despair.
+
+The rage.
+
+The temptation.
+
+The moments when he almost lost himself.
+
+Sometimes the words came easily.
+
+Sometimes they did not.
+
+Sometimes he had to stop speaking entirely.
+
+Tenel Ka listened.
+
+She never interrupted unnecessarily.
+
+Never judged.
+
+Never dismissed anything.
+
+She simply listened.
+
+The more she heard, the more concerned she became.
+
+Not because Jacen was damaged.
+
+Any sane person would be damaged after such an experience.
+
+What concerned her was something deeper.
+
+Vergere.
+
+Again and again her influence appeared.
+
+Again and again she had pushed him.
+
+Questioned him.
+
+Broken him apart.
+
+Rebuilt him.
+
+Forced him to question everything.
+
+By the time Jacen finished, night had fallen.
+
+The ocean outside was dark.
+
+Neither spoke for several minutes.
+
+At last Tenel Ka said:
+
+"She changed you."
+
+Jacen nodded.
+
+"Yes."
+
+"Profoundly."
+
+"Yes."
+
+"You trust her."
+
+Jacen hesitated.
+
+"Yes."
+
+That hesitation concerned her.
+
+More than the answer itself.
+
+—
+
+The war continued.
+
+Neither had the luxury of disappearing from the galaxy.
+
+The Yuuzhan Vong still occupied worlds.
+
+People were still dying.
+
+The Jedi were still needed.
+
+So Tenel Ka made a decision.
+
+One evening she stood beside Jacen overlooking the sea.
+
+"We will deal with this later."
+
+Jacen looked at her.
+
+"Deal with what?"
+
+"What was done to you."
+
+His expression tightened.
+
+"You think something was done to me."
+
+"I know something was done to you."
+
+Jacen almost argued.
+
+Then stopped.
+
+Tenel Ka continued.
+
+"The war comes first."
+
+He nodded slowly.
+
+"The war comes first."
+
+"But after the war..."
+
+She looked directly into his eyes.
+
+"...we will face this together."
+
+For the first time, Jacen found himself believing her.
+
+—
+
+The months that followed were among the most difficult of the conflict.
+
+The Jedi fought across countless worlds.
+
+Jacen and Tenel Ka frequently served together.
+
+They fought side by side.
+
+Traveled side by side.
+
+Survived side by side.
+
+The closeness allowed Tenel Ka to observe things others missed.
+
+She saw the moments when Jacen's thinking became too absolute.
+
+The moments when Vergere's lessons resurfaced in troubling ways.
+
+The moments when pain still held power over him.
+
+She challenged him constantly.
+
+Sometimes gently.
+
+Sometimes not.
+
+Jacen did not always appreciate it.
+
+But he listened.
+
+More often than not.
+
+—
+
+Then, at last, the war ended.
+
+The Yuuzhan Vong were defeated.
+
+The galaxy began the long process of rebuilding.
+
+For the first time in years, there was no immediate crisis demanding every Jedi's attention.
+
+The moment Tenel Ka had been waiting for had finally arrived.
+
+—
+
+Several weeks later, Jacen found himself aboard a small transport with her.
+
+No military escort accompanied them.
+
+No Jedi mission orders.
+
+No diplomatic responsibilities.
+
+Nothing.
+
+Just the two of them.
+
+The stars stretched into hyperspace outside the viewport.
+
+Jacen finally looked up from his seat.
+
+"Where are we going?"
+
+Tenel Ka sat across from him.
+
+"Away."
+
+"That is not a destination."
+
+"It is for now."
+
+Jacen sighed.
+
+"You planned this."
+
+"Yes."
+
+"For how long?"
+
+"Since Mon Calamari."
+
+That answer surprised him.
+
+She had been thinking about this ever since his return.
+
+Perhaps even earlier.
+
+Neither spoke again for the remainder of the journey.
+
+—
+
+The planet was remote.
+
+No cities.
+
+No spaceports.
+
+No settlements.
+
+Only forests, mountains, rivers, and open skies.
+
+The transport descended through clouds before settling in a broad valley surrounded by distant peaks.
+
+The engines powered down.
+
+Silence followed.
+
+Jacen looked out the viewport.
+
+"Nobody lives here."
+
+"Correct."
+
+"Why?"
+
+Tenel Ka stood.
+
+"Because nobody will interrupt us."
+
+She walked down the boarding ramp.
+
+After a moment, Jacen followed.
+
+Cool air greeted them.
+
+The valley stretched endlessly before them.
+
+Untouched.
+
+Peaceful.
+
+Far removed from the scars of war.
+
+Tenel Ka stopped and turned toward him.
+
+For a long moment she simply studied him.
+
+Then she spoke.
+
+"You survived the Yuuzhan Vong."
+
+Jacen nodded.
+
+"Barely."
+
+"You survived captivity."
+
+"Yes."
+
+"You survived pain."
+
+"Yes."
+
+Her expression remained calm.
+
+"But you have not yet healed."
+
+The words hung in the air.
+
+Jacen said nothing.
+
+Because deep down, he knew she was right.
+
+Tenel Ka gestured toward the valley.
+
+"You will rebuild yourself here."
+
+The wind moved through the grass around them.
+
+For the first time since his return from captivity, Jacen realized that the real journey was only beginning.
+
+—
+
+The valley remained quiet.
+
+Days passed.
+
+Then weeks.
+
+Jacen quickly discovered that Tenel Ka had not brought him to the remote world merely for rest.
+
+She had brought him there with a purpose.
+
+A plan.
+
+One she had been building ever since he first told her the full story of his captivity.
+
+—
+
+During the final months of the Yuuzhan Vong War, while they had fought side by side across countless battlefields, Tenel Ka had spent every spare moment thinking about what Jacen had told her.
+
+The Embrace of Pain.
+
+The slave seed.
+
+The dhuryam.
+
+Vergere's lessons.
+
+The isolation.
+
+The manipulation.
+
+The gradual reshaping of his entire worldview.
+
+At first, the more she reflected on it, the more uncomfortable she became.
+
+Not because she doubted Jacen.
+
+But because she slowly realized why Vergere had been so effective.
+
+The answer was disturbingly simple.
+
+Vergere had controlled the environment.
+
+She had isolated Jacen from almost everyone who mattered.
+
+She had become the primary voice in his life.
+
+The primary authority.
+
+The primary influence.
+
+Every lesson.
+
+Every crisis.
+
+Every philosophical challenge.
+
+Everything passed through her.
+
+And over time, Jacen had changed.
+
+Not all at once.
+
+Gradually.
+
+Piece by piece.
+
+Until he became someone different.
+
+—
+
+One evening, shortly after arriving on the planet, Tenel Ka sat beside a small campfire watching Jacen study the stars.
+
+"Do you know why Vergere succeeded?" she asked.
+
+Jacen glanced toward her.
+
+"Because she was clever."
+
+"No."
+
+"Because she understood me."
+
+"No."
+
+Jacen frowned.
+
+"Then why?"
+
+"Because she controlled your world."
+
+Silence followed.
+
+Tenel Ka continued.
+
+"For a year she became the center of your reality."
+
+Jacen did not immediately answer.
+
+Because part of him knew she was right.
+
+—
+
+Over the following days Tenel Ka attempted a gentler approach.
+
+They talked.
+
+Debated.
+
+Questioned each other's assumptions.
+
+She challenged Vergere's conclusions.
+
+Jacen defended them.
+
+Again and again.
+
+At first the discussions were productive.
+
+Then they became circular.
+
+Whenever Tenel Ka pressed too hard, Jacen pushed back.
+
+Whenever she questioned one of Vergere's teachings, Jacen immediately analyzed her argument rather than examining his own assumptions.
+
+Eventually Tenel Ka recognized the problem.
+
+Jacen saw her as an equal.
+
+An intellectual peer.
+
+A friend.
+
+And because of that, he felt free to dismiss her whenever he disagreed.
+
+The realization frustrated her.
+
+Not because he disagreed.
+
+Because she was beginning to suspect that ordinary conversation would take decades.
+
+And some of the damage she saw in him needed to be addressed sooner.
+
+—
+
+The confrontation happened three weeks after their arrival.
+
+Jacen returned from a long walk through the valley to find Tenel Ka waiting outside their shelter.
+
+She stood perfectly still.
+
+Arms folded.
+
+Watching him approach.
+
+Something in her posture immediately put him on guard.
+
+"What happened?" he asked.
+
+"We are changing our approach."
+
+Jacen blinked.
+
+"Our approach to what?"
+
+"Your healing."
+
+The word irritated him immediately.
+
+"There is nothing wrong with me."
+
+Tenel Ka stared at him.
+
+Neither spoke for several seconds.
+
+Then she said:
+
+"There is."
+
+Jacen sighed.
+
+"We have had this conversation."
+
+"We have."
+
+"And we disagree."
+
+"We do."
+
+"Then why continue arguing?"
+
+"Because I am correct."
+
+Jacen laughed.
+
+Unfortunately for him, Tenel Ka did not.
+
+—
+
+"I have made a decision," she said.
+
+"What decision?"
+
+Her expression never changed.
+
+"I am your master."
+
+Jacen stared at her.
+
+"...What?"
+
+"I am your master."
+
+"Tenel Ka—"
+
+"You are my apprentice."
+
+Jacen was so bewildered he actually forgot to argue for several seconds.
+
+Then he finally found words.
+
+"No."
+
+"Yes."
+
+"No."
+
+"Yes."
+
+"That is absurd."
+
+"I disagree."
+
+Jacen rubbed his forehead.
+
+"You cannot simply declare yourself my master."
+
+"I just did."
+
+—
+
+The argument lasted nearly an hour.
+
+By the end, both were frustrated.
+
+Finally Jacen folded his arms.
+
+"No."
+
+Tenel Ka nodded.
+
+"Then I will leave."
+
+The answer caught him completely off guard.
+
+"You'll what?"
+
+"I will leave."
+
+She pointed toward the transport.
+
+"I will depart."
+
+Jacen frowned.
+
+"And then?"
+
+"You remain here."
+
+The implication slowly settled over him.
+
+"You're serious."
+
+"Yes."
+
+"You would strand me?"
+
+"I would."
+
+Jacen stared at her.
+
+"Why?"
+
+"Because I refuse to spend years watching you slowly disappear into ideas that are poisoning you."
+
+His jaw tightened.
+
+"And if I refuse?"
+
+"Then this is goodbye."
+
+The words landed harder than any argument.
+
+—
+
+For several moments neither spoke.
+
+The wind moved softly through the valley.
+
+Jacen looked away.
+
+Never seeing her again.
+
+The possibility hit him with surprising force.
+
+He could survive alone.
+
+That was not the issue.
+
+The issue was her.
+
+The thought of losing Tenel Ka entirely suddenly felt unbearable.
+
+Eventually he exhaled.
+
+Slowly.
+
+Then nodded.
+
+"Fine."
+
+Tenel Ka raised an eyebrow.
+
+"Fine?"
+
+"I'll do it."
+
+"You accept me as your master?"
+
+Jacen grimaced.
+
+"I accept the arrangement."
+
+"Good."
+
+—
+
+The following morning his first lesson began.
+
+Jacen expected meditation.
+
+Force exercises.
+
+Lectures.
+
+Instead Tenel Ka said:
+
+"We are going to discuss the Embrace of Pain."
+
+Jacen immediately frowned.
+
+"What about it?"
+
+"I have developed something."
+
+"What?"
+
+"The opposite."
+
+—
+
+Several minutes later Jacen stood in complete confusion.
+
+"This is your idea?"
+
+"Yes."
+
+"This?"
+
+"Yes."
+
+Jacen stared.
+
+"You are serious."
+
+"I am."
+
+—
+
+Tenel Ka stepped forward.
+
+Then simply wrapped her arms around him.
+
+Not casually.
+
+Not romantically.
+
+Not briefly.
+
+A deliberate embrace.
+
+Firm.
+
+Steady.
+
+Protective.
+
+Unyielding.
+
+She held him there.
+
+Minutes passed.
+
+Neither moved.
+
+Finally she released him.
+
+"How did that feel?"
+
+Jacen blinked.
+
+"...Comfortable."
+
+"Good."
+
+—
+
+She called it the Embrace of Comfort.
+
+At first Jacen thought it was ridiculous.
+
+Then she explained.
+
+"The Embrace of Pain taught you to ignore pain."
+
+"It taught me not to be controlled by pain."
+
+"The distinction is smaller than you think."
+
+Jacen frowned.
+
+Tenel Ka continued.
+
+"Pain exists for a reason."
+
+"It can also control people."
+
+"Yes."
+
+"And?"
+
+"And becoming blind to it is equally dangerous."
+
+—
+
+The exercise continued.
+
+Every day.
+
+Again.
+
+And again.
+
+And again.
+
+Sometimes accompanied by discussion.
+
+Sometimes conducted in complete silence.
+
+Always the same goal.
+
+To force Jacen to stop treating pain as something to transcend.
+
+To recognize it instead as something meaningful.
+
+Something real.
+
+Something human.
+
+—
+
+Weeks passed.
+
+Then one day it happened.
+
+Tenel Ka embraced him as usual.
+
+Suddenly Jacen winced.
+
+Actually winced.
+
+The sensation surprised him.
+
+The comfort hurt.
+
+Not physically.
+
+Something deeper.
+
+Something emotional.
+
+The experience was almost impossible to describe.
+
+Yet he knew immediately what had happened.
+
+The wall had cracked.
+
+The numbness was breaking.
+
+—
+
+When Tenel Ka released him, she studied his face.
+
+"You felt it."
+
+Jacen nodded.
+
+Slowly.
+
+"Yes."
+
+For the first time in years, he felt vulnerable.
+
+And strangely relieved.
+
+—
+
+After that, everything became easier.
+
+Not simple.
+
+But easier.
+
+Jacen became more open.
+
+More willing to examine himself honestly.
+
+Less defensive.
+
+Less guarded.
+
+The change encouraged Tenel Ka to move forward.
+
+—
+
+The next lessons focused on pain itself.
+
+Not physical pain.
+
+The philosophy surrounding it.
+
+For days they debated.
+
+Argued.
+
+Questioned.
+
+Dissected every assumption.
+
+Eventually Tenel Ka asked:
+
+"What happens when you stop caring about pain?"
+
+Jacen immediately answered.
+
+"You become free of it."
+
+"No."
+
+"What then?"
+
+"You become indifferent to it."
+
+Jacen frowned.
+
+Tenel Ka pressed further.
+
+"Your pain."
+
+"Others' pain."
+
+The realization came gradually.
+
+Pain was not merely an obstacle.
+
+It was information.
+
+Connection.
+
+Empathy.
+
+Awareness.
+
+A warning.
+
+A call for help.
+
+To ignore pain entirely was to risk ignoring suffering itself.
+
+—
+
+One evening Jacen sat alone overlooking a river.
+
+The lesson finally clicked.
+
+He remembered countless moments during captivity.
+
+Moments when pain had ceased to matter.
+
+Moments when others had suffered.
+
+Moments when he had simply observed.
+
+The memory unsettled him.
+
+Not because he had become cruel.
+
+Because he had become detached.
+
+And detachment could become dangerous.
+
+—
+
+The next stage focused on influence.
+
+Specifically the slave seed.
+
+The dhuryam.
+
+Everything associated with them.
+
+Tenel Ka approached carefully.
+
+"Tell me what you learned."
+
+Jacen answered immediately.
+
+"Never surrender control."
+
+"Reasonable."
+
+"I resisted."
+
+"You did."
+
+"I survived."
+
+"Yes."
+
+Jacen folded his arms.
+
+"Then what is wrong?"
+
+Tenel Ka smiled slightly.
+
+"You learned the right lesson from the wrong experience."
+
+—
+
+For weeks she explored the distinction.
+
+Forced influence.
+
+Voluntary influence.
+
+Coercion.
+
+Trust.
+
+Friendship.
+
+Family.
+
+Community.
+
+Gradually Jacen realized something.
+
+His reaction to the dhuryam had expanded far beyond the original threat.
+
+He had become suspicious of influence itself.
+
+Even healthy influence.
+
+Even people who genuinely cared about him.
+
+—
+
+One afternoon Tenel Ka asked:
+
+"Has Jaina influenced you?"
+
+"Of course."
+
+"Has Luke?"
+
+"Yes."
+
+"Has Leia?"
+
+"Yes."
+
+"Have I?"
+
+Jacen paused.
+
+Then sighed.
+
+"Obviously."
+
+Tenel Ka nodded.
+
+"Good."
+
+—
+
+That lesson took hold.
+
+Influence itself was not the enemy.
+
+The question was whether it was freely accepted.
+
+Mutual.
+
+Respectful.
+
+Healthy.
+
+The realization softened something inside him.
+
+—
+
+Only then did Tenel Ka approach the final subject.
+
+The most difficult.
+
+The Force itself.
+
+—
+
+The debate lasted months.
+
+Neither rushed it.
+
+Neither wanted easy answers.
+
+They discussed every argument Vergere had made.
+
+Every interpretation.
+
+Every conclusion.
+
+Again and again.
+
+Sometimes deep into the night.
+
+Sometimes while hiking through the mountains.
+
+Sometimes while meditating.
+
+—
+
+One evening they sat beneath the stars.
+
+Tenel Ka finally said:
+
+"There is a difference."
+
+"Between what?"
+
+"The light side and the dark side."
+
+Jacen immediately recognized the familiar disagreement.
+
+"Perhaps."
+
+"No."
+
+Her voice was unusually firm.
+
+"There is."
+
+—
+
+She continued.
+
+"The light side serves."
+
+"The dark side also serves goals."
+
+"The light side respects choice."
+
+"The dark side can as well."
+
+"No."
+
+Tenel Ka shook her head.
+
+"The dark side imposes."
+
+Jacen opened his mouth.
+
+Then stopped.
+
+She continued.
+
+"It dominates."
+
+"It coerces."
+
+"It seeks control."
+
+"The light side seeks cooperation."
+
+—
+
+For hours they argued.
+
+For days.
+
+For weeks.
+
+Again and again.
+
+Until eventually Tenel Ka stopped discussing philosophy.
+
+Instead she discussed morality.
+
+Compassion.
+
+Duty.
+
+Responsibility.
+
+Consent.
+
+The importance of respecting others.
+
+The importance of not reducing people to tools.
+
+—
+
+"If you cannot distinguish these things," she told him one evening, "then you do not have a Force problem."
+
+Jacen looked at her.
+
+"You have a moral problem."
+
+—
+
+That statement haunted him.
+
+For a long time.
+
+Long after the conversation ended.
+
+Long after Tenel Ka had gone to sleep.
+
+He remained awake beneath the stars.
+
+Thinking.
+
+Reflecting.
+
+Examining years of assumptions.
+
+Years of conclusions.
+
+Years of beliefs.
+
+—
+
+Eventually he found his answer.
+
+Not all at once.
+
+Gradually.
+
+Painfully.
+
+But genuinely.
+
+—
+
+When he finally spoke with Tenel Ka again, he nodded.
+
+"I understand."
+
+She studied him carefully.
+
+"You do?"
+
+"I think so."
+
+"And?"
+
+"The difference matters."
+
+Tenel Ka smiled.
+
+For the first time in a very long while.
+
+—
+
+Several months later they stood overlooking the valley where their journey had begun.
+
+The world around them remained peaceful.
+
+Unchanged.
+
+Jacen, however, was not.
+
+—
+
+Tenel Ka finally broke the silence.
+
+"It is time."
+
+"For what?"
+
+"To leave."
+
+Jacen looked surprised.
+
+"Already?"
+
+"You have healed enough."
+
+"Enough?"
+
+"Not completely."
+
+She shook her head.
+
+"Not even close."
+
+That honesty made him laugh.
+
+—
+
+Tenel Ka stepped closer.
+
+"Our arrangement is finished."
+
+Jacen raised an eyebrow.
+
+"You are no longer my master?"
+
+"No."
+
+"And I am no longer your apprentice?"
+
+"No."
+
+"Good."
+
+That earned a rare smile from her.
+
+—
+
+"We return as equals."
+
+Jacen nodded.
+
+"Equals."
+
+—
+
+Their transport lifted into the sky later that day.
+
+The valley disappeared beneath the clouds.
+
+The long isolation had ended.
+
+Ahead waited Luke Skywalker.
+
+The Jedi Order.
+
+Their family.
+
+Their friends.
+
+The galaxy.
+
+—
+
+When they arrived, many immediately noticed the difference.
+
+Jacen was still thoughtful.
+
+Still introspective.
+
+Still changed by captivity.
+
+But something else had returned as well.
+
+A warmth.
+
+An openness.
+
+A willingness to listen.
+
+A willingness to be challenged.
+
+—
+
+The healing continued afterward.
+
+Not through isolation.
+
+Not through authority.
+
+But through friendship.
+
+Through trust.
+
+Through companionship.
+
+Tenel Ka remained close to him.
+
+Not as a master.
+
+Not as a superior.
+
+Simply as someone who refused to let him face his struggles alone.
+
+The scars of captivity remained.
+
+Some perhaps always would.
+
+Certain wounds ran too deep to disappear entirely.
+
+Yet with every passing year Jacen became more receptive to others, more grounded in compassion, and more willing to question the darker conclusions that sometimes tempted him.
+
+The journey was far from over.
+
+But at long last, he was walking it with others beside him.
