@@ -4218,7 +4218,7 @@ Slowly.
 
 "Yes."
 
-For the first time in years, he felt vulnerable.
+For the first time in months, he felt vulnerable.
 
 And strangely relieved.
 
@@ -4560,11 +4560,11 @@ Thinking.
 
 Reflecting.
 
-Examining years of assumptions.
+Examining months of assumptions.
 
-Years of conclusions.
+Months of conclusions.
 
-Years of beliefs.
+Months of beliefs.
 
 —
 
