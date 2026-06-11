@@ -3011,3 +3011,561 @@ No ancient grudge waiting to be settled.
 Only friendship.
 
 And on many evenings, as students crossed the courtyards beneath the setting sun, it was not uncommon to see Leiana, Obikin, and Poro walking side by side through the temple grounds, talking about lessons, lightsaber techniques, and whatever adventure they hoped to find next.
+
+---
+
+# Part 6
+
+As the years passed, Rey and Ben discovered that even blessings could become burdens.
+
+The Force dyad had once seemed miraculous.
+
+It had connected them across impossible distances.
+
+It had allowed them to understand one another when words failed.
+
+It had ultimately helped save the galaxy.
+
+For a long time, they appreciated it.
+
+Then they started living with it.
+
+Really living with it.
+
+Day after day.
+
+Year after year.
+
+And eventually, problems emerged.
+
+The connection was so deep that thoughts and emotions frequently crossed the bond without invitation.
+
+At first it was useful.
+
+A passing awareness of what the other was feeling could prevent misunderstandings.
+
+A shared sense of purpose often made cooperation effortless.
+
+The advantages were obvious.
+
+But over time, the disadvantages became equally obvious.
+
+Privacy became difficult.
+
+Not impossible, but difficult.
+
+Strong emotions often leaked across the connection.
+
+Unexpected thoughts occasionally did as well.
+
+Moments that would ordinarily remain private did not always stay that way.
+
+At times, it felt less like two people communicating and more like one consciousness spread across two bodies.
+
+Neither liked that.
+
+Both valued their individuality.
+
+The issue simmered for years.
+
+Then one day it finally came to a head.
+
+—
+
+The argument itself began over something trivial.
+
+As many important arguments do.
+
+Rey and Ben were walking through one of the temple's gardens after a meeting.
+
+They were discussing routine matters.
+
+Student assignments.
+
+Upcoming diplomatic requests.
+
+Nothing unusual.
+
+Then Ben casually commented on a thought Rey had not spoken aloud.
+
+A very specific thought.
+
+One she had intended to keep entirely to herself.
+
+Rey stopped walking.
+
+Ben immediately noticed.
+
+Unfortunately, he also immediately knew why.
+
+She turned toward him.
+
+For a moment she said nothing.
+
+Then she finally snapped.
+
+"I'm your wife, not your extension."
+
+The words hit him harder than she intended.
+
+Ben's expression immediately changed.
+
+"Rey—"
+
+"No."
+
+She shook her head.
+
+"I'm serious."
+
+Ben nodded.
+
+He knew she was.
+
+"I didn't mean to."
+
+The response came instantly.
+
+"I wasn't trying to read your mind."
+
+Rey's frustration faltered slightly.
+
+Ben continued.
+
+"Your thoughts just entered my awareness."
+
+He gestured helplessly.
+
+"Through the dyad."
+
+His expression was sincere.
+
+"I didn't choose it."
+
+Rey sighed.
+
+The anger rapidly drained away.
+
+Because she knew he was telling the truth.
+
+Ben was not deliberately intruding.
+
+The problem was not Ben.
+
+The problem was the bond itself.
+
+For several moments neither spoke.
+
+Then Rey rubbed her forehead.
+
+"We need a solution."
+
+Ben nodded.
+
+"We do."
+
+—
+
+That conversation marked the beginning of a long investigation.
+
+The two began searching ancient archives.
+
+Interviewing scholars.
+
+Examining recovered Jedi texts.
+
+Studying every known reference to Force bonds.
+
+Dyads.
+
+Mental connections.
+
+Shared consciousness phenomena.
+
+Anything remotely relevant.
+
+One question quickly became central to their research.
+
+How had the dyad been activated in the first place?
+
+Both agreed on certain facts.
+
+The connection had existed since birth.
+
+The Force itself had created it.
+
+Of that neither had any doubt.
+
+The disagreement concerned activation.
+
+Ben believed Snoke had triggered the bond.
+
+Years earlier, Snoke had openly claimed responsibility for connecting their minds.
+
+Ben had always taken that statement seriously.
+
+Rey was unconvinced.
+
+She argued that Snoke might have mistaken observation for causation.
+
+Perhaps the bond would have activated naturally.
+
+Perhaps Ben's descent into darkness had somehow accelerated the process.
+
+Perhaps the Force itself had chosen the moment.
+
+But Rey doubted that Snoke had personally created or activated something as fundamental as a dyad.
+
+The debate became a recurring topic.
+
+Often friendly.
+
+Occasionally spirited.
+
+Never fully resolved.
+
+Yet the question mattered.
+
+Because if Ben was right, then an intriguing possibility existed.
+
+If one being could activate a dyad, then perhaps one could also deactivate it.
+
+And if it could be deactivated, perhaps it could later be restored.
+
+The possibility motivated years of study.
+
+—
+
+Years turned into more years.
+
+Research accumulated.
+
+Fragments of knowledge emerged from dozens of sources.
+
+Ancient Jedi teachings.
+
+Records from forgotten Force traditions.
+
+Meditative practices.
+
+Techniques involving connection and separation.
+
+Individually, none seemed sufficient.
+
+Together, however, they suggested possibilities.
+
+Slowly a theory formed.
+
+Then a method.
+
+Then an experiment.
+
+Eventually the day came.
+
+Rey and Ben entered one of the temple's deepest meditation chambers.
+
+No students were present.
+
+No distractions.
+
+Only silence.
+
+The process demanded extraordinary concentration.
+
+Both had to reach deeper into the Force than either had in many years.
+
+The effort lasted hours.
+
+At times it seemed impossible.
+
+At times they thought they were failing.
+
+Yet they persisted.
+
+Finally something changed.
+
+The familiar sensation that had accompanied them for decades began to recede.
+
+The awareness faded.
+
+The constant connection weakened.
+
+Then vanished.
+
+Suddenly—
+
+Silence.
+
+Not physical silence.
+
+Something deeper.
+
+For the first time in decades, Rey could no longer feel Ben through the dyad.
+
+And Ben could no longer feel Rey.
+
+The connection was gone.
+
+Both nearly collapsed from exhaustion.
+
+Yet neither cared.
+
+They sat there breathing heavily.
+
+Looking at one another.
+
+Almost laughing.
+
+Not because anything was funny.
+
+Because they had succeeded.
+
+For the first time since the dyad had awakened, they felt entirely separate.
+
+Entirely themselves.
+
+Individual.
+
+Independent.
+
+The relief was immense.
+
+—
+
+In the years that followed, they refined the technique.
+
+Eventually they developed a corresponding method for restoring the bond.
+
+The process proved just as exhausting.
+
+Just as demanding.
+
+Yet it worked.
+
+The dyad could return.
+
+And later disappear again.
+
+At last they had control.
+
+After much discussion, they agreed upon a simple arrangement.
+
+The dyad would remain dormant by default.
+
+When circumstances genuinely benefited from the connection, they would reactivate it temporarily.
+
+Once its usefulness had passed, they would deactivate it again.
+
+The solution suited both of them perfectly.
+
+The bond remained available.
+
+Yet neither felt consumed by it.
+
+—
+
+One discovery fascinated them in particular.
+
+The process could never be performed unilaterally.
+
+Neither Rey nor Ben could activate or deactivate the dyad alone.
+
+Both had to participate.
+
+Both had to reach into the Force together.
+
+Both had to willingly cooperate.
+
+Without that cooperation, nothing happened.
+
+One evening, after successfully reactivating the bond during another training session, Ben sat with Rey overlooking the temple gardens.
+
+The discussion returned to the topic.
+
+"I think it says something important."
+
+Rey glanced at him.
+
+"What does?"
+
+"The fact that both of us are required."
+
+He thought for a moment.
+
+"The Force."
+
+Rey waited.
+
+Ben continued.
+
+"At least the light side."
+
+"It seems fundamentally cooperative."
+
+He looked toward the horizon.
+
+"Consensual."
+
+"Mutual."
+
+"You can't force this process."
+
+"You can't impose it."
+
+"You can only do it together."
+
+Rey smiled.
+
+"I like that interpretation."
+
+Ben looked pleased.
+
+Then she added:
+
+"Though I think it needs qualification."
+
+Ben laughed.
+
+"Of course you do."
+
+"The light side is cooperative."
+
+"The dark side isn't."
+
+Her expression became thoughtful.
+
+"The dark side is coercive."
+
+"Overbearing."
+
+"It imposes."
+
+"It dominates."
+
+Ben nodded.
+
+"That's fair."
+
+For a while they sat quietly.
+
+Then Rey returned to an older argument.
+
+"You know..."
+
+Ben groaned.
+
+"Here it comes."
+
+She smiled.
+
+"I still think this supports my position."
+
+Ben immediately knew which position.
+
+"About Snoke?"
+
+"Yes."
+
+Rey leaned back.
+
+"If activation and deactivation both require both of us, then it seems unlikely that Snoke activated the bond."
+
+Ben considered that.
+
+"It suggests the Force did."
+
+"Or at least that we did."
+
+He thought for a moment.
+
+Then slowly shook his head.
+
+"I don't think that's necessarily true."
+
+Rey raised an eyebrow.
+
+"Explain."
+
+Ben leaned forward.
+
+"If Snoke really did activate the dyad..."
+
+He paused.
+
+"...then the fact that he acted alone might actually support my theory."
+
+Now Rey looked intrigued.
+
+"How?"
+
+"The dark side."
+
+The answer came immediately.
+
+Ben gestured thoughtfully.
+
+"When we activate or deactivate the bond, we're doing it through the light side."
+
+"Which means cooperation."
+
+"Consent."
+
+"Mutual participation."
+
+Rey nodded.
+
+"So?"
+
+Ben continued.
+
+"If Snoke used the dark side..."
+
+The thought unfolded naturally.
+
+"...then he wouldn't need those things."
+
+The implication hung in the air.
+
+"The dark side bypasses consent."
+
+"It imposes."
+
+"It forces."
+
+"It takes."
+
+Rey sat quietly.
+
+Considering.
+
+The argument was not conclusive.
+
+Neither of them possessed definitive evidence.
+
+But she had to admit it was internally consistent.
+
+Eventually she smiled.
+
+"I still think you're wrong."
+
+Ben laughed.
+
+"I know."
+
+"But that's actually a decent argument."
+
+"I'll take that as a victory."
+
+"It isn't."
+
+"It sounds like one."
+
+"It absolutely isn't."
+
+Ben grinned.
+
+And for the next hour they continued debating a mystery that, despite decades of study, neither had ever managed to solve.
+
+Neither minded.
+
+Some questions, they had learned, were valuable even without answers.
