@@ -1018,7 +1018,7 @@ As everyone gathered near the landing platforms, Han gestured proudly toward the
 
 Allana looked at it.
 
-Then looked at Jag and Jaina's shuttle.
+Then looked at Jag and Jaina's yacht.
 
 Then looked back at Han.
 
@@ -1046,7 +1046,7 @@ Leia patted his shoulder.
 
 "I don't know if I will."
 
-Allana was already running toward Jaina and Jag's shuttle.
+Allana was already running toward Jaina and Jag's yacht.
 
 Han stared after her.
 
@@ -1064,7 +1064,7 @@ Luke and Ben left first.
 
 Han and Leia followed.
 
-Jaina and Jag departed with Allana aboard their shuttle.
+Jaina and Jag departed with Allana aboard their yacht.
 
 Eventually the sky grew quiet.
 
