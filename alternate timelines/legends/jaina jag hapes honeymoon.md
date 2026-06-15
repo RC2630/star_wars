@@ -516,7 +516,7 @@ Jaina laughed.
 
 Jag continued.
 
-"Your niece just orchestrated an interstellar disappearance and a lightsaber duel because she wanted entertainment."
+"Your niece just orchestrated a disappearance and a lightsaber duel because she wanted entertainment."
 
 "That was admittedly unusual."
 
