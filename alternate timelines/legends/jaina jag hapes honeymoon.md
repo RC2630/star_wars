@@ -710,13 +710,13 @@ The interrogation began.
 
 —
 
-Part of Allana's life was spent on Hapes with Tenel Ka.
+Part of Allana's life would be spent on Hapes with Tenel Ka.
 
-Part of it was spent with Han, Leia, and the Jedi.
+Part of it would be spent with Han, Leia, and the Jedi.
 
 The arrangement was still new to everyone, having started only after Allana's royal identity was publicly revealed during Jaina and Jag's wedding.
 
-It quickly became apparent that Han and Leia had arrived to collect Allana for another stay at the Jedi Academy on Shedu Maad.
+It quickly became apparent that Han and Leia had arrived to collect Allana for a stay at the Jedi Academy on Shedu Maad.
 
 This was supposed to have been an ordinary pickup.
 
@@ -1008,7 +1008,7 @@ Han laughed.
 
 The next morning departures began.
 
-Han and Leia were taking Allana back to the Jedi Academy on Shedu Maad.
+Han and Leia were taking Allana to the Jedi Academy on Shedu Maad.
 
 Jaina and Jag were headed there as well.
 
