@@ -710,13 +710,13 @@ The interrogation began.
 
 —
 
-It quickly became apparent that Han and Leia had arrived to collect Allana for another stay at the Jedi Academy on Shedu Maad.
-
-The arrangement had existed for years.
-
 Part of Allana's life was spent on Hapes with Tenel Ka.
 
 Part of it was spent with Han, Leia, and the Jedi.
+
+The arrangement was still new to everyone, having started only after Allana's royal identity was publicly revealed during Jaina and Jag's wedding.
+
+It quickly became apparent that Han and Leia had arrived to collect Allana for another stay at the Jedi Academy on Shedu Maad.
 
 This was supposed to have been an ordinary pickup.
 
