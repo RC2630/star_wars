@@ -226,7 +226,7 @@ Several days later, the inevitable happened.
 
 Tenel Ka arrived.
 
-The Queen Mother stormed into the resort with the expression of a woman who had spent several days searching the galaxy for her missing daughter.
+The Queen Mother stormed into the resort with the expression of a woman who had spent several days searching the planet for her missing daughter.
 
 She found Allana immediately.
 
@@ -434,7 +434,7 @@ Tenel Ka looked toward the sky as if questioning every life decision she had eve
 
 Finally Jag spoke.
 
-"You crossed half the galaxy."
+"You crossed half the planet."
 
 "Yes."
 
