@@ -3303,3 +3303,995 @@ Instead, standing there with his children, he found that the knowledge, discipli
 Not because they connected him to the past.
 
 Because they gave him something meaningful to pass on to the next generation.
+
+---
+
+# Part 7
+
+The years continued to pass peacefully on Naboo.
+
+Luke and Leia grew quickly.
+
+By the time they reached 8 years of age, they had already spent two years training under their father. Meditation had become second nature to them. They could sense one another through the Force, move objects with growing confidence, and had begun practicing the fundamentals of Shii-Cho lightsaber combat using the low-power training mode built into their lightsabers.
+
+One bright afternoon, another familiar transport descended toward Varykino Villa.
+
+Obi-Wan Kenobi stepped out.
+
+Although Anakin had never returned to the Jedi Order, he and Obi-Wan had maintained occasional contact over the years. Their relationship had never quite returned to what it had been during the Clone Wars, but the friendship had endured.
+
+Anakin walked out to greet him.
+
+"Master."
+
+Obi-Wan smiled.
+
+"I've told you before, you don't have to call me that anymore."
+
+Anakin smiled back.
+
+"Old habits."
+
+The two embraced briefly.
+
+"It's good to see you."
+
+"And you."
+
+Luke and Leia came running out of the villa.
+
+"Uncle Obi-Wan!"
+
+Obi-Wan laughed.
+
+"Hello, you two."
+
+Leia looked excited.
+
+"Father says you're one of the greatest duelists in the Order."
+
+Luke immediately added,
+
+"Will you spar with us?"
+
+Obi-Wan looked toward Anakin.
+
+"Only if your father approves."
+
+Anakin nodded.
+
+"I think that would be good experience."
+
+A few minutes later they stood together in the training room.
+
+All three lightsabers had been switched to their low-power training settings.
+
+Obi-Wan ignited his blue blade.
+
+Luke ignited his green lightsaber.
+
+Leia activated her light blue blade.
+
+Anakin folded his arms.
+
+"Remember."
+
+He looked at the twins.
+
+"Work together."
+
+"We will," Luke answered confidently.
+
+The duel began.
+
+Luke attacked first.
+
+Leia circled to Obi-Wan's side.
+
+For several moments they coordinated surprisingly well for their age.
+
+Obi-Wan smiled as he effortlessly deflected each strike.
+
+"Good."
+
+He parried Luke.
+
+"Don't rush."
+
+Leia attacked.
+
+He redirected her blade with barely any movement.
+
+"Better."
+
+The twins tried again.
+
+This time they attacked simultaneously.
+
+Obi-Wan stepped smoothly between them, avoiding both strikes before gently tapping Luke's shoulder with his blade.
+
+"You're out."
+
+Luke laughed and stepped back.
+
+Leia continued alone.
+
+She lasted only a few more exchanges before Obi-Wan lightly touched her wrist.
+
+"And that's the match."
+
+The twins deactivated their lightsabers.
+
+Leia grinned despite losing.
+
+"You're really good."
+
+Obi-Wan laughed.
+
+"I've had a little more practice."
+
+Anakin smiled proudly.
+
+"You both did well."
+
+Obi-Wan nodded in agreement.
+
+"They're learning quickly."
+
+Several days later, back on Coruscant, the Jedi Council assembled.
+
+The membership had changed over the years, but Masters Yoda, Mace Windu, Obi-Wan Kenobi, Plo Koon, Shaak Ti, and Ki-Adi-Mundi remained among those present.
+
+Obi-Wan delivered his report.
+
+"I recently visited Anakin."
+
+Mace looked toward him.
+
+"How is he?"
+
+"Very well."
+
+Obi-Wan smiled faintly.
+
+"He has settled comfortably into life on Naboo."
+
+"And the children?"
+
+"They're remarkable."
+
+Yoda smiled.
+
+"Hmm."
+
+Obi-Wan continued.
+
+"Anakin has been training them himself."
+
+Several Council members exchanged thoughtful glances.
+
+"He has lightsabers?"
+
+"All three of them do."
+
+Yoda simply nodded.
+
+"Expected this, I did."
+
+Plo Koon spoke next.
+
+"He was a capable instructor."
+
+Ki-Adi-Mundi agreed.
+
+"I see no immediate cause for concern."
+
+Shaak Ti nodded.
+
+"If they are learning discipline alongside the Force, that is encouraging."
+
+Only one member remained unconvinced.
+
+Mace Windu frowned.
+
+"He has another lightsaber."
+
+"He does," Obi-Wan answered.
+
+"And he is training Force-sensitive children entirely outside the Order."
+
+"Yes."
+
+Mace folded his arms.
+
+"Where exactly is he living?"
+
+"On Naboo."
+
+"I know that."
+
+Mace looked directly at Obi-Wan.
+
+"Where?"
+
+Obi-Wan remained silent.
+
+"I'd rather not say."
+
+Mace's expression hardened.
+
+"This is potentially a matter affecting the entire Order."
+
+"Anakin has caused no problems."
+
+"That is not the point."
+
+"It is to me."
+
+Mace stood.
+
+"As Master of the Order, I am instructing you to provide his location."
+
+The chamber became quiet.
+
+Obi-Wan hesitated.
+
+Finally he sighed.
+
+"Varykino Villa."
+
+Mace nodded once.
+
+"Thank you."
+
+A few days later, another transport arrived unexpectedly at Varykino.
+
+Anakin stepped outside.
+
+His expression changed immediately.
+
+"Master Windu."
+
+Mace inclined his head slightly.
+
+"Skywalker."
+
+Padmé appeared in the doorway behind Anakin, surprised by the unexpected visitor.
+
+"What brings you here?"
+
+Mace looked directly at Anakin.
+
+"I've learned that you've acquired another lightsaber."
+
+"I have."
+
+"And that you're training your children."
+
+"I am."
+
+Mace folded his hands behind his back.
+
+"When you were expelled from the Jedi Order..."
+
+His voice remained calm.
+
+"...I specifically informed you of the consequences."
+
+He repeated the words exactly as he had spoken them years earlier.
+
+"'You are no longer authorized to carry the weapon of a Jedi.'"
+
+Anakin crossed his arms.
+
+"I remember."
+
+"And yet you now possess one."
+
+"The Jedi don't have a monopoly on lightsabers."
+
+Mace's expression did not change.
+
+"The kyber crystal came from Ilum."
+
+"It did."
+
+"Ilum is a sacred Jedi world."
+
+"It's also a planet."
+
+"Its kyber crystals are under Jedi stewardship."
+
+Anakin shook his head.
+
+"That's nonsense."
+
+Mace frowned.
+
+"The Jedi have protected Ilum for generations."
+
+"You don't own it."
+
+"Only the Jedi know its location."
+
+"Not anymore."
+
+Mace looked at him.
+
+"How did you find it?"
+
+"Ahsoka gave me the coordinates."
+
+Mace's expression hardened.
+
+"She should not have done that."
+
+"Why not?"
+
+"She is no longer a Jedi."
+
+"And neither am I."
+
+"Exactly."
+
+Anakin laughed quietly.
+
+"So neither of us is bound by your rules."
+
+"The rules exist for good reason."
+
+"They're your rules."
+
+"They govern Ilum."
+
+"They govern the Jedi."
+
+Anakin pointed toward himself.
+
+"I'm not one."
+
+Mace replied firmly.
+
+"You removed three kyber crystals from Ilum."
+
+"My family found three crystals that called to us."
+
+"You effectively stole Jedi property."
+
+Anakin stared at him.
+
+"Jedi property?"
+
+"Yes."
+
+"The Force called those crystals to us."
+
+"The Jedi safeguard them."
+
+"The Jedi don't own the Force."
+
+Silence followed.
+
+Finally Anakin sighed.
+
+"What exactly do you want?"
+
+Mace answered immediately.
+
+"I want you to surrender all three lightsabers."
+
+Anakin shook his head before Mace had even finished.
+
+"No."
+
+"I also want you to cease training your children."
+
+"No."
+
+Mace continued anyway.
+
+"Training Force-sensitive children outside the structure of the Jedi Order is dangerous."
+
+"They're my children."
+
+"You were expelled for serious misconduct."
+
+"I know why I was expelled."
+
+"You attacked a senior Council Master."
+
+"I know."
+
+"You repeatedly ignored direct orders."
+
+"I know."
+
+Mace looked directly into his eyes.
+
+"That history makes you an unsuitable instructor."
+
+Anakin's patience finally began wearing thin.
+
+"You haven't seen them train."
+
+"I don't need to."
+
+"You haven't seen the life we've built here."
+
+"I know enough."
+
+"You know what Obi-Wan told you."
+
+"I know what happened eight years ago."
+
+Anakin took one slow step forward.
+
+"Eight years ago."
+
+He emphasized each word.
+
+"People change."
+
+Mace remained unmoved.
+
+"My requests stand."
+
+"My answer doesn't change."
+
+Several tense seconds passed.
+
+Finally Mace spoke quietly.
+
+"I truly don't wish to do this."
+
+Anakin narrowed his eyes.
+
+"If necessary..."
+
+Mace unclipped his lightsaber.
+
+"...I am prepared to settle the matter through a duel."
+
+Before Anakin could respond, Padmé stepped between them.
+
+"No."
+
+Both men looked toward her.
+
+"This villa is my private property."
+
+Her voice remained perfectly calm.
+
+"You have no jurisdiction on Naboo."
+
+She looked directly at Mace.
+
+"You've made your demands."
+
+"We've given our answer."
+
+"I am asking you to leave."
+
+Silence lingered.
+
+Mace slowly looked from Padmé to Anakin, then toward Luke and Leia, who had quietly gathered near the doorway without saying a word.
+
+After a long pause, he clipped his lightsaber back onto his belt.
+
+"This is not the outcome I hoped for."
+
+Padmé simply nodded.
+
+"I understand."
+
+Without another word, Mace turned and walked back toward his transport.
+
+Moments later, the ship lifted away from Varykino and disappeared into the Naboo sky.
+
+Inside the villa, Luke looked at his father.
+
+"Were we in trouble?"
+
+Anakin knelt beside the twins.
+
+"No."
+
+Leia looked worried.
+
+"Is Master Windu angry with us?"
+
+Anakin smiled reassuringly.
+
+"No."
+
+"He was angry with me."
+
+Padmé placed a hand on Anakin's shoulder.
+
+"And that's over now."
+
+As it turned out, she was right.
+
+The Jedi Order never again attempted to interfere with Anakin's life on Naboo.
+
+Obi-Wan continued visiting from time to time.
+
+Yoda occasionally sent kind messages through him.
+
+But after Mace Windu's visit to Varykino Villa, the Order accepted that Anakin Skywalker had chosen a different path, and they left him and his family in peace.
+
+---
+
+# Part 8
+
+The Jedi Council chamber remained unusually quiet after Mace Windu returned from Naboo.
+
+He delivered a complete account of his visit to Varykino Villa.
+
+When he reached the part about demanding that Anakin surrender the three lightsabers, several Council members exchanged uncertain glances.
+
+Then Mace described his final attempt to compel compliance.
+
+"I informed Skywalker that, if necessary, I was prepared to settle the matter through a duel."
+
+Silence filled the chamber.
+
+Yoda slowly closed his eyes.
+
+When he finally spoke, disappointment was evident in his voice.
+
+"Necessary... this was not."
+
+Mace looked toward him.
+
+"Grand Master—"
+
+Yoda raised a hand.
+
+"Listen, you will."
+
+Mace fell silent.
+
+"They were right."
+
+The chamber remained still.
+
+"On Naboo, no jurisdiction you had."
+
+Mace lowered his head slightly.
+
+"No authority over their home."
+
+He paused.
+
+"Nor over Senator Amidala's property."
+
+Mace did not answer.
+
+"To threaten a duel..."
+
+Yoda slowly shook his head.
+
+"Wrong, that was."
+
+"I believed I was protecting the Order."
+
+"I know."
+
+Yoda's tone softened.
+
+"But protecting the Order does not mean reaching beyond its place."
+
+Mace reflected on the encounter.
+
+"I let my concerns about Skywalker cloud my judgment."
+
+"Hmm."
+
+Yoda nodded.
+
+"Past actions, too heavily you weighed."
+
+Several moments passed.
+
+Finally Mace spoke quietly.
+
+"I apologize, Master Yoda."
+
+Yoda inclined his head.
+
+"Learn from this, we shall."
+
+The discussion moved on.
+
+Months later, Obi-Wan once again arrived at Varykino Villa.
+
+Luke and Leia immediately ran outside to greet him.
+
+"Uncle Obi-Wan!"
+
+He smiled broadly.
+
+"Hello again."
+
+After spending the afternoon with the family, Obi-Wan found Anakin repairing one of the villa's irrigation pumps near the gardens.
+
+"I've brought a message."
+
+Anakin looked up.
+
+"From whom?"
+
+"Master Yoda."
+
+Anakin set his tools aside.
+
+"What does he want?"
+
+"He asked whether he could come here."
+
+Anakin looked mildly surprised.
+
+"Visit?"
+
+"More than a visit."
+
+Obi-Wan smiled.
+
+"He'd like to train Luke and Leia for one week."
+
+Anakin considered the idea.
+
+"Why?"
+
+"His stated reason is that he'd like to see whether there are any blind spots in their training."
+
+"And if there are?"
+
+"He wants to fill them in."
+
+Anakin thought quietly for several moments.
+
+Then he smiled.
+
+"I think that's a good idea."
+
+"You do?"
+
+"He knows things I don't."
+
+Obi-Wan nodded.
+
+"I'll let him know."
+
+Not long afterward, Yoda arrived at Varykino Villa.
+
+His reception could not have been more different from Mace Windu's earlier visit.
+
+The old Jedi Master bowed respectfully to Padmé.
+
+"Senator."
+
+Padmé smiled warmly.
+
+"Master Yoda."
+
+He turned toward Anakin.
+
+"Skywalker."
+
+Anakin smiled.
+
+"Welcome."
+
+Luke and Leia bowed enthusiastically.
+
+"Master Yoda!"
+
+Yoda chuckled.
+
+"Grown much, both of you have."
+
+From the beginning, Yoda made no demands.
+
+He never questioned Anakin's lightsaber.
+
+He never questioned the family's way of life.
+
+Instead, he simply observed.
+
+For the first two days, he rarely interrupted.
+
+Each morning he quietly watched as Anakin guided the twins through meditation.
+
+He observed their breathing.
+
+Their concentration.
+
+The patience with which Anakin corrected mistakes.
+
+Occasionally he spoke.
+
+"Too much effort, Luke."
+
+Luke frowned.
+
+"I'm trying."
+
+"Hmm."
+
+Yoda smiled.
+
+"Trying less, try."
+
+Another time Leia struggled to sense a small object hidden somewhere in the garden.
+
+Yoda watched quietly before saying,
+
+"Listen not with your eyes."
+
+Leia closed them.
+
+A moment later she pointed directly toward the object.
+
+"There."
+
+Yoda smiled.
+
+"Good."
+
+Most of the time, however, he remained silent.
+
+He also observed life beyond training.
+
+He watched family dinners.
+
+Conversations.
+
+Laughter.
+
+Walks beside the lake.
+
+One afternoon he noticed something rather unusual.
+
+Padmé and Anakin were rowing a small boat across the lake.
+
+High above them, Luke and Leia floated through the air.
+
+Neither child was using the Force.
+
+Anakin was lifting both of them telekinetically while calmly rowing at the same time.
+
+The twins stretched out their arms and laughed as though flying.
+
+"We're faster than the birds!"
+
+Leia shouted.
+
+Luke laughed.
+
+"Invisible wings!"
+
+Padmé laughed from the boat below.
+
+"The invisible wings game again?"
+
+"It's the best game!"
+
+Yoda watched the spectacle from the shore.
+
+He slowly shook his head.
+
+"Ridiculous..."
+
+R2-D2 emitted an amused whistle beside him.
+
+Yoda smiled despite himself.
+
+"Hmm."
+
+He watched the children soar gently over the lake.
+
+"Harm, none I see."
+
+The game continued uninterrupted.
+
+Beginning on the third day, Yoda gradually took over the instruction himself.
+
+Anakin watched while standing quietly beside Padmé.
+
+Yoda introduced concepts Anakin had scarcely discussed.
+
+The deeper relationship between living beings and the Force.
+
+The importance of stillness.
+
+The difference between sensing emotion and becoming consumed by it.
+
+The many ways intuition could reveal itself.
+
+Patience.
+
+Humility.
+
+Awareness beyond immediate surroundings.
+
+Sometimes Luke grasped the lesson first.
+
+Other times Leia did.
+
+Yoda adjusted each explanation accordingly.
+
+Anakin noticed techniques he himself had never learned.
+
+One evening, after the twins had gone to bed, he approached Yoda.
+
+"I never knew that exercise."
+
+Yoda smiled.
+
+"Many paths through the Force, there are."
+
+"I've focused mostly on what I already knew."
+
+"As expected."
+
+Yoda nodded.
+
+"You teach what learned, you can."
+
+Anakin smiled.
+
+"And you know what I don't."
+
+"Hmm."
+
+At the end of the week, Yoda prepared to leave.
+
+Luke and Leia hugged him tightly.
+
+"Come back soon!"
+
+Yoda laughed softly.
+
+"When invited, perhaps."
+
+Padmé bowed respectfully.
+
+"Thank you."
+
+Yoda returned the bow.
+
+"A joy, this week was."
+
+Finally he faced Anakin.
+
+For several moments neither spoke.
+
+Then Yoda smiled.
+
+"Well done."
+
+Anakin looked genuinely surprised.
+
+"You mean that?"
+
+"I do."
+
+He looked toward the villa.
+
+"Found your path, you have."
+
+Anakin quietly nodded.
+
+"I think I finally have."
+
+Yoda departed Naboo with a peaceful mind.
+
+When he returned to Coruscant, the Jedi Council assembled once again.
+
+Obi-Wan listened with interest.
+
+Mace Windu remained silent.
+
+Yoda began his report.
+
+"Skywalker."
+
+He smiled faintly.
+
+"Well, he lives."
+
+Several Council members smiled.
+
+"The children?"
+
+Plo Koon asked.
+
+"Bright."
+
+Yoda nodded.
+
+"Disciplined."
+
+"And their training?"
+
+Shaak Ti asked.
+
+"Solid."
+
+Yoda paused.
+
+"Blind spots, yes."
+
+He smiled.
+
+"Filled many, I have."
+
+Ki-Adi-Mundi folded his hands.
+
+"So there is no cause for concern?"
+
+Yoda answered without hesitation.
+
+"None."
+
+He looked around the chamber.
+
+"The family lives peacefully."
+
+"They threaten no one."
+
+"The children learn responsibly."
+
+"They should continue."
+
+Then Yoda's expression became more serious.
+
+"One matter remains."
+
+The chamber became silent.
+
+"No Jedi..."
+
+He deliberately looked directly at Mace Windu.
+
+"...is permitted to interfere with Anakin Skywalker's life without my explicit permission."
+
+Mace met Yoda's gaze.
+
+He slowly nodded.
+
+"I understand."
+
+Yoda nodded once in return.
+
+"So ordered."
+
+From that day onward, the matter was settled.
+
+No member of the Jedi Order attempted to interfere with the Skywalker family's life on Naboo again.
+
+In the years that followed, Anakin occasionally invited Yoda back to Varykino Villa.
+
+Sometimes Yoda accepted.
+
+Other times responsibilities at the Temple kept him away.
+
+Whenever he did visit, the week was always spent much the same way.
+
+Some lessons were led by Anakin.
+
+Others by Yoda.
+
+Luke and Leia eagerly absorbed both perspectives.
+
+From their father they learned courage, initiative, practical skill, and unwavering devotion to those they loved.
+
+From Yoda they learned patience, restraint, serenity, and the quieter mysteries of the Force.
+
+Neither teacher sought to replace the other.
+
+Together, they gave the twins a broader understanding than either could have provided alone.
+
+As the years passed, Luke and Leia continued to mature in both wisdom and skill, growing up in the peaceful surroundings of Naboo with the guidance of a father who had rediscovered his purpose and a Jedi Grand Master who had come to trust that purpose completely.
