@@ -2271,3 +2271,1035 @@ The future he had feared had never arrived.
 A different future had.
 
 One that began each morning beside the quiet waters of Naboo, surrounded by the family he had fought so desperately to protect.
+
+---
+
+# Part 5
+
+The seasons passed gently over Naboo.
+
+Luke and Leia grew from fragile newborns into curious infants whose laughter echoed through the halls of Varykino Villa.
+
+The days settled into a peaceful routine.
+
+Anakin spent his mornings carrying one of the twins while the other rode happily in a floating cradle beside him. Afternoons were often spent beside the lake, where the children watched birds skim across the water or reached curiously toward flowers growing along the shoreline.
+
+Padmé remained with them through the first precious months of their lives.
+
+Then, one quiet evening after the twins had finally fallen asleep, she found Anakin sitting on the villa's balcony watching the sunset.
+
+She joined him.
+
+"I've been thinking."
+
+Anakin smiled.
+
+"About what?"
+
+"My maternity leave."
+
+He turned toward her.
+
+"I think it's gone on long enough."
+
+His smile faded slightly.
+
+"I'm ready to return to the Senate."
+
+He was quiet for a moment.
+
+"Does that mean we're all going back to Coruscant?"
+
+Padmé gently shook her head.
+
+"No."
+
+Anakin looked surprised.
+
+"No?"
+
+"I think you should stay here."
+
+He frowned.
+
+"Without you?"
+
+"With Luke and Leia."
+
+Anakin leaned back in his chair.
+
+"I thought we'd all go together."
+
+Padmé reached for his hand.
+
+"I still think it's best to keep you away from Coruscant."
+
+He sighed.
+
+"Because of the Jedi."
+
+"Yes."
+
+"I don't agree."
+
+She waited.
+
+"I've changed."
+
+"I know you have."
+
+"I don't think I'd get into a fight with them."
+
+"I hope you wouldn't."
+
+She smiled gently.
+
+"But I'd rather not put you into situations where old wounds are constantly reopened."
+
+Anakin considered that but remained unconvinced.
+
+"I still think I'd be fine."
+
+Padmé nodded.
+
+"Perhaps."
+
+She looked toward the nursery.
+
+"But there's another reason."
+
+He followed her gaze.
+
+"Naboo."
+
+She smiled.
+
+"Luke and Leia."
+
+Anakin looked through the open doorway where the twins slept peacefully.
+
+"They're safe here."
+
+He slowly nodded.
+
+"They have room to grow."
+
+"They aren't surrounded by endless traffic and government buildings."
+
+"They have gardens."
+
+"Lakes."
+
+"Open skies."
+
+Anakin smiled.
+
+"I can't argue with that."
+
+Padmé squeezed his hand.
+
+"I'll come home whenever I can."
+
+"And we'll visit Coruscant."
+
+She nodded.
+
+"You can bring the children to see me from time to time."
+
+Anakin smiled.
+
+"I think they'd enjoy seeing where their mother works."
+
+"They probably will."
+
+He laughed quietly.
+
+"They'll probably enjoy pushing every button in my office."
+
+Padmé laughed with him.
+
+"That sounds remarkably likely."
+
+Within the week, preparations had been completed.
+
+Padmé packed for Coruscant once more.
+
+Threepio accompanied her.
+
+"I shall ensure everything is properly organized, Mistress Padmé."
+
+"I know you will."
+
+R2-D2 remained with Anakin.
+
+The astromech gave Threepio a cheerful whistle before the two droids parted ways.
+
+At the landing platform, Padmé embraced Anakin tightly.
+
+"I'll be back soon."
+
+"I know."
+
+She kissed Luke.
+
+Then Leia.
+
+"I love all of you."
+
+"We love you too."
+
+The Naboo skiff lifted into the morning sky.
+
+Anakin watched until it disappeared from sight.
+
+Then he looked down at the twins in his arms.
+
+"Well..."
+
+Luke looked up at him.
+
+Leia reached toward one of the nearby flowers.
+
+"...I suppose it's just us."
+
+R2 answered with an encouraging whistle.
+
+Life settled into another new rhythm.
+
+Anakin devoted himself almost entirely to raising the twins.
+
+He discovered that there was always something to repair, somewhere to explore, or another game to invent.
+
+As the children grew older, he began making regular visits to the Naberrie household in Theed.
+
+Jobal and Ruwee always welcomed them warmly.
+
+Ryoo and Pooja eagerly waited for their younger cousins to arrive.
+
+The visits gradually became a cherished tradition.
+
+Over time, Anakin also came to know Sola much better.
+
+One afternoon, while the children played together in the Naberries' garden, Anakin and Sola sat beneath a tree watching them.
+
+Luke was chasing Ryoo through the grass.
+
+Leia and Pooja were busy arranging flowers into elaborate imaginary crowns.
+
+"They're getting so big," Sola said.
+
+"They are."
+
+Anakin smiled.
+
+"It feels like yesterday they were born."
+
+Sola nodded.
+
+For a while they simply watched the children.
+
+Then Anakin quietly said,
+
+"I miss Padmé."
+
+Sola looked at him.
+
+"I miss her too."
+
+He blinked.
+
+"You do?"
+
+She laughed softly.
+
+"Of course."
+
+"I suppose I never thought about it."
+
+"I've been missing my sister for years."
+
+She looked toward the distant skyline of Theed.
+
+"Ever since she left for Coruscant to become a senator."
+
+"That was..."
+
+"About a decade ago."
+
+Anakin thought about it.
+
+"I only really knew Senator Amidala."
+
+Sola smiled knowingly.
+
+"I knew Padmé."
+
+He looked at her curiously.
+
+"What's the difference?"
+
+Sola laughed.
+
+"You met the woman who carried the weight of the Republic."
+
+She looked toward the children.
+
+"I remember the girl who climbed trees, got muddy, argued with me over absolutely ridiculous things, and somehow always managed to talk our parents into forgiving her."
+
+Anakin laughed.
+
+"I've heard some of those stories."
+
+"I could tell you plenty more."
+
+"I'd like that."
+
+The conversation drifted from one memory to another.
+
+They spoke about Padmé as a daughter.
+
+As a sister.
+
+As a senator.
+
+As a wife.
+
+As a mother.
+
+Eventually Anakin smiled.
+
+"It's funny."
+
+"What is?"
+
+"It feels like we know two different people."
+
+Sola nodded.
+
+"We do."
+
+She smiled warmly.
+
+"And somehow they're both my sister."
+
+Not every gathering took place in Theed.
+
+As the months continued, Anakin began inviting the Naberries to Varykino Villa instead.
+
+Ryoo and Pooja loved every visit.
+
+The wide lake fascinated them.
+
+They spent hours skipping stones across the water, exploring the gardens, and racing through the open fields with Luke and Leia.
+
+"This place is amazing!" Ryoo exclaimed one afternoon.
+
+Pooja nodded enthusiastically.
+
+"It's so different from Theed."
+
+Anakin smiled as the children disappeared down another garden path.
+
+"I'm glad you like it."
+
+The villa gradually became more than simply Anakin and Padmé's home.
+
+It became a gathering place for the entire family.
+
+Years passed.
+
+Luke and Leia reached their third birthday.
+
+They had inherited different parts of each parent.
+
+Luke eagerly followed Anakin everywhere, constantly asking questions about machines, tools, and the stars overhead.
+
+Leia possessed Padmé's quiet determination and surprising ability to convince nearly anyone of almost anything.
+
+Padmé visited as often as her duties allowed.
+
+Every departure became a little more difficult.
+
+Every return became a little more joyful.
+
+Eventually, after one particularly long session in the Senate, Padmé remained alone in her office long after sunset.
+
+The Republic had changed.
+
+Under Chancellor Bail Organa's leadership, many of the worst crises following Chancellor Palpatine's death had been resolved.
+
+The government had stabilized.
+
+Important reforms had begun taking shape.
+
+Padmé looked around her office.
+
+For years she had believed she was indispensable.
+
+Now she wasn't so certain.
+
+She quietly picked up a recent holophotograph.
+
+Luke was sitting on Anakin's shoulders.
+
+Leia was laughing beside them.
+
+She realized how much of their childhood she had experienced through pictures and brief visits.
+
+She set the photograph down.
+
+The following morning she requested a meeting with Chancellor Organa.
+
+When she entered his office, he greeted her warmly.
+
+"Senator Amidala."
+
+"Chancellor."
+
+"What can I do for you?"
+
+Padmé smiled.
+
+"I've come to resign."
+
+Bail looked genuinely surprised.
+
+"Resign?"
+
+She nodded.
+
+"The Republic is stable."
+
+"We still need experienced senators."
+
+"You have them."
+
+She smiled.
+
+"And you've done an extraordinary job leading them."
+
+Bail remained silent.
+
+"I've spent many years serving the Republic."
+
+She looked out the window.
+
+"My children are growing up."
+
+"I know."
+
+"I don't want them to grow up mostly remembering visits from their mother."
+
+Bail smiled gently.
+
+"I understand."
+
+He stood and extended his hand.
+
+"The Republic owes you more than it can ever repay."
+
+Padmé accepted the handshake.
+
+"It has been an honor."
+
+Not long afterward, Padmé returned to Naboo once again.
+
+This time she brought no plans to leave again in a few weeks.
+
+When her transport landed outside Varykino Villa, Luke and Leia spotted it almost immediately.
+
+"Mother!"
+
+The twins raced across the grass as fast as their little legs could carry them.
+
+Padmé laughed as they threw themselves into her arms.
+
+"I missed you both so much."
+
+"We missed you too!"
+
+Anakin walked down from the villa a moment later.
+
+He smiled as he watched them.
+
+Padmé looked up at him.
+
+"I'm home."
+
+He embraced her.
+
+"Welcome home."
+
+For the first time in years, there was no departure already waiting somewhere on the horizon.
+
+Their family was finally together beneath one roof.
+
+Varykino Villa, once a refuge from uncertainty, had become exactly what they had hoped it would be from the very beginning.
+
+It was simply home.
+
+---
+
+# Part 6
+
+The years brought peace to Varykino Villa.
+
+Luke and Leia grew surrounded by family, open fields, and the quiet beauty of Naboo. Padmé no longer divided her time between the Senate and home. Anakin no longer spent his days haunted by fear. The life they had built became steadier with each passing season.
+
+It was during those peaceful years that another important friendship returned.
+
+Ahsoka Tano began visiting Varykino from time to time.
+
+The first visit came while Padmé was still serving in the Senate. Luke and Leia were only infants then, spending most of the afternoon asleep inside the villa.
+
+Outside, overlooking the lake, Anakin and Ahsoka sat together after months apart.
+
+For a long while they simply enjoyed the silence.
+
+Finally Ahsoka smiled.
+
+"You know..."
+
+Anakin looked over.
+
+"I was expelled from the Jedi Order too."
+
+He gave a faint smile.
+
+"I know."
+
+"I know how you feel."
+
+He looked back toward the lake.
+
+"But it's different."
+
+Ahsoka tilted her head.
+
+"How so?"
+
+"You were expelled because you were framed for something you didn't do."
+
+She nodded.
+
+"You were innocent."
+
+"I was."
+
+"I was expelled because I actually did do something wrong."
+
+Ahsoka remained quiet.
+
+"That is true."
+
+Anakin sighed.
+
+"Once your name was cleared, the Council invited you to return."
+
+"They did."
+
+"You refused."
+
+"I did."
+
+He nodded slowly.
+
+"You left on your own terms."
+
+He looked down at his hands.
+
+"I was cast out."
+
+The words lingered between them.
+
+"That's why it's different."
+
+Ahsoka watched him for several moments before speaking again.
+
+"Different doesn't mean I can't understand part of it."
+
+He glanced at her.
+
+"I still think I can help you."
+
+Anakin smiled faintly.
+
+"I'd like that."
+
+The conversation drifted naturally toward the subject both of them had quietly avoided.
+
+"My lightsaber."
+
+Ahsoka immediately understood.
+
+"You miss it."
+
+"It wasn't just a weapon."
+
+"I know."
+
+"When Master Windu confiscated it..."
+
+He struggled to find the words.
+
+"...it felt like he took away part of who I was."
+
+Ahsoka rested her elbows on the stone railing.
+
+"I still have mine."
+
+Anakin smiled.
+
+"I know."
+
+He laughed quietly.
+
+"The last thing I ever did as a Jedi..."
+
+He looked toward her belt.
+
+"...was return them to you."
+
+She unclipped one of the lightsabers and held it in her hands.
+
+"You upgraded them."
+
+"I thought blue suited you."
+
+She smiled.
+
+"I liked them."
+
+She looked thoughtfully at the weapon.
+
+"I used these on Mandalore."
+
+Anakin looked interested.
+
+"Against Maul."
+
+"You fought him?"
+
+"I did."
+
+"How did it go?"
+
+"We dueled through the city."
+
+She smiled faintly.
+
+"He was as dangerous as everyone claimed."
+
+"And?"
+
+"I captured him."
+
+Anakin's eyebrows rose.
+
+"You actually captured Maul?"
+
+She nodded.
+
+"I brought him into Republic custody."
+
+"What happened afterward?"
+
+"He's imprisoned in a secure facility on Coruscant."
+
+Anakin nodded thoughtfully.
+
+"And Mandalore?"
+
+"Bo-Katan Kryze rules there now."
+
+He smiled.
+
+"That's good."
+
+Ahsoka clipped the lightsaber back onto her belt.
+
+"After Mandalore..."
+
+She shrugged.
+
+"...I kept the lightsabers."
+
+"You never returned them."
+
+"There wasn't anywhere to return them to."
+
+She smiled.
+
+"So I just kept doing my own thing."
+
+"No Jedi."
+
+"No."
+
+"No Republic."
+
+"No."
+
+She looked around the peaceful villa.
+
+"I've found that freedom suits me."
+
+Over the following years, Ahsoka became a familiar guest at Varykino.
+
+Luke and Leia adored her.
+
+She happily taught them games, explored the lakeshore with them, and occasionally demonstrated impossible acrobatic tricks that left both children staring in amazement.
+
+By the time Luke and Leia reached 6 years of age, another visit brought a very different conversation.
+
+The twins were racing through the gardens while Padmé prepared lunch inside the villa.
+
+Anakin and Ahsoka stood beneath one of the large trees overlooking the lake.
+
+"I've been thinking."
+
+Ahsoka smiled.
+
+"That usually means you're about to ask me for something."
+
+He laughed.
+
+"Probably."
+
+"What is it?"
+
+"I want to train Luke and Leia."
+
+She nodded.
+
+"I was wondering when you'd say that."
+
+"They're old enough to begin learning."
+
+"I agree."
+
+He folded his arms.
+
+"There's just one problem."
+
+"They don't have lightsabers."
+
+"Exactly."
+
+Ahsoka waited.
+
+"I remember Ilum."
+
+"So do I."
+
+"I remember almost everything about going there."
+
+He frowned.
+
+"Except where it actually is."
+
+She couldn't help laughing.
+
+"You forgot the coordinates?"
+
+"I did."
+
+"And now I can't exactly walk into the Jedi Temple and ask."
+
+"Fair point."
+
+She thought for only a moment.
+
+"I still know where it is."
+
+"You do?"
+
+"I escorted a group of younglings there during the Clone Wars."
+
+She pulled out a small datapad.
+
+"I've still got the navigation records."
+
+After entering a series of coordinates, she handed the datapad to Anakin.
+
+"There."
+
+He looked down at the display.
+
+"Thank you."
+
+She smiled.
+
+"I think they'll enjoy the journey."
+
+About a week after Ahsoka's visit, the Skywalker family departed Naboo together.
+
+The voyage to Ilum passed peacefully.
+
+When they finally entered the crystal caves, the air itself seemed alive with the Force.
+
+Luke looked around in amazement.
+
+"It's beautiful."
+
+Leia whispered,
+
+"It feels... different."
+
+Anakin smiled.
+
+"Listen."
+
+The twins looked toward him.
+
+"Don't search."
+
+He gently placed a hand over his chest.
+
+"Let the crystal find you."
+
+The children separated and wandered into different passages.
+
+Padmé remained beside Anakin.
+
+After some time, Luke returned first.
+
+Carefully held in both hands was a green kyber crystal.
+
+"It called to me."
+
+Anakin smiled proudly.
+
+"I know."
+
+Not long afterward Leia emerged from another passage.
+
+A pale blue crystal rested in her palm.
+
+Padmé smiled.
+
+"You found yours too."
+
+Leia nodded enthusiastically.
+
+"It was waiting for me."
+
+The family prepared to leave.
+
+Then Anakin unexpectedly stopped walking.
+
+Padmé noticed.
+
+"What is it?"
+
+He looked back toward the crystal caves.
+
+"I've been thinking."
+
+She waited.
+
+"I'd like one too."
+
+Padmé considered the request carefully.
+
+She remembered the conversation years earlier.
+
+The loss of his lightsaber.
+
+His struggle to redefine himself.
+
+Everything he had built since then.
+
+Finally she smiled.
+
+"You've been without one for a long time."
+
+He nodded.
+
+"You've built a new life."
+
+"I have."
+
+"A new identity."
+
+He smiled.
+
+"I think so."
+
+She gently squeezed his hand.
+
+"I don't think having a lightsaber again is going to erase that."
+
+He looked at her.
+
+"So..."
+
+"So go."
+
+He smiled more broadly than she had seen in days.
+
+"Thank you."
+
+Anakin walked quietly back into the caves.
+
+He did not search.
+
+He simply listened.
+
+Eventually one crystal answered.
+
+When he returned, a blue kyber crystal rested in his hand.
+
+The family departed Ilum together.
+
+Back at Varykino Villa, the dining table disappeared beneath carefully arranged tools, components, emitters, focusing lenses, wiring, and polished metal casings.
+
+For the next several days Anakin guided Luke and Leia through every step of constructing their own lightsabers.
+
+"There."
+
+He adjusted one of Luke's components.
+
+"Now connect the power cell."
+
+Luke concentrated intensely.
+
+"Like this?"
+
+"Exactly."
+
+Across the table Leia was fitting together her emitter assembly.
+
+"I think mine is crooked."
+
+Anakin leaned over.
+
+"It only looks crooked."
+
+She adjusted it anyway.
+
+"There."
+
+"Much better."
+
+At the same time, Anakin quietly assembled his own lightsaber beside theirs.
+
+Padmé watched from nearby, smiling as all three became completely absorbed in their work.
+
+Finally the day came.
+
+Three finished lightsabers rested upon the table.
+
+Anakin looked at his children.
+
+"Ready?"
+
+Luke grinned.
+
+"Ready."
+
+Leia nodded excitedly.
+
+"Ready."
+
+Anakin grabbed his new lightsaber from the table and stood.
+
+"Together."
+
+The three of them ignited their weapons simultaneously.
+
+A brilliant blue blade extended from Anakin's hilt.
+
+Luke's lightsaber sprang to life with a bright green blade.
+
+Leia's ignited in a soft light blue.
+
+The three humming blades illuminated the room.
+
+Padmé smiled.
+
+"They're beautiful."
+
+Anakin quietly looked at his own lightsaber.
+
+Years earlier he had believed that losing one meant losing part of himself forever.
+
+Now he realized something different.
+
+He had not recovered his old life.
+
+He had carried its best parts forward into a new one.
+
+Not long afterward, training began.
+
+Each morning started with meditation.
+
+"Close your eyes," Anakin instructed.
+
+Luke peeked with one eye.
+
+"I did."
+
+"You've still got one open."
+
+Luke quickly shut it.
+
+Leia giggled.
+
+Anakin smiled.
+
+"Feel the Force."
+
+The lessons gradually expanded.
+
+He taught them to sense life around them.
+
+To recognize small disturbances in the Force.
+
+To move tiny objects with gentle telekinesis.
+
+To trust brief flashes of instinct instead of overthinking every movement.
+
+Only after they had built solid foundations did he introduce lightsaber training.
+
+He activated the low-power setting built into each weapon.
+
+The blades shortened slightly, their intensity reduced until they matched the harmless energy of traditional training sabers.
+
+"This form is called Shii-Cho."
+
+Luke eagerly copied every movement.
+
+Leia practiced more carefully, repeating each stance until she was satisfied.
+
+"Very good," Anakin said.
+
+Luke smiled.
+
+"Can we spar?"
+
+"You may."
+
+The twins crossed blades.
+
+Their laughter echoed through the training room.
+
+Padmé watched from the doorway.
+
+"They're enjoying this."
+
+"They are."
+
+Anakin smiled.
+
+"So am I."
+
+He watched Luke and Leia continue practicing together.
+
+For years he had believed that the chapter of his life as a Jedi had ended with loss.
+
+Instead, standing there with his children, he found that the knowledge, discipline, and compassion he had learned all those years before still had purpose.
+
+Not because they connected him to the past.
+
+Because they gave him something meaningful to pass on to the next generation.
