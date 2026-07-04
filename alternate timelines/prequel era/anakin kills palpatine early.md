@@ -2869,3 +2869,851 @@ Yoda smiled.
 "Welcome back, Master Billaba."
 
 And so Depa Billaba officially returned to the Jedi High Council, filling the seat left vacant by Anakin Skywalker's departure and becoming once again one of the twelve Masters entrusted with guiding the Jedi Order into a new era.
+
+---
+
+# Alternate Ending: Part 6
+
+Obi-Wan Kenobi's injuries proved severe, but they were not beyond the capabilities of Coruscant's finest medical facilities.
+
+The Skywalkers, Ahsoka, and the droids rushed him back to the capital as quickly as possible after the battle on Malastare. Jedi healers and civilian physicians worked together for hours, repairing the devastating wounds Maul had inflicted.
+
+The recovery was slow.
+
+Fortunately, it was successful.
+
+While Obi-Wan remained under medical supervision, the rest of the group returned to the Skywalker apartment.
+
+For the first time in many years, the galaxy no longer contained anyone who could reasonably claim the mantle of Sith Lord.
+
+Count Dooku was dead.
+
+Darth Sidious was dead.
+
+Maul was dead.
+
+The realization settled over the room with surprising quiet.
+
+"So..." Ahsoka finally said, "...that's really the end."
+
+Anakin nodded slowly.
+
+"I think it is."
+
+Padmé looked out over the Coruscant skyline.
+
+"The galaxy has been living in the shadow of the Sith without even knowing it."
+
+"And now?" Ahsoka asked.
+
+Padmé smiled faintly.
+
+"Now maybe people can finally start living again."
+
+The conversation gradually drifted away from war.
+
+They laughed about the recent trip to Naboo.
+
+Padmé recalled Luke's fascination with the fountains of Theed.
+
+Anakin joked that Leia already seemed determined to command everyone around her.
+
+Ahsoka teased C-3PO about nearly falling into the lake at Varykino.
+
+"It was a highly dangerous situation," Threepio protested.
+
+R2-D2 emitted an amused whistle.
+
+Threepio looked offended.
+
+"I most certainly disagree with your assessment."
+
+Laughter filled the apartment.
+
+Eventually, however, the conversation became more serious.
+
+Padmé looked toward Anakin.
+
+"We can't keep pretending forever."
+
+Anakin knew immediately what she meant.
+
+"Our family."
+
+She nodded.
+
+"It was difficult before."
+
+She glanced toward the nursery where Luke and Leia slept peacefully.
+
+"Now it's almost impossible."
+
+Ahsoka looked between them.
+
+Outside the apartment, very few people understood the full truth.
+
+Officially, Anakin Skywalker remained one of the Republic's most celebrated Jedi Masters.
+
+Padmé Amidala remained a senator.
+
+Only a handful of individuals knew that they were husband and wife.
+
+Only Ahsoka had known the complete truth from the beginning.
+
+Now another person had joined that small circle.
+
+Obi-Wan.
+
+Anakin sighed.
+
+"I kept the twins hidden from him ever since they were born."
+
+"You couldn't anymore," Padmé replied.
+
+"Not after Malastare."
+
+Anakin nodded.
+
+When Obi-Wan had been carried into the skiff, Luke and Leia had been there.
+
+There had been no opportunity to conceal them.
+
+No explanation other than the obvious.
+
+"He's going to mention it eventually," Ahsoka observed.
+
+"Whether he means to or not."
+
+"I know."
+
+Silence followed.
+
+Then Ahsoka leaned forward.
+
+"Maybe you should tell the Council yourself."
+
+Anakin looked at her as though she had suggested resigning from the Jedi Order.
+
+"They'll expel me."
+
+"I'm not so sure."
+
+"They absolutely will."
+
+Ahsoka shook her head.
+
+"You exposed Darth Sidious."
+
+"You helped defeat Maul."
+
+"You're the Chosen One."
+
+She folded her arms.
+
+"Do you really think they're eager to expel someone who's done all of that?"
+
+Anakin hesitated.
+
+"I... hadn't thought about it that way."
+
+"You might receive an exemption."
+
+Anakin frowned.
+
+"I don't want an exemption."
+
+"What do you want?"
+
+"I want the rule changed."
+
+Padmé and Ahsoka both looked at him.
+
+"The rule itself."
+
+He stood and began pacing.
+
+"What if relationships didn't have to be hidden anymore?"
+
+He stopped.
+
+"You once told me about Lux Bonteri."
+
+Ahsoka smiled.
+
+"I did."
+
+"You cared about him."
+
+"I did."
+
+"And I can't believe we're the only ones."
+
+The thought seemed to gather momentum as he spoke.
+
+"How many Jedi have hidden relationships?"
+
+"How many have kept quiet because they're afraid?"
+
+"If everyone came forward..."
+
+He looked toward Padmé.
+
+"...maybe the Code itself could change."
+
+Ahsoka slowly nodded.
+
+"You might be right."
+
+—
+
+Several days later Obi-Wan had recovered sufficiently to leave the medical center.
+
+His first invitation was to the Skywalker apartment.
+
+He accepted immediately.
+
+The atmosphere was relaxed.
+
+There was no longer any point pretending Luke and Leia belonged to someone else.
+
+Obi-Wan had already seen everything.
+
+The twins were introduced properly.
+
+Obi-Wan held each of them in turn.
+
+"They have your eyes," he told Anakin.
+
+"And Padmé's determination, if their parents are to be believed."
+
+The conversation soon turned to the future.
+
+Anakin explained the idea that had taken shape after Malastare.
+
+Changing the Jedi Code.
+
+Ending the prohibition on attachment, romance, and marriage.
+
+To his surprise, Obi-Wan did not dismiss the proposal.
+
+Instead, he became unusually quiet.
+
+Finally he spoke.
+
+"There is something I never told either of you."
+
+Anakin and Ahsoka listened.
+
+"I loved Satine Kryze."
+
+The room became completely still.
+
+Obi-Wan spoke calmly.
+
+He described his years with the Duchess of Mandalore.
+
+He admitted that, had circumstances been different, he would have left the Jedi Order to be with her.
+
+He described losing her.
+
+The grief remained visible despite the years that had passed.
+
+When he finished, Anakin sat silently.
+
+"So it wasn't just me."
+
+"No."
+
+Ahsoka smiled gently.
+
+"I had a feeling."
+
+Obi-Wan returned a faint smile.
+
+"You may be right about something, Anakin."
+
+"What?"
+
+"We're probably not alone."
+
+After some further discussion, Obi-Wan agreed to support the effort.
+
+Then another thought occurred to him.
+
+"If we're doing this..."
+
+He looked at Anakin.
+
+"...we should speak with Quinlan Vos."
+
+"You know something?"
+
+"I know enough."
+
+Obi-Wan explained that Quinlan had loved Asajj Ventress.
+
+He had personally accompanied Quinlan in returning Ventress's body to Dathomir after she sacrificed herself to save him.
+
+The others exchanged surprised looks.
+
+Another secret.
+
+Another relationship.
+
+Quinlan was contacted.
+
+He agreed almost immediately.
+
+—
+
+As members of the Jedi Council, Anakin Skywalker and Obi-Wan Kenobi possessed the authority to request a special meeting.
+
+The Council assembled.
+
+Present as invited guests were Padmé Amidala, Ahsoka Tano, and Quinlan Vos.
+
+Yoda looked around the chamber.
+
+"Purpose of this meeting?"
+
+Anakin stepped forward.
+
+"We seek a reform of the Jedi Code."
+
+Murmurs spread among the Masters.
+
+"The prohibition on attachment, romance, and marriage should be reconsidered."
+
+Obi-Wan continued.
+
+"We believe many Jedi already maintain such relationships in secret."
+
+"If so," Anakin added, "the current rule is not preventing attachment."
+
+"It is only forcing honesty underground."
+
+The chamber fell silent.
+
+Yoda considered this carefully.
+
+"Examples?"
+
+Ahsoka immediately stepped forward.
+
+"I'll begin."
+
+Since she was no longer a member of the Jedi Order, she had nothing to fear.
+
+She described her relationship with Lux Bonteri.
+
+She spoke openly about how they had met during the war.
+
+How they had grown close.
+
+How, eventually, life had carried them in different directions.
+
+"The relationship ended naturally," she concluded.
+
+"But it was real."
+
+Several Council members exchanged thoughtful looks.
+
+Next came Obi-Wan.
+
+His revelation concerning Satine Kryze surprised nearly everyone.
+
+Few Masters had ever suspected the depth of those feelings.
+
+By the time he finished, even some of the more conservative members appeared deeply moved.
+
+Then Quinlan Vos spoke.
+
+He explained his love for Asajj Ventress.
+
+The Council had long known Ventress sacrificed herself to save him.
+
+What they had never realized was why.
+
+Viewed through the lens of romance, many past events suddenly acquired new meaning.
+
+The Council quietly reconsidered years of assumptions.
+
+Finally Anakin stepped forward.
+
+He looked toward Padmé.
+
+She nodded.
+
+He took a deep breath.
+
+"I married Senator Padmé Amidala."
+
+The chamber became utterly silent.
+
+Padmé then addressed the Council herself.
+
+She described what it had been like living in secrecy.
+
+The constant fear.
+
+The careful lies.
+
+The strain of hiding a marriage from friends and colleagues.
+
+"The Code doesn't affect only Jedi," she said.
+
+"It affects everyone who loves them."
+
+Some Council members now viewed Anakin's case differently from the others.
+
+Unlike the previous relationships, his was ongoing.
+
+Unlike the others, it had resulted in marriage.
+
+Several Masters quietly began discussing disciplinary measures.
+
+Before anyone reached a conclusion, another voice interrupted.
+
+"If we're telling the truth..."
+
+Every head turned.
+
+Kit Fisto stood.
+
+"I should tell mine as well."
+
+Silence returned.
+
+"I have been in a romantic relationship with Jedi Master Aayla Secura."
+
+No one spoke.
+
+The revelation stunned the chamber.
+
+Not only was the relationship current—
+
+—it involved two Jedi Masters.
+
+One of them sat on the Council itself.
+
+Yoda stared at Kit.
+
+Mace Windu blinked in visible surprise.
+
+Kit remained composed.
+
+"I support the proposed reform."
+
+Aayla Secura was immediately summoned.
+
+Already present within the Temple, she arrived only minutes later.
+
+She confirmed everything.
+
+Then she addressed the Council.
+
+"There is no conflict between love and service."
+
+"There is only conflict between love and secrecy."
+
+The effect was profound.
+
+Now five different relationships had been laid before the Council.
+
+Ahsoka and Lux.
+
+Obi-Wan and Satine.
+
+Quinlan and Ventress.
+
+Anakin and Padmé.
+
+Kit and Aayla.
+
+The pattern could no longer be dismissed as isolated incidents.
+
+Three members of the twelve-member Council itself—Anakin, Obi-Wan, and Kit Fisto—now openly advocated reform.
+
+The debate continued for hours.
+
+Even Yoda found himself reflecting upon what he had heard.
+
+Eventually he spoke.
+
+"Driven underground, these bonds have been."
+
+"Prevented... they have not."
+
+The room remained silent.
+
+After further deliberation, the Council reached its decision.
+
+The reform passed.
+
+The Jedi Code would no longer forbid romantic relationships or marriage.
+
+For a long moment, nobody moved.
+
+Then smiles began to spread across the room.
+
+Padmé embraced Anakin.
+
+Ahsoka laughed openly.
+
+Obi-Wan smiled with a sense of peace he had not felt in many years.
+
+Quinlan bowed his head in quiet gratitude.
+
+Kit and Aayla exchanged a look that no longer needed to be hidden.
+
+The Jedi Order had changed.
+
+—
+
+The consequences became visible almost immediately.
+
+In the days that followed, Jedi throughout the Order began voluntarily disclosing relationships that had previously been kept secret.
+
+Some were current.
+
+Others belonged to years long past.
+
+Stories emerged from every corner of the Temple.
+
+Former romances.
+
+Quiet marriages.
+
+Lifelong partnerships.
+
+Brief but meaningful relationships.
+
+Anakin watched the steady stream of revelations with amazement.
+
+His suspicion had been entirely correct.
+
+The prohibition had not eliminated attachment.
+
+It had merely concealed it.
+
+Even some of the Council's strongest traditionalists began reconsidering their assumptions.
+
+Mace Windu observed the disclosures with growing reflection.
+
+Ki-Adi-Mundi, who had long navigated his own complex obligations between Jedi service and his culturally sanctioned family responsibilities, likewise acknowledged that the old system had failed to accomplish what it claimed.
+
+The evidence had become impossible to ignore.
+
+The Jedi had never truly been free of attachment.
+
+They had simply become experts at hiding it.
+
+By bringing those relationships into the open, the Order found itself built upon greater honesty than it had known for generations.
+
+The reform ceased to be an experiment.
+
+It became the beginning of a lasting transformation in the life of the Jedi Order.
+
+---
+
+# Alternate Ending: Part 7
+
+The reform of the Jedi Code quickly began reshaping life within the Temple.
+
+Among the first to embrace the new openness were Kit Fisto and Aayla Secura.
+
+Only a short time after the Council's decision, they publicly announced their intention to marry.
+
+The announcement generated excitement throughout the Temple.
+
+For thousands of years, the Jedi had never celebrated an openly acknowledged marriage between two members of the Order.
+
+Now not only would such a marriage take place, but both participants were respected Jedi Masters, one of whom sat on the Jedi Council.
+
+The wedding was held within the Temple itself.
+
+Jedi of every rank gathered to witness the historic occasion.
+
+Masters, Knights, Padawans, Initiates, and Temple staff filled the ceremonial hall.
+
+Anakin and Padmé attended together openly for the first time.
+
+Obi-Wan stood nearby with Ahsoka.
+
+Yoda, Mace Windu, and the rest of the Council watched from places of honor.
+
+As part of the celebration, Kit and Aayla observed a long-standing Jedi martial tradition.
+
+Their lightsabers were adjusted to low-power training settings, ensuring that even direct strikes would not inflict serious injury.
+
+The ceremonial duel began.
+
+The two Masters fought with obvious familiarity.
+
+Neither held back.
+
+Elegant Form I and Form IV sequences blended with Kit's fluid aquatic-inspired movements and Aayla's graceful Ataru technique.
+
+The spectators watched in appreciative silence.
+
+The duel remained evenly matched from beginning to end.
+
+Finally Aayla found the narrowest of openings.
+
+With a precise movement, she touched her blade against Kit's shoulder before he could recover.
+
+The duel ended.
+
+Kit laughed.
+
+"I surrender."
+
+Aayla smiled.
+
+The Temple erupted into applause.
+
+The first openly married Jedi couple embraced before their friends and fellow Jedi.
+
+It was a day many believed marked the beginning of a new era for the Order.
+
+—
+
+For several months afterward, Kit and Aayla appeared to embody everything the reformers had hoped for.
+
+They continued their Jedi duties while openly sharing their lives together.
+
+Many younger Jedi found encouragement in seeing two accomplished Masters balancing marriage with service to the Force.
+
+Then an unexpected complication arose.
+
+Aayla became pregnant.
+
+Neither of them had anticipated it.
+
+Given that Kit was a Nautolan and Aayla a Twi'lek, they had not even known whether children between their species were biologically possible.
+
+At first they approached the situation calmly.
+
+"We'll simply see what happens," Kit said.
+
+Aayla agreed.
+
+Neither wished to rush into assumptions.
+
+Within weeks, however, something changed.
+
+Aayla became increasingly ill.
+
+At first she dismissed it as an unusually difficult pregnancy.
+
+Soon the symptoms became impossible to ignore.
+
+She grew weaker by the day.
+
+Kit immediately took her to one of Coruscant's foremost medical facilities.
+
+Teams of physicians and specialists examined her extensively.
+
+Eventually they reached a conclusion.
+
+The lead physician spoke carefully.
+
+"Master Secura... your condition is extremely serious."
+
+Kit reached for Aayla's hand.
+
+The physician continued.
+
+"Twi'lek anatomy is not well suited to carrying a hybrid child with a Nautolan."
+
+Silence filled the examination room.
+
+"If the pregnancy continues," the physician said, "there is a high probability that you will not survive."
+
+Aayla remained composed.
+
+"And the child?"
+
+"The fetus also has a very poor chance of surviving to term."
+
+The physician paused before delivering the final recommendation.
+
+"We strongly advise terminating the pregnancy immediately."
+
+Kit looked down.
+
+"The procedure?"
+
+"It carries risks."
+
+"How serious?"
+
+"We believe it offers the best chance of saving Master Secura's life."
+
+The physician hesitated.
+
+"But because of the complications already present... we cannot guarantee the outcome."
+
+Aayla absorbed the information quietly.
+
+She and Kit thanked the medical staff for their honesty.
+
+Before consenting to any procedure, however, they decided to seek another opinion.
+
+This time from the Jedi healers.
+
+—
+
+Within the Temple's healing halls, experienced Jedi healers examined Aayla through both medicine and the Force.
+
+After lengthy consultation, they believed another approach might be possible.
+
+One of the senior healers explained.
+
+"The Force may allow us to avoid conventional surgery."
+
+Word eventually reached Yoda.
+
+The Grand Master joined the consultation personally.
+
+After meditating beside Aayla for a long time, he finally spoke.
+
+"Separate presences in the Living Force, separate living beings possess."
+
+He closed his eyes again.
+
+"The child... its own signature has."
+
+Working together, Yoda and the Temple healers carefully distinguished the Force signature of Aayla from that of the unborn child.
+
+Once the distinction became clear, Yoda began discussing an ancient technique known to only a handful of Jedi Masters.
+
+"There exists a way," he said, "to pour raw Force energy into a living being."
+
+The gathered healers listened attentively.
+
+"When enough gathered is, become one with the Cosmic Force, that being may."
+
+The room fell silent.
+
+After further reflection, however, Yoda shook his head.
+
+"No."
+
+The healers looked toward him.
+
+"From outside, impossible this is."
+
+He explained his reasoning.
+
+Any attempt by another Jedi to direct sufficient Force energy into the fetus would necessarily require passing that energy through Aayla herself.
+
+The amount of power involved might fatally injure her before ever reaching its intended target.
+
+"There is another way," Yoda said.
+
+He looked directly at Aayla.
+
+"You must learn."
+
+Over the following week, Yoda instructed her personally.
+
+The training proved unlike anything Aayla had experienced before.
+
+Rather than projecting the Force outward, she learned to gather immense quantities of raw Force energy within herself while maintaining extraordinary precision.
+
+Kit remained beside her throughout every lesson.
+
+As he observed the instruction, he gradually began learning the technique as well.
+
+Yoda permitted it.
+
+"It may serve you someday," the Grand Master said.
+
+By the end of the week, Aayla believed she understood.
+
+Yoda asked one final question.
+
+"Ready, are you?"
+
+She nodded.
+
+"I am."
+
+The Temple healers assembled around her.
+
+Kit stood close by.
+
+Aayla closed her eyes.
+
+She reached inward.
+
+The Force flowed through her.
+
+Slowly at first.
+
+Then in ever greater quantities.
+
+The gathered energy remained entirely under her control.
+
+She focused upon the separate presence Yoda had taught her to recognize.
+
+The fetus.
+
+Without hesitation, she directed the accumulated Force energy toward it.
+
+For several long moments, no one spoke.
+
+Then the separate presence within the Living Force gradually faded.
+
+Its physical existence dissolved completely into the Cosmic Force.
+
+The process ended.
+
+Aayla opened her eyes.
+
+Almost immediately she noticed the difference.
+
+The pain was gone.
+
+The weakness disappeared.
+
+Within minutes, the alarming symptoms that had plagued her for weeks had completely subsided.
+
+The healers examined her carefully.
+
+Her condition had stabilized.
+
+She would recover.
+
+Kit embraced her with visible relief.
+
+Neither spoke for several moments.
+
+There was nothing that needed saying.
+
+—
+
+After Aayla had fully recovered, she and Kit spent a long evening together overlooking the Temple gardens.
+
+Neither regretted the marriage.
+
+Neither regretted the reform.
+
+But both recognized the lesson they had learned.
+
+Kit finally broke the silence.
+
+"I don't think we should ever try that again."
+
+Aayla smiled gently.
+
+"I was thinking exactly the same thing."
+
+They agreed together that they would never again attempt to have children.
+
+Their lives would remain devoted to one another, to the Jedi Order, and to the service of the Force.
+
+The difficult experience strengthened rather than weakened their commitment to each other.
+
+Though the path they had envisioned had changed, they walked forward together, grateful that they still had the opportunity to do so.
