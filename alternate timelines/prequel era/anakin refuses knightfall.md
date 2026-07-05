@@ -2406,6 +2406,862 @@ Padmé reminded the Senate that Anakin himself had revealed Palpatine's true ide
 
 Mon Mothma emphasized that Palpatine had spent years undermining the Republic's institutions.
 
+The debate continued.
+
+Senators rose one after another, each offering a different interpretation of the events.
+
+Some argued that Anakin Skywalker had saved the Republic from a Sith Lord.
+
+Others insisted that the death of a sitting Supreme Chancellor demanded the most thorough legal scrutiny possible, regardless of the circumstances.
+
+Hours passed.
+
+No consensus emerged.
+
+Eventually, the presiding officer stood.
+
+"The Senate has heard extensive testimony today."
+
+He looked around the vast chamber.
+
+"However, it is clear that many questions remain unanswered."
+
+"Motions have been made requesting additional investigation into the events surrounding Chancellor Palpatine's death."
+
+"The Senate should be given ample time to conduct that investigation."
+
+He paused.
+
+"This process may take up to weeks."
+
+A murmur spread through the chamber.
+
+"During that period, Anakin Skywalker shall be placed under house arrest pending the conclusion of the investigation."
+
+The chamber remained quiet as the presiding officer looked toward Anakin.
+
+"Mr. Skywalker, please provide the Senate with the address at which you intend to remain."
+
+Anakin answered without hesitation.
+
+"574 Republica, Unit 5103."
+
+The presiding officer consulted a datapad.
+
+"The address you have provided is registered as the official residence of Senator Padmé Amidala."
+
+Several senators immediately looked toward Padmé.
+
+The presiding officer looked back at Anakin.
+
+"May we ask why you are requesting to reside there during your house arrest?"
+
+Before Anakin could answer, Padmé stepped forward.
+
+"Because he is my husband."
+
+The chamber fell silent.
+
+Even several senators who had followed the entire hearing closely looked genuinely surprised.
+
+Throughout the proceedings, every witness had carefully avoided mentioning Anakin and Padmé's relationship.
+
+Now there was no reason to conceal it any longer.
+
+Padmé continued calmly.
+
+"We have been secretly married for some time."
+
+"I am willing to have him remain under house arrest in my apartment for as long as the Senate requires."
+
+The presiding officer glanced around the chamber before nodding.
+
+"Very well, then."
+
+"The Senate accepts Senator Amidala's statement."
+
+He struck his gavel.
+
+"Anakin Skywalker is remanded to house arrest at Senator Amidala's residence pending the completion of the Senate's investigation."
+
+"This session is adjourned."
+
+The chamber slowly emptied as senators departed in small groups, already discussing the day's revelations.
+
+Anakin and Padmé exchanged a quiet glance.
+
+Neither of them spoke until they had left the Senate Building behind.
+
+Together, they boarded Padmé's airspeeder and returned to the apartment, where Anakin's weeks of house arrest would begin while the Senate sought to determine exactly what had happened in the Chancellor's office.
+
+---
+
+# Part 6
+
+The first few days of house arrest passed more slowly than Anakin had imagined possible.
+
+He had spent much of his life in constant motion.
+
+As a Padawan, every day had brought another lesson, another mission, another challenge.
+
+As a Jedi Knight during the Clone Wars, there had always been another battlefield waiting, another crisis demanding his attention.
+
+Now there was nowhere to go.
+
+The Senate had ordered him to remain inside Padmé's apartment until its investigation was complete.
+
+The irony was not lost on him.
+
+He had dreamed for years of spending uninterrupted time with Padmé.
+
+Now he finally had it.
+
+And he was discovering that reality was far more complicated than the fantasy.
+
+With no campaigns to distract him, he began noticing things he had never paid attention to before.
+
+Padmé's mornings followed a careful routine.
+
+She read reports over breakfast.
+
+She liked to organize her work before beginning it instead of improvising.
+
+She approached disagreements by asking questions instead of immediately arguing.
+
+She preferred patience where he preferred action.
+
+She often sat quietly thinking for several minutes before making a decision.
+
+Anakin found the silence almost unbearable.
+
+He solved problems by moving.
+
+Padmé solved problems by thinking.
+
+They approached almost everything differently.
+
+One afternoon, after another lengthy discussion over something as ordinary as how to organize correspondence from Naboo, Anakin finally sighed dramatically.
+
+"Padmé..."
+
+She looked up from her datapad.
+
+"Yes?"
+
+He leaned back in his chair.
+
+"I cannot believe that I am telling you this."
+
+She smiled.
+
+"What?"
+
+"You are the most beautiful senator ever..."
+
+He rubbed his forehead.
+
+"...but, Padmé..."
+
+She raised an eyebrow.
+
+"...you can be a bit of a headache sometimes."
+
+Padmé burst into laughter.
+
+"Oh?"
+
+She leaned back in her own chair.
+
+"You just realized?"
+
+Anakin laughed despite himself.
+
+"You know..."
+
+His smile slowly faded.
+
+"My life just changed forever."
+
+"I've just lost the Jedi."
+
+He stared out the apartment window toward the endless skyline of Coruscant.
+
+"That's where I grew up."
+
+"That's where I belonged."
+
+"I thought..."
+
+He looked back at her.
+
+"...that since I still had you, everything would be fine."
+
+He spread his hands.
+
+"Then I realized getting stuck in an apartment with you all day long isn't that great."
+
+Padmé smiled sympathetically rather than taking offense.
+
+"Anakin..."
+
+"I think it's because you don't actually know me all that well."
+
+He blinked.
+
+"What?"
+
+"For our entire relationship, you've gone from battlefield to battlefield."
+
+"From campaign to campaign."
+
+She set her datapad aside.
+
+"I think you've been riding on the excitement of secrecy all these years."
+
+"You were always chasing reunions."
+
+Anakin listened quietly.
+
+"You were always thinking about the kiss you'd get when you saw me again after your current campaign."
+
+She smiled warmly.
+
+"And I was looking forward to seeing you too."
+
+"But..."
+
+Her expression became more thoughtful.
+
+"...we can't build our relationship on kisses."
+
+Anakin remained silent.
+
+Padmé continued.
+
+"I noticed this a long time ago."
+
+"I didn't say anything."
+
+"The war was already difficult enough."
+
+"We barely had any time together."
+
+"I didn't want to create another problem."
+
+She looked directly at him.
+
+"But deep down..."
+
+"...I've always known that you didn't truly understand me."
+
+Anakin frowned.
+
+"What do you mean?"
+
+"When you first met me..."
+
+She smiled at the memory.
+
+"...you called me an angel."
+
+"You said I was the most beautiful thing you'd ever seen."
+
+Anakin smiled sheepishly.
+
+"I did."
+
+"And then you carried that impression of me forward."
+
+She tilted her head.
+
+"When we met again ten years later..."
+
+She quoted him perfectly.
+
+"'You haven't changed a bit. You're exactly the way I remember you in my dreams.'"
+
+Anakin looked down.
+
+"I remember saying that."
+
+"I remember hearing it."
+
+She spoke gently.
+
+"That's when I realized you'd built a version of me in your head."
+
+"A version you'd been holding onto."
+
+"But it wasn't really me."
+
+She smiled kindly.
+
+"Anakin..."
+
+"Do you honestly think I could have gone ten years without changing at all?"
+
+He hesitated.
+
+"Maybe I was exaggerating."
+
+"But..."
+
+He shrugged.
+
+"...you didn't seem to have changed very much."
+
+Padmé laughed softly.
+
+"That's because you barely knew me when I was Queen."
+
+"You didn't know what being Queen was actually like."
+
+"You didn't know what being a senator was like either."
+
+She pointed at him.
+
+"All you really knew was how I looked."
+
+"And that's the part that stayed in your memory."
+
+Anakin slowly nodded.
+
+"Okay..."
+
+"Maybe you have a point."
+
+"I usually do."
+
+He rolled his eyes good-naturedly.
+
+She continued.
+
+"You also told me something else three years ago."
+
+She smiled again.
+
+"'My mind doesn't work around you. My mind is always a muddle... I can only think of you.'"
+
+Anakin groaned.
+
+"I really said that."
+
+"You did."
+
+She chuckled.
+
+"And I understood."
+
+"I was in love too."
+
+"But we can't build a life like that."
+
+"The muddled mind works when you only see me for a day every few months."
+
+"It doesn't work when we're together every day."
+
+"Hmm..."
+
+"And then the Clone Wars began."
+
+"You were gone for months."
+
+She folded her hands together.
+
+"In your mind..."
+
+"I became the reward waiting at the end of every campaign."
+
+"During each battle, you'd think about me."
+
+"You'd imagine seeing me again."
+
+"That reunion became your goal."
+
+"You'd come home."
+
+"We'd spend a day together."
+
+"You'd feel complete."
+
+"And then you'd leave again."
+
+She paused.
+
+"Over time..."
+
+"...I became less of a person."
+
+"And more of a prize."
+
+Anakin looked genuinely troubled.
+
+"How do you know all this?"
+
+Padmé smiled knowingly.
+
+"Anakin."
+
+"I've been observing you since before the Clone Wars."
+
+"I know how you think."
+
+She hesitated.
+
+"And honestly..."
+
+"I understand why."
+
+She chose her words carefully.
+
+"The Jedi are all a bit..."
+
+She searched for the least offensive phrasing.
+
+"...emotionally stunted."
+
+Anakin raised an eyebrow.
+
+"That's one way to put it."
+
+"It is the Jedi Code's fault in many ways."
+
+"So much of it comes from the way the Order teaches people to deal with emotions."
+
+She sighed.
+
+"I can honestly say..."
+
+"I've never met a truly emotionally mature Jedi."
+
+Anakin looked surprised.
+
+"Not even Obi-Wan?"
+
+Padmé smiled apologetically.
+
+"Not even Obi-Wan."
+
+She thought for another moment.
+
+"Qui-Gon came closer."
+
+"But even then..."
+
+She shook her head.
+
+"I could always feel it."
+
+"All of you were taught to suppress emotions."
+
+"You were never really taught how to understand them."
+
+Anakin rested his elbows on the table.
+
+"Well..."
+
+"I did grow up under that system."
+
+"So..."
+
+"What now?"
+
+Padmé smiled.
+
+"Now..."
+
+"I hope we can build something healthier."
+
+"A new way of thinking about our relationship."
+
+"No more chasing kisses."
+
+She reached across the table and gently took his hand.
+
+"We do this properly."
+
+She laughed quietly.
+
+"I'll admit..."
+
+"Going from being a campaign-to-campaign wartime general..."
+
+"...to suddenly being legally confined in an apartment with me all day..."
+
+"...isn't exactly the smooth transition I'd imagined."
+
+Anakin laughed.
+
+"I suppose not."
+
+"But we'll work with what we've got."
+
+He squeezed her hand gently.
+
+"What exactly should I do?"
+
+"I think we should start learning about each other properly."
+
+She looked into his eyes.
+
+"I want you to replace the version of me you've carried around in your head."
+
+"No more 'angel.'"
+
+"No more fantasies."
+
+"No more treating me like a prize or a reward."
+
+"We start from the beginning."
+
+"This time properly."
+
+Anakin nodded slowly.
+
+"And how do I do that?"
+
+Padmé smiled toward the other room.
+
+"Threepio knows a great deal about me."
+
+"We've worked together almost every day for the past three years."
+
+"He probably knows my daily life and routines better than anyone."
+
+"You should talk to him."
+
+Anakin looked surprised.
+
+"Why should I ask him instead of asking you?"
+
+Padmé laughed.
+
+"Because you already answered that question three years ago."
+
+She mimicked his voice with affectionate exaggeration.
+
+"'My mind is always a muddle... I can only think of you.'"
+
+She smiled teasingly.
+
+"If I explain everything myself..."
+
+"...I'm afraid you'll spend the entire conversation staring into my eyes instead of actually listening."
+
+She chuckled, almost sarcastically.
+
+"I think your mind will be much clearer around Threepio."
+
+"After all..."
+
+"He was your droid before he was mine."
+
+"You built him from scratch with your own hands."
+
+"He'll make the perfect bridge between us."
+
+Anakin considered it for a moment before smiling.
+
+"Fair enough."
+
+"You do have a good point."
+
+Padmé grinned.
+
+"I know."
+
+He shook his head in amused defeat.
+
+"Why do you always have good points?"
+
+Padmé laughed again, the sound filling the apartment more warmly than it had in days.
+
+---
+
+# Part 7
+
+The weeks of house arrest settled into a routine.
+
+Freed from the constant urgency of war, Anakin decided to follow Padmé's advice.
+
+One morning he found C-3PO organizing schedules and correspondence in the apartment.
+
+"Threepio."
+
+The protocol droid turned.
+
+"Oh! Master Anakin."
+
+"I was wondering if you had a moment."
+
+"Certainly, sir."
+
+"You wanted me to learn more about Padmé."
+
+"I did."
+
+"Then teach me."
+
+Threepio's photoreceptors brightened.
+
+"It would be my pleasure."
+
+Over the following days, Anakin and Threepio spent hours talking.
+
+Threepio described Padmé's work in the Senate.
+
+He explained how carefully she prepared for debates, reading countless reports before speaking on legislation.
+
+He described the endless meetings, negotiations, and committee hearings that filled her days while Anakin had been leading clone troopers across the galaxy.
+
+"You see, Master Anakin, Senator Amidala rarely enters a discussion without first understanding every side of the issue."
+
+Anakin listened closely.
+
+Threepio recounted humanitarian missions that had received little public attention.
+
+He spoke of long nights spent drafting speeches.
+
+He described Padmé's habit of answering correspondence personally whenever possible instead of relying entirely on aides.
+
+He told stories of difficult negotiations with senators from dozens of systems.
+
+By the end of the week, Anakin realized how little he had known about the life Padmé lived while he had been away fighting.
+
+One afternoon, after another long conversation, Threepio folded his hands.
+
+"There is one final piece of advice I should offer."
+
+Anakin smiled.
+
+"I'm listening."
+
+"Master Anakin..."
+
+"It would be wise of you not to argue with Senator Amidala."
+
+Anakin blinked.
+
+"...What?"
+
+"Listen to her."
+
+"Do not argue with her."
+
+"Why?"
+
+Threepio answered without hesitation.
+
+"Because I have witnessed enough."
+
+"Every time senators argue with her..."
+
+"...they get destroyed by her."
+
+"The successful ones are the ones who listen."
+
+For nearly an hour, Threepio enthusiastically recounted examples.
+
+He described senators who had entered debates convinced they would outmaneuver Padmé, only to leave having been methodically dismantled by her arguments.
+
+Anakin laughed more than once.
+
+"I've never seen that side of her."
+
+"You were usually elsewhere saving the Republic."
+
+Threepio inclined his head.
+
+"I had an excellent view."
+
+Anakin scratched the back of his head.
+
+"Surely this doesn't apply to me."
+
+"I'm not a senator."
+
+"That is true, sir."
+
+Threepio paused.
+
+"However, from my experience, this is simply how Senator Amidala interacts with people generally."
+
+"My observations suggest that everyone who argues with her has a difficult time."
+
+"And everyone who listens to her has a good time."
+
+"You should try it."
+
+"I believe your life will improve significantly."
+
+Anakin considered the advice.
+
+"...All right."
+
+"I'll give it a try."
+
+Over the next several days, he did exactly that.
+
+Whenever Padmé suggested something, he agreed.
+
+Whenever she offered an opinion, he accepted it.
+
+Whenever she explained her reasoning, he simply nodded.
+
+At first, the atmosphere in the apartment became noticeably calmer.
+
+Their disagreements nearly vanished.
+
+The friction between them eased.
+
+But after several days, Padmé narrowed her eyes at him over breakfast.
+
+"Anakin."
+
+"Yes?"
+
+"Why are you agreeing with everything I'm saying now?"
+
+He looked up innocently.
+
+"Because you're right."
+
+Padmé folded her arms.
+
+"No."
+
+"I know that's not the whole story."
+
+She smiled suspiciously.
+
+"What's the real reason?"
+
+Anakin hesitated.
+
+"...Fine."
+
+He sighed.
+
+"Because..."
+
+"...Threepio told me to."
+
+Padmé closed her eyes.
+
+She already knew where this was going.
+
+"What exactly did Threepio tell you?"
+
+"He said you'd absolutely destroyed a bunch of senators during the Clone Wars."
+
+Padmé slowly lowered her head into one hand.
+
+"And?"
+
+"He said if I didn't want to end up like them, I should listen to you instead of arguing."
+
+Padmé inhaled deeply.
+
+"THREEPIO!"
+
+The protocol droid hurried into the room.
+
+"Yes, Mistress Padmé?"
+
+She looked directly at him.
+
+"Anakin is not a senator."
+
+"No, Mistress Padmé."
+
+"So trying to put him into the same category as the senators you've watched me debate is not the right thing to do."
+
+Threepio tilted his head.
+
+"I... see."
+
+"The point of a partner is not to agree with everything I say."
+
+"It isn't?"
+
+"No."
+
+She smiled patiently.
+
+"A healthy relationship isn't a Senate debate."
+
+"I don't want him to become another senator who simply decides it's safer not to disagree with me."
+
+"I want him to think for himself."
+
+Threepio's processors seemed to pause.
+
+"I confess..."
+
+"...that distinction may be more complicated than I appreciated."
+
+Padmé laughed.
+
+"I suspected it might be."
+
+She gently patted his shoulder.
+
+"Don't worry."
+
+"You were trying to help."
+
+"I was indeed, Mistress Padmé."
+
+"I know."
+
+Threepio bowed politely before returning to his duties.
+
+After he left, Padmé smiled at Anakin.
+
+"I think I'll take over from here."
+
+She did.
+
+Instead of asking Anakin to agree with her, she encouraged him to explain his own thinking.
+
+When he reacted too quickly, she challenged him to slow down.
+
+When he became impatient, she asked him to consider another perspective before acting.
+
+When he disagreed, she expected him to explain why instead of simply becoming defensive.
+
+Gradually, the conversations became easier.
+
+Anakin learned to listen without surrendering his own judgment.
+
+Padmé learned to challenge him without making every disagreement into a lesson.
+
+He no longer saw her as an idealized figure he had to win.
+
+He saw the woman herself.
+
+Her convictions.
+
+Her habits.
+
+Her strengths.
+
+Her flaws.
+
+In turn, Padmé found herself speaking to him less like someone she needed to guide and more like an equal.
+
+He remained unmistakably Anakin—passionate, impulsive, and determined—but those qualities became tempered by a greater willingness to understand before acting.
+
+Several weeks after the Senate had first placed him under house arrest, a formal summons finally arrived.
+
+The investigation had concluded.
+
+Anakin returned to the Senate chamber alongside Padmé.
+
+Once again, senators filled the vast rotunda.
+
+After final remarks from the Senate investigators and a brief statement from Anakin, the chamber entered one last debate.
+
 The debate eventually came to an end.
 
 The presiding officer rose.
@@ -2440,17 +3296,53 @@ Padmé smiled with unmistakable relief.
 
 After brief congratulations from Bail, Mon Mothma, Obi-Wan, and Yoda, Anakin and Padmé quietly departed together.
 
-For the second day in a row, they returned to the apartment overlooking the endless skyline of Coruscant.
+For the first time in weeks, there were no legal restrictions waiting for them outside the Senate Building.
 
-This time, however, there was one burden Anakin no longer carried.
+Anakin was free to go wherever he wished.
 
-The Republic itself had heard his case.
+As they stepped into the Coruscant sunlight, Padmé smiled at him.
 
-And the Republic had chosen to let him walk free.
+"So."
+
+"Where do you want to go first?"
+
+Anakin thought about it.
+
+Only a few weeks earlier, he would have answered with somewhere exciting simply because he could.
+
+Now he looked at her instead.
+
+"Honestly?"
+
+She smiled.
+
+"Yes?"
+
+"I'm happy just going home with you."
+
+Padmé laughed softly.
+
+"Good answer."
+
+He grinned.
+
+"This time I actually mean it."
+
+And he did.
+
+He was no longer restless in her company.
+
+For the first time since they had met, he genuinely understood the difference between being in love with an idea of Padmé Amidala and loving Padmé Amidala herself.
+
+He still had much to learn.
+
+So did she.
+
+But now they would learn together, as partners rather than as two people endlessly chasing their next reunion.
 
 ---
 
-# Part 6
+# Part 8
 
 The days following Anakin's acquittal passed more peacefully than anyone had dared hope.
 
