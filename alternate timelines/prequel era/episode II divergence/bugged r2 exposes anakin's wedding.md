@@ -733,3 +733,2473 @@ For all the pain of the defeat—for both body and pride—one truth remained cl
 They were still together.
 
 And for now, that was enough.
+
+---
+
+# Epilogue
+
+Ten years passed.
+
+The Clone Wars consumed much of that decade before finally burning themselves out.
+
+Three years into the conflict, Count Dooku and General Grievous were hunted down by Obi-Wan Kenobi and the clone forces under his command. Their deaths removed the Confederacy's greatest military leaders, and many across the Republic believed the end of the war had finally arrived.
+
+Instead, another crisis erupted.
+
+For years, Supreme Chancellor Palpatine had governed under sweeping emergency powers granted during the conflict. With the war effectively won, the Jedi expected him to surrender those powers and restore the Republic's ordinary constitutional order.
+
+He refused.
+
+Concerned by his growing authority, four Jedi Masters—Mace Windu, Kit Fisto, Agen Kolar, and Saesee Tiin—went to confront him in his office.
+
+According to official records released later, Mace Windu addressed him plainly.
+
+"The war is over, Chancellor. The Republic must return to its laws."
+
+Palpatine remained seated.
+
+"No."
+
+"The Senate entrusted those powers to you."
+
+"They entrusted them because they were necessary."
+
+"They are no longer necessary."
+
+"They are."
+
+When the Jedi informed him that he was under arrest, Palpatine rose.
+
+Without another word, a crimson lightsaber sprang from his sleeve.
+
+The revelation stunned the Republic.
+
+The Supreme Chancellor was a Sith Lord.
+
+The duel that followed became one of the most studied lightsaber engagements in modern history.
+
+Kit Fisto fell first.
+
+Agen Kolar followed.
+
+Then Saesee Tiin.
+
+Only Mace Windu remained.
+
+The battle carried through the Chancellor's office until, at last, Windu forced Palpatine's weapon from his hand.
+
+"You've hidden behind this office long enough," Windu said.
+
+Palpatine answered only with hatred in his eyes.
+
+Moments later, Mace Windu struck the final blow.
+
+With Palpatine dead, investigations uncovered years of deception and manipulation that had reached into every level of the Republic government. The revelations shook public confidence, but they also brought clarity to many mysteries that had lingered since the beginning of the war.
+
+The Senate elected Bail Organa as the new Supreme Chancellor.
+
+He inherited a Republic exhausted by years of bloodshed.
+
+His first addresses to the Senate focused not on victory, but on rebuilding.
+
+"We have survived," he said before the assembled senators, "but survival alone is not enough. We must restore trust where fear has ruled. We must restore law where emergency became habit. We must restore peace where war became ordinary."
+
+The work took years.
+
+Republic institutions were rebuilt.
+
+Emergency powers were repealed.
+
+Negotiations with former Separatist worlds slowly brought the fighting to an end.
+
+The galaxy did not heal overnight, but it began to heal.
+
+On Coruscant, another chapter quietly closed.
+
+Maul, captured on Mandalore by Ahsoka Tano during the final years of the war, remained imprisoned under Republic custody.
+
+During several public hearings concerning the Sith's role in galactic events, he made a declaration that surprised nearly everyone.
+
+"I reject the Sith," he said through the transparent detention field surrounding his cell.
+
+A senator frowned.
+
+"You expect us to believe that?"
+
+"I care little what you believe."
+
+"You once called yourself a Sith Lord."
+
+"I call myself that no longer."
+
+"Why?"
+
+Maul looked away for several long moments.
+
+"Because that path brought nothing but chains."
+
+Whatever anyone thought of the sincerity of his words, one fact became increasingly difficult to dispute.
+
+With Palpatine dead, Count Dooku dead, and Maul openly renouncing the Sith, there were no known Sith Lords left in the galaxy.
+
+For the first time in generations, the Sith Order ceased to exist.
+
+—
+
+Throughout those turbulent years, Anakin Skywalker and Padmé Amidala continued following the course they had chosen for themselves.
+
+They answered to no government.
+
+They belonged to no military.
+
+Sometimes they found themselves fighting beside Republic forces against droid armies threatening civilian populations.
+
+Sometimes they negotiated ceasefires between neighboring systems before conflicts could erupt.
+
+Sometimes they exposed criminal syndicates exploiting the chaos of war.
+
+Their independence allowed them to go where neither the Republic nor the Confederacy could easily act.
+
+Neither side always welcomed their presence.
+
+Many civilians did.
+
+—
+
+The year the Clone Wars finally ended also brought another beginning.
+
+Twin children were born at a hospital in Theed.
+
+Luke.
+
+Leia.
+
+Holding his son for the first time, Anakin laughed softly.
+
+"He has your eyes."
+
+Padmé smiled tiredly from the hospital bed.
+
+"So does his sister."
+
+Anakin looked down at the tiny girl sleeping peacefully.
+
+"I think she has your determination already."
+
+"She's three minutes old."
+
+"I know."
+
+"I still think you're right."
+
+For several years afterward, missions became far less important than family.
+
+Their work slowed almost to a stop.
+
+Luke and Leia learned to walk among the gardens of Varykino.
+
+They chased each other across Naboo's fields.
+
+R2-D2 patiently tolerated countless games involving imaginary starships.
+
+Whenever Anakin and Padmé accepted assignments considered too dangerous for children, they left the twins with the Naberrie family.
+
+Jobal always welcomed them warmly.
+
+"So," she would say with a smile as Luke and Leia ran inside, "have your parents gone off saving the galaxy again?"
+
+Leia would nod proudly.
+
+"They'll be back."
+
+Ryoo and Pooja quickly became more like older sisters than cousins.
+
+The four children built forts beside the lakes, played endless games across the Naberrie gardens, and invented stories that somehow always featured heroic pilots, clever diplomats, and loyal droids.
+
+On quieter assignments, particularly those involving negotiations or routine investigations, Luke and Leia occasionally accompanied their parents.
+
+"They're remarkably well behaved," one governor remarked after a diplomatic meeting.
+
+Padmé smiled.
+
+"They've had good examples."
+
+Anakin coughed theatrically.
+
+"I'd like to think I deserve at least some of that credit."
+
+"You do," Padmé admitted.
+
+"That sounded almost painful."
+
+"It was."
+
+---
+
+# Extension: Part 1
+
+Seven years after their birth, Luke and Leia had become energetic, endlessly curious children.
+
+By then, peace had returned to much of the Republic.
+
+The greatest threats were no longer armies.
+
+They were smugglers.
+
+Pirates.
+
+Crime syndicates.
+
+Cartels.
+
+One evening, Anakin sat reading a Republic security bulletin while Padmé prepared tea.
+
+He suddenly stopped.
+
+"Huh."
+
+"What is it?" she asked.
+
+He rotated the datapad toward her.
+
+Republic Security Advisory.
+
+Multiple failed attempts to intercept unidentified smuggler.
+
+Vessel described as heavily modified Corellian freighter.
+
+Exceptional evasive capability.
+
+Padmé skimmed the report.
+
+"They've missed this ship... six times."
+
+"Seven," Anakin corrected. "There's another report attached."
+
+She looked up.
+
+"Apparently whoever flies this freighter is extraordinary."
+
+Anakin leaned back thoughtfully.
+
+"They're calling this pilot one of the best in the galaxy."
+
+Padmé recognized the expression immediately.
+
+"Oh no."
+
+"What?"
+
+"I know that look."
+
+"What look?"
+
+"The one where your pride has started making plans."
+
+"My pride has excellent ideas."
+
+She laughed.
+
+"So what are you thinking?"
+
+"I'd like to see whether this pilot is really that good."
+
+Padmé folded her arms.
+
+"You want to chase them."
+
+"I want to find out whether the reports are exaggerated."
+
+"They probably are."
+
+"They're probably not."
+
+"And if they aren't?"
+
+Anakin grinned.
+
+"Then it'll be interesting."
+
+Padmé studied him for a moment before smiling.
+
+"...All right."
+
+"You approve?"
+
+"I do."
+
+"When do we leave?"
+
+"Tomorrow."
+
+—
+
+Luke and Leia were delighted to discover they would once again spend several days with the Naberrie family.
+
+"Can we stay in the upstairs room?" Luke asked.
+
+"If Aunt Sola says yes," Padmé answered.
+
+Leia hugged both parents before climbing into the transport.
+
+"Catch the bad guys," she said.
+
+"We'll try," Anakin replied.
+
+"You always say 'try,'" Leia observed.
+
+"Because that's the honest answer."
+
+She nodded solemnly.
+
+"Okay."
+
+—
+
+Their ship waited nearby.
+
+It was unlike anything produced by the Republic.
+
+Over the years, Anakin had designed and rebuilt it repeatedly.
+
+The starfighter retained the speed and agility expected from one of the galaxy's finest pilots while providing enough room for three occupants.
+
+Anakin flew.
+
+Padmé occupied the copilot's station.
+
+R2-D2 integrated directly into the astromech socket behind them.
+
+The engines came alive with a familiar roar.
+
+"Navigation plotted," Padmé reported.
+
+"Destination?"
+
+"Nar Shaddaa."
+
+R2 whistled.
+
+"Yes," Anakin agreed. "I've heard the stories too."
+
+—
+
+Three days earlier, Republic authorities had last reported seeing the mysterious freighter near Nar Shaddaa.
+
+As they approached Hutt Space, Anakin continuously swept the surrounding region with long-range sensors.
+
+R2 emitted a sharp chirp.
+
+Padmé looked at her display.
+
+"Contact."
+
+Anakin leaned forward.
+
+"Range?"
+
+"Closing."
+
+The scanner highlighted a single vessel.
+
+Corellian freighter.
+
+Modified hull profile.
+
+Power output significantly above standard specifications.
+
+Padmé compared the readings against the Republic reports.
+
+"It matches."
+
+Anakin smiled.
+
+"There you are."
+
+Without hesitation, he advanced the throttles.
+
+The chase began.
+
+—
+
+The freighter accelerated immediately.
+
+"So they noticed us," Padmé observed.
+
+"I'd be disappointed if they hadn't."
+
+The distance narrowed.
+
+Suddenly, the freighter rolled sharply and opened fire.
+
+Brilliant crimson bolts streaked toward them.
+
+Padmé blinked.
+
+"Those aren't standard freighter guns."
+
+"They're not."
+
+Anakin threw the fighter into a climbing roll.
+
+The incoming fire passed harmlessly beneath them.
+
+"Heavily modified," he muttered. "That's an understatement."
+
+Another barrage erupted.
+
+These cannons struck with enough force to belong on ships several times the freighter's size.
+
+"They've hidden serious firepower in there," Padmé said.
+
+"I noticed."
+
+Anakin pushed the controls harder.
+
+His fighter darted through the incoming fire with remarkable precision, twisting between bolts that would have destroyed slower ships.
+
+Now he returned fire.
+
+Blue laser blasts streaked toward the fleeing freighter.
+
+Its pilot anticipated nearly every attack.
+
+"They're good," Anakin admitted.
+
+"I was wondering how long before you'd say that."
+
+"They're still not getting away."
+
+The pursuit carried them through dense traffic lanes, around massive space stations, beneath industrial superstructures, and between drifting cargo platforms.
+
+Again and again, the freighter escaped positions that should have been impossible.
+
+Anakin smiled despite himself.
+
+"Now *this* is flying."
+
+Padmé glanced sideways.
+
+"You're enjoying yourself."
+
+"A little."
+
+"A little?"
+
+"...Quite a lot."
+
+The duel continued.
+
+Neither pilot gave the other an easy opportunity.
+
+Finally, Anakin switched weapons.
+
+"Ion cannons."
+
+Padmé nodded.
+
+"Disable instead of destroy."
+
+"Exactly."
+
+Blue pulses shot from the fighter.
+
+The first missed.
+
+The second grazed the shields.
+
+The third overloaded part of the freighter's defensive systems.
+
+"Again," Padmé said.
+
+Another volley.
+
+Then another.
+
+Each strike weakened the ship's systems a little more.
+
+At last, a concentrated burst slammed into the freighter's engineering section.
+
+Sparks erupted across its hull.
+
+Its engines flickered.
+
+Then went dark.
+
+The ship drifted.
+
+"No propulsion," Padmé reported.
+
+"Power failures throughout the vessel."
+
+The freighter hung silently in space.
+
+Weapons offline.
+
+Engines dead.
+
+Defenseless.
+
+Anakin eased his fighter alongside the disabled ship.
+
+"Well," he said, releasing his harness, "let's meet the pilot."
+
+Padmé checked her blaster before standing.
+
+"And find out who has been giving the Republic this much trouble."
+
+Behind them, R2-D2 emitted an eager whistle as the docking procedures began.
+
+---
+
+# Extension: Part 2
+
+The disabled freighter drifted silently against the stars as Anakin guided his fighter alongside it.
+
+"Docking clamps secure," Padmé said, watching the indicators. "Atmospheric seal confirmed."
+
+Anakin unclipped his harness and stood.
+
+"Ready?"
+
+Padmé checked the charge on her blaster.
+
+"Ready."
+
+The airlock cycled open.
+
+The interior beyond looked well-used rather than well-kept. Panels had been repaired countless times with mismatched components, exposed conduits ran along the walls, and almost every system bore signs of extensive modification.
+
+"It certainly doesn't look like the Republic reports described," Padmé observed quietly.
+
+"They never see the inside."
+
+They advanced carefully.
+
+Footsteps echoed somewhere ahead.
+
+As they rounded a corner into the cockpit, they found two men waiting.
+
+The pilot sat in the left seat.
+
+He was a young, light-skinned human with untidy brown hair and a confident expression that had only recently been interrupted by concern.
+
+Beside him stood the copilot, a dark-skinned human of similar age, impeccably dressed despite the circumstances, his posture calm but alert.
+
+Neither appeared eager to surrender.
+
+Anakin ignited his blue lightsaber.
+
+The cockpit filled with its familiar hum.
+
+"Stand down."
+
+The pilot blinked.
+
+"No thanks."
+
+In one smooth motion, both men drew blasters.
+
+Padmé instinctively shifted to one side.
+
+"They're fast," she muttered.
+
+The pilot fired first.
+
+The copilot followed immediately.
+
+Two bolts raced toward Anakin.
+
+His lightsaber moved almost effortlessly.
+
+One bolt deflected harmlessly into the cockpit ceiling.
+
+The second ricocheted into a nearby bulkhead.
+
+Silence.
+
+The two smugglers stared.
+
+The pilot slowly lowered his blaster.
+
+"...What kind of space wizardry is this?"
+
+The copilot looked equally stunned.
+
+"How can he deflect a blaster bolt?"
+
+Anakin answered by extending his free hand.
+
+Both blasters tore themselves from their owners' grips.
+
+The weapons flew across the cockpit into his waiting hand.
+
+The pilot's mouth fell open.
+
+"What on earth is this..."
+
+The copilot sighed.
+
+"Well... if we're fighting a wizard, we can't win."
+
+He looked toward the pilot.
+
+"Let's just surrender."
+
+The pilot hesitated only a second before raising both hands.
+
+"...Yeah."
+
+Padmé stepped forward and efficiently secured both men with binders.
+
+"There," she said. "Much better."
+
+—
+
+A short while later, everyone sat in the ship's common area.
+
+The pilot leaned back against the wall, saying nothing.
+
+The copilot looked considerably less comfortable.
+
+Anakin folded his arms.
+
+"Let's start simply."
+
+He looked directly at the pilot.
+
+"Your name."
+
+The pilot shrugged.
+
+"No."
+
+Anakin waited.
+
+"...No?"
+
+"I don't answer questions."
+
+Padmé watched quietly.
+
+Anakin reached out through the Force.
+
+"You will tell me your name."
+
+The pilot merely frowned.
+
+"No."
+
+Anakin narrowed his eyes slightly.
+
+"You will tell me your name."
+
+"No."
+
+Nothing.
+
+Padmé raised an eyebrow.
+
+"It didn't work."
+
+"I noticed."
+
+The pilot smirked.
+
+"Guess my mind's tougher than you expected."
+
+Anakin gave a small nod.
+
+"So it is."
+
+He turned toward the other prisoner.
+
+"What about you?"
+
+The copilot smiled politely.
+
+"I also prefer not to answer."
+
+Anakin extended one hand.
+
+"You will tell me your name."
+
+The copilot's expression softened.
+
+"I will tell you my name."
+
+The pilot's head whipped around.
+
+"What are you doing?"
+
+Anakin continued.
+
+"You will answer every question I ask you."
+
+"I will answer every question you ask me."
+
+The pilot stared at his friend in horror.
+
+"Hey! Stop!"
+
+The copilot continued looking calmly at Anakin.
+
+Anakin nodded.
+
+"What is your name?"
+
+"I am Lando Calrissian."
+
+"What is the pilot's name?"
+
+"Han Solo."
+
+Han closed his eyes.
+
+"Oh, come on."
+
+"What is this ship called?"
+
+"The Millennium Falcon."
+
+Padmé glanced around.
+
+"Appropriate."
+
+Anakin asked the next question.
+
+"What are you smuggling?"
+
+"Spice."
+
+"And who hired you to smuggle it?"
+
+"Jabba the Hutt."
+
+The room fell quiet.
+
+Padmé slowly turned toward Anakin.
+
+His expression had changed.
+
+The easy confidence from the pursuit was gone.
+
+His jaw tightened.
+
+His mechanical hand closed into a fist.
+
+Jabba.
+
+The name alone brought back memories he had spent years trying not to dwell upon.
+
+Tatooine.
+
+The endless desert.
+
+Being owned.
+
+Being bought and sold.
+
+The humiliation.
+
+Gardulla.
+
+Jabba.
+
+The Hutts who treated lives as property.
+
+Sand stretching to every horizon.
+
+He could almost feel the dry wind again.
+
+He hated the Hutts.
+
+He hated Jabba.
+
+He hated Gardulla.
+
+He hated Tatooine.
+
+He hated—
+
+Sand.
+
+Padmé noticed the distant look in his eyes.
+
+Quietly, she rested a hand on his shoulder.
+
+"Anakin."
+
+He inhaled slowly.
+
+Then another.
+
+The anger gradually loosened its grip.
+
+When he spoke again, his voice was steady.
+
+He looked at both smugglers.
+
+"Listen carefully."
+
+Han watched him cautiously.
+
+"If you refuse to cooperate, I'm turning both of you over to the Republic. You'll be transported to Coruscant and stand trial for smuggling."
+
+Han's expression soured.
+
+"But..."
+
+Anakin continued.
+
+"If you cooperate..."
+
+He glanced briefly toward Padmé before finishing.
+
+"...we'll let you go."
+
+Han blinked.
+
+"...Seriously?"
+
+"Seriously."
+
+Han looked at Lando.
+
+Lando looked back.
+
+Finally Han sighed.
+
+"All right, buddy."
+
+He shifted into a more comfortable position.
+
+"What do you need to know?"
+
+Anakin nodded once.
+
+"First question."
+
+He folded his arms.
+
+"Are you merely working for Jabba..."
+
+"...or are you his allies?"
+
+Han and Lando exchanged a quick glance.
+
+Lando answered first.
+
+"We're not his allies."
+
+Han nodded.
+
+"We were hired."
+
+"That's it."
+
+"We carry cargo."
+
+"We don't work *for* him."
+
+Anakin visibly relaxed.
+
+"Good."
+
+He leaned forward slightly.
+
+"Because I have a longstanding problem with Jabba."
+
+Han chuckled.
+
+"Join the club."
+
+"I want everything you know."
+
+Han shrugged.
+
+"Not sure how much help it'll be."
+
+"Start talking."
+
+Han thought for a moment.
+
+"He's got a palace out in the Dune Sea."
+
+"I know."
+
+"A lot of guards."
+
+"I expected that."
+
+"A lot of traps."
+
+Anakin nodded.
+
+"And..."
+
+Han grimaced.
+
+"...a lot of scary beasts that I'd really rather not think about."
+
+For the first time since hearing Jabba's name, Anakin almost smiled.
+
+"That sounds like him."
+
+Han spread his hands.
+
+"See? I told you."
+
+Anakin stood.
+
+"All right."
+
+Han looked up.
+
+"What now?"
+
+Anakin's answer came immediately.
+
+"Take us to Jabba."
+
+Padmé turned so quickly she nearly knocked over her chair.
+
+"What?"
+
+"We're going to Tatooine."
+
+She stared at him.
+
+"No."
+
+He looked back.
+
+"Padmé—"
+
+"No."
+
+He blinked.
+
+"You are absolutely out of your mind."
+
+"Jabba has terrorized Tatooine for decades."
+
+"I know."
+
+"It's time somebody put an end to it."
+
+Padmé folded her arms.
+
+"At the cost of our own survival?"
+
+"We'll be fine."
+
+"That's exactly what worries me."
+
+Anakin smiled reassuringly.
+
+"Padmé."
+
+She sighed heavily.
+
+"We'll be fine."
+
+She held his gaze for several long seconds.
+
+Finally, she pinched the bridge of her nose.
+
+"I married an impossible man."
+
+"I've been told."
+
+"Frequently."
+
+"...Frequently."
+
+Even Han quietly laughed.
+
+—
+
+The Falcon remained disabled despite the conversation.
+
+Anakin rolled up his sleeves and disappeared beneath one of the engineering access panels.
+
+Han watched with growing curiosity.
+
+"You actually know what you're doing?"
+
+Without looking up, Anakin answered,
+
+"I built podracers as a child."
+
+There was a pause.
+
+"You what?"
+
+"I've rebuilt starfighters."
+
+Another component slid into place.
+
+"I've designed this sort of system before."
+
+Sparks briefly flashed.
+
+"There."
+
+Power slowly returned throughout the freighter.
+
+Lights flickered back to life.
+
+The computer core rebooted.
+
+Environmental systems stabilized.
+
+Lando looked around in amazement.
+
+"...You fixed it."
+
+"I fixed enough."
+
+Another twenty minutes passed before the engines were ready.
+
+Anakin finally wiped the grease from his hands.
+
+"Try ignition."
+
+Han moved to the cockpit.
+
+Moments later the familiar vibration spread through the ship.
+
+"She's alive!"
+
+Anakin smiled faintly.
+
+"I thought she would be."
+
+He opened a comm channel.
+
+"R2."
+
+A cheerful whistle answered.
+
+"Listen carefully."
+
+Another beep.
+
+"I'm staying aboard the Falcon."
+
+R2 chirped questioningly.
+
+"I need you to take our fighter home."
+
+Another series of beeps.
+
+"Yes."
+
+More beeping.
+
+"I know you can do it."
+
+Padmé smiled.
+
+"So do I."
+
+R2 emitted one proud, confident whistle.
+
+"I'll see you back on Naboo."
+
+The transmission ended.
+
+Outside, Anakin's custom starfighter detached from the Falcon and turned away, its astromech now flying it alone toward home.
+
+Inside the freighter, Han settled into the pilot's chair once more.
+
+"So..."
+
+He looked over his shoulder.
+
+"Tatooine?"
+
+Anakin nodded.
+
+"Tatooine."
+
+Lando leaned back in the copilot's seat.
+
+"I have a feeling this is going to become very dangerous."
+
+Padmé looked out through the cockpit canopy as the stars stretched into hyperspace.
+
+"...I have exactly the same feeling."
+
+The *Millennium Falcon* leapt into hyperspace, carrying four very different travelers toward the deserts of Tatooine—and toward a reckoning that had been decades in the making.
+
+---
+
+# Extension: Part 3
+
+The *Millennium Falcon* sped through hyperspace toward Tatooine.
+
+For a while, the only sounds aboard were the steady hum of the engines and the occasional chirp from the ship's consoles. The tension from the chase had faded, replaced by curiosity.
+
+Han finally broke the silence.
+
+"Nobody has ever disabled the *Falcon* like that before."
+
+Anakin looked up from the engineering panel he had been inspecting.
+
+"Oh?"
+
+Han nodded.
+
+"How on earth did you do it?"
+
+Anakin shrugged modestly.
+
+"Well... I am a good pilot."
+
+Han gave an incredulous laugh.
+
+"A good pilot? I made the Kessel Run in twelve parsecs!"
+
+Anakin smiled.
+
+"And I destroyed a Trade Federation droid control ship when I was nine."
+
+Silence.
+
+Han blinked.
+
+"...Well."
+
+He looked over at Lando.
+
+"I guess I can't one-up that."
+
+Lando smiled.
+
+"I don't think many people can."
+
+Anakin chuckled.
+
+"I suppose not."
+
+—
+
+Later, after they had eaten a simple meal from the *Falcon*'s supplies, Han returned to another question that had been bothering him.
+
+"All right."
+
+He leaned forward.
+
+"How did you do that thing back on my ship?"
+
+Anakin looked up.
+
+"What thing?"
+
+"You know exactly what thing."
+
+Han mimed someone waving a hand dramatically.
+
+"You stood there, deflected our blaster bolts, and then somehow ripped the blasters out of our hands without touching them."
+
+Lando nodded.
+
+"I'd also appreciate an explanation."
+
+Anakin exchanged a glance with Padmé.
+
+"Have either of you heard of the Force?"
+
+Han shrugged.
+
+"Yeah."
+
+He thought for a second.
+
+"Isn't that just some hokey religion?"
+
+Anakin slowly turned toward Padmé.
+
+Padmé looked back at him.
+
+Then both looked at Han.
+
+Anakin frowned.
+
+"...Hokey religion?"
+
+Padmé tried very hard not to smile.
+
+"Han..."
+
+She folded her hands.
+
+"I have some unfortunate news for you."
+
+For the next several minutes, Anakin did his best to explain the Force.
+
+He spoke about the energy field connecting all living things.
+
+About sensing emotions.
+
+About telekinesis.
+
+About heightened reflexes.
+
+About lightsabers.
+
+About Jedi training.
+
+Han listened politely.
+
+Lando listened even more politely.
+
+When Anakin finally finished, Han scratched his head.
+
+"So..."
+
+"...you're telling me the universe is held together by an invisible energy field that lets certain people move objects with their minds?"
+
+"Yes."
+
+"And see things before they happen?"
+
+"Sometimes."
+
+"And jump thirty feet into the air?"
+
+"When necessary."
+
+Han looked at Lando.
+
+Lando looked back.
+
+Han sighed.
+
+"I understood absolutely none of that."
+
+"Neither did I," Lando admitted.
+
+Padmé laughed softly.
+
+"It takes most people a while."
+
+Han nodded.
+
+"I think it's going to take me considerably longer than a while."
+
+Anakin smiled.
+
+"That's fair."
+
+They quietly abandoned the lesson.
+
+—
+
+Several hours later, hyperspace gave way to the harsh brilliance of Tatooine's sun.
+
+The *Millennium Falcon* descended through the atmosphere and landed a safe distance from Jabba's palace.
+
+The familiar sight of endless dunes stretched in every direction.
+
+Anakin looked through the cockpit canopy.
+
+"So."
+
+He stood.
+
+"Here's the plan."
+
+Han and Lando listened.
+
+"I still need you to complete the delivery."
+
+Han frowned.
+
+"You want us to actually give Jabba the spice?"
+
+"Yes."
+
+"Why?"
+
+"Because he'll be focused on inspecting the cargo and paying you."
+
+Padmé nodded.
+
+"He won't be expecting anyone else to act while the transaction is underway."
+
+Anakin continued.
+
+"The moment you're finished and heading back out..."
+
+He ignited his lightsaber briefly before switching it off again.
+
+"...I'll make my move."
+
+Han exchanged a glance with Lando.
+
+"...All right."
+
+"Works for me," Lando agreed.
+
+—
+
+The cargo crates were unloaded from the *Falcon*.
+
+Han and Lando each took one end of the heavy containers and began hauling them toward the palace entrance.
+
+Several paces behind them walked Anakin and Padmé, keeping enough distance to avoid attracting attention.
+
+Sand crunched beneath their boots.
+
+Anakin looked around with obvious displeasure.
+
+"Ugh."
+
+He shook his head.
+
+"Tatooine."
+
+Han glanced back.
+
+"What?"
+
+"Sand."
+
+Anakin gestured vaguely toward the endless desert.
+
+"Sand everywhere."
+
+Han looked around.
+
+"I mean... yeah."
+
+"What's the big deal?"
+
+Before Anakin could answer, Padmé smiled mischievously.
+
+"Anakin doesn't like sand."
+
+Anakin immediately recognized the tone.
+
+"Padmé..."
+
+She ignored him.
+
+"He says it's coarse and rough and irritating..."
+
+She adopted an exaggeratedly dramatic voice.
+
+"...and it gets everywhere."
+
+"Padmé!"
+
+She looked completely innocent.
+
+"What?"
+
+"You said that yourself."
+
+"I know."
+
+"That's not for them to hear."
+
+Han burst into laughter.
+
+Lando covered his mouth, trying unsuccessfully to hide a grin.
+
+Padmé smiled sweetly.
+
+"I thought they deserved to know."
+
+Anakin sighed dramatically.
+
+"I've been betrayed."
+
+"You married me anyway."
+
+"I did."
+
+"No regrets?"
+
+He smiled despite himself.
+
+"No regrets."
+
+—
+
+Inside the palace, Jabba lounged upon his great dais as he always had.
+
+Han and Lando approached.
+
+Several guards watched closely while servants opened the cargo containers.
+
+Jabba leaned forward, inspecting the spice.
+
+He grunted approvingly.
+
+A chest filled with credits was brought forward.
+
+Han accepted the payment.
+
+Lando nodded respectfully.
+
+Business concluded.
+
+The two smugglers turned and began walking toward the exit.
+
+Around the corner of the great audience chamber, Anakin looked at Padmé.
+
+She gave one small nod.
+
+Now.
+
+Anakin stepped into view.
+
+His blue lightsaber sprang to life.
+
+The brilliant blade illuminated the chamber.
+
+He pointed it directly at Jabba.
+
+"You are under arrest!"
+
+The room erupted.
+
+Blaster fire exploded from every direction.
+
+Guards shouted.
+
+Mercenaries scrambled for cover.
+
+Anakin's lightsaber became a blue blur.
+
+Every incoming bolt was deflected harmlessly away.
+
+Jabba growled angrily.
+
+One massive hand slapped a hidden control.
+
+The floor vanished beneath Anakin.
+
+"Anakin!"
+
+Padmé shouted as he disappeared into darkness.
+
+—
+
+He landed lightly.
+
+A deafening roar echoed through the pit.
+
+The rancor charged.
+
+Anakin didn't hesitate.
+
+Compared to the beasts he had faced years before on Geonosis, the creature's attacks felt almost straightforward.
+
+It lunged.
+
+He sidestepped.
+
+The blue blade flashed.
+
+A single decisive strike carved through the rancor's torso.
+
+The beast collapsed.
+
+Silence returned to the pit.
+
+Above, several guards peered nervously over the edge.
+
+Anakin bent his knees.
+
+Using the Force, he launched himself upward.
+
+He landed smoothly back in the audience chamber directly in front of Jabba.
+
+His lightsaber still hummed.
+
+He looked over toward Padmé.
+
+"Well..."
+
+He smiled faintly.
+
+"That rancor was a piece of cake compared to the reek, acklay, and nexu we fought on Geonosis."
+
+Padmé allowed herself a small smile.
+
+Then she looked past him.
+
+"Careful."
+
+Her expression grew serious.
+
+"The fight is not yet over."
+
+Almost on cue, alarms sounded throughout the palace.
+
+Heavy footsteps echoed from multiple corridors.
+
+A fresh wave of reinforcements poured into the chamber.
+
+Guards.
+
+Mercenaries.
+
+And—
+
+Anakin blinked.
+
+"...Battle droids?"
+
+B1 battle droids marched into formation beside heavier B2 super battle droids.
+
+He looked directly at Jabba.
+
+"Huh."
+
+"Where did you get these from?"
+
+Jabba answered in Huttese with a smug grin.
+
+Unlike most outsiders, Anakin understood every word.
+
+His childhood on Tatooine had forced him to learn the language years ago.
+
+"So that's it," Anakin muttered.
+
+Padmé glanced at him.
+
+"What did he say?"
+
+"He had mercenaries seize abandoned Separatist droid foundries after the Clone Wars."
+
+Another volley of blaster fire erupted.
+
+"He turned them into his own factories."
+
+Padmé shook her head.
+
+"So he's building his own army."
+
+"Looks like it."
+
+The battle droids opened fire.
+
+Anakin had spent years fighting machines just like them.
+
+Their movements remained predictable.
+
+Their firing patterns familiar.
+
+Blue light danced across the chamber.
+
+Blaster bolts flew back toward their shooters.
+
+Battle droids exploded one after another.
+
+B2 units advanced.
+
+Anakin slipped between their heavy attacks before slicing through armor and circuitry with practiced efficiency.
+
+Padmé covered his flanks with accurate blaster fire, dropping guards who attempted to surround him.
+
+Within minutes, the chamber fell quiet once more.
+
+Smoking droid parts littered the floor.
+
+The surviving guards either fled or lay unconscious.
+
+Anakin turned back toward Jabba.
+
+The Hutt's hand slowly moved toward another hidden control.
+
+Anakin sensed the intention before the button could be pressed.
+
+He thrust out his hand.
+
+Jabba was hurled bodily across the chamber.
+
+The enormous Hutt slammed hard into a stone wall with a thunderous crash.
+
+Before he could recover, Anakin was already there.
+
+The blue lightsaber stopped only centimeters from Jabba's throat.
+
+The Hutt froze.
+
+Around him—
+
+His guards were gone.
+
+His battle droids destroyed.
+
+His rancor dead.
+
+His traps no longer within reach.
+
+There was nowhere left to run.
+
+Jabba slowly raised his hands in surrender.
+
+Padmé quickly secured heavy binders around his massive wrists while Anakin remained ready in case of another trick.
+
+Jabba grumbled bitterly but offered no resistance.
+
+When they had finished, Anakin deactivated his lightsaber.
+
+"Let's go."
+
+Together, he and Padmé began dragging the defeated crime lord toward the palace entrance, while Han and Lando looked on in astonishment.
+
+Han shook his head slowly.
+
+"I came here expecting to deliver spice."
+
+Lando nodded.
+
+"I did not expect to watch someone arrest Jabba the Hutt."
+
+"Neither did I," Han admitted. "But I'm certainly not complaining."
+
+---
+
+# Extension: Part 4
+
+Jabba the Hutt protested loudly in Huttese as Anakin and Padmé dragged him up the loading ramp of the *Millennium Falcon*.
+
+"I know exactly what you're saying," Anakin replied in the same language without looking back. "And the answer is still no."
+
+Han looked between them.
+
+"...You speak Huttese?"
+
+"I grew up on Tatooine."
+
+"...Right."
+
+Jabba was hauled into one of the *Falcon*'s storage compartments. Heavy restraints were secured around his massive arms, and the compartment was locked.
+
+Anakin tugged once on the door.
+
+"That should hold."
+
+"It had better," Padmé said.
+
+Han and Lando boarded shortly afterward, and before long the *Millennium Falcon* lifted off from Tatooine, leaving Jabba's palace—and its defeated guards—behind.
+
+—
+
+Several minutes into hyperspace, Han suddenly sat upright.
+
+"...Wait."
+
+Everyone looked toward him.
+
+Han pointed toward the cargo hold.
+
+"If we're taking Jabba to Coruscant..."
+
+"...they're going to find us."
+
+Padmé frowned.
+
+"What do you mean?"
+
+"We're smugglers."
+
+Han spread his hands.
+
+"We arrive with the most wanted crime lord in the Outer Rim, Republic Security starts asking questions, and suddenly Lando and I are standing right there."
+
+Lando nodded.
+
+"He's right."
+
+Anakin thought it through.
+
+"...They'll arrest you too."
+
+"Exactly."
+
+Silence settled over the cockpit.
+
+Then Anakin sighed.
+
+"I promised."
+
+Padmé glanced at him.
+
+"When you agreed to cooperate," Anakin said to Han and Lando, "I told you that if you helped us, we'd let you go."
+
+"You did."
+
+"I'm not breaking that promise."
+
+He leaned back in his seat.
+
+"So we won't take you to Coruscant."
+
+Padmé smiled.
+
+"Naboo first."
+
+"We'll drop you off there."
+
+Han visibly relaxed.
+
+"...I'd appreciate that."
+
+"So would I," Lando agreed.
+
+—
+
+Anakin opened a comm channel.
+
+"R2?"
+
+An enthusiastic series of beeps answered immediately.
+
+"Did you get my starfighter safely back to Naboo?"
+
+A confident affirmative whistle came through the speaker.
+
+"Good."
+
+Anakin smiled.
+
+"Did you take it back to Varykino?"
+
+A negative beep.
+
+"...Oh."
+
+He thought for a second.
+
+"Theed?"
+
+R2 answered with another cheerful affirmative.
+
+Anakin nodded.
+
+"All right."
+
+He closed the channel.
+
+Turning toward Han, he said,
+
+"We're going to Theed."
+
+—
+
+A few minutes later, another practical issue presented itself.
+
+"My starfighter won't work," Anakin admitted.
+
+Padmé looked over.
+
+"For Jabba."
+
+He gestured toward the cargo hold.
+
+"He's simply too large."
+
+Han immediately became suspicious.
+
+"What are you suggesting?"
+
+"I need to borrow the *Falcon*."
+
+Han stared.
+
+"My ship?"
+
+"Just long enough to transport Jabba to Coruscant."
+
+Han folded his arms.
+
+"...You want me to hand over the *Millennium Falcon*?"
+
+"I'll bring it back."
+
+"It's the *Millennium Falcon*."
+
+"I know."
+
+"It's heavily modified."
+
+"I noticed."
+
+"It's also technically illegal in about twenty different ways."
+
+"I noticed that too."
+
+Han looked unconvinced.
+
+"What if the Republic confiscates it?"
+
+"They won't."
+
+"What if they try?"
+
+"I won't let them."
+
+"What if you scratch it?"
+
+"I won't."
+
+"What if you break something?"
+
+"I'll fix it."
+
+Han narrowed his eyes.
+
+"You promise?"
+
+"I give you my word."
+
+Padmé added quietly,
+
+"He keeps his promises."
+
+Han studied both of them for several moments.
+
+Finally he sighed.
+
+"...All right."
+
+He pointed a finger at Anakin.
+
+"But the moment you're done with Jabba..."
+
+"...I want my ship back."
+
+"You have my word."
+
+Han nodded once.
+
+"Then we've got a deal."
+
+—
+
+The remainder of the trip became an impromptu flying lesson.
+
+Han slid into the copilot's chair while Anakin took the pilot's seat.
+
+"All right," Han began.
+
+"The *Falcon* handles differently from most freighters."
+
+"I can tell."
+
+"The steering response is—"
+
+Anakin gently banked the ship through a hyperspace calibration maneuver.
+
+"Like this?"
+
+Han blinked.
+
+"...Yes."
+
+"And the inertial compensation feels a little delayed."
+
+"It is."
+
+Anakin adjusted another control.
+
+"So you compensate before the turn instead of during it."
+
+Han frowned.
+
+"...Exactly."
+
+Several minutes later—
+
+"The power distribution—"
+
+"I've already rerouted it."
+
+Han looked at the display.
+
+"...You did."
+
+Another few minutes—
+
+"The dorsal targeting sensors sometimes—"
+
+"I recalibrated them."
+
+"When?"
+
+"While you were explaining the engines."
+
+Han slowly leaned back.
+
+"You really are not a typical pilot."
+
+Anakin smiled.
+
+"Well..."
+
+He rested one hand lightly on the controls.
+
+"After years and years of flying..."
+
+"...you kind of just get the hang of things."
+
+Han sighed dramatically.
+
+"I spent years learning this ship."
+
+Anakin shrugged.
+
+"It's a nice ship."
+
+"...That's somehow even more insulting."
+
+Lando laughed from behind them.
+
+"I think he's mastered it."
+
+"So do I," Han admitted.
+
+He stood up.
+
+"All right."
+
+"It's yours until Naboo."
+
+He and Lando retreated into the lounge, leaving Anakin at the controls.
+
+At first they watched.
+
+Then they stopped worrying altogether.
+
+Anakin flew the *Falcon* as though he had owned it for years.
+
+—
+
+A few hours later, the freighter settled onto a landing platform in Theed.
+
+The group walked through the capital until they reached the Naberrie home.
+
+Outside, parked neatly near the entrance, sat Anakin's custom-built starfighter.
+
+R2-D2 stood proudly beside it.
+
+"There you are," Anakin said.
+
+R2 whistled happily.
+
+"You did well."
+
+The astromech emitted an especially pleased series of chirps.
+
+Padmé opened the front door.
+
+"We're home."
+
+—
+
+R2 immediately rolled into the house.
+
+Padmé smiled.
+
+"Han, Lando..."
+
+She gestured inside.
+
+"Come in."
+
+By now, the tension between them had largely disappeared.
+
+During the journey they had traded stories, laughed together, and discovered that despite their very different backgrounds, they enjoyed each other's company.
+
+Anakin knelt beside R2.
+
+"Han. Lando."
+
+He rested a hand on the astromech's dome.
+
+"This is R2-D2."
+
+R2 gave a cheerful whistle.
+
+"My astromech."
+
+"He is very friendly..."
+
+R2 chirped proudly.
+
+"...and very, very loyal."
+
+Han crouched beside him.
+
+"Nice to meet you."
+
+R2 answered with an enthusiastic beep.
+
+Lando smiled.
+
+"I like him already."
+
+—
+
+Padmé led them farther inside.
+
+"My sister, Sola."
+
+Sola smiled warmly.
+
+"My parents..."
+
+Ruwee stepped forward first.
+
+"Welcome."
+
+Jobal followed.
+
+"It's good to meet both of you."
+
+Before anyone could continue, footsteps sounded on the staircase.
+
+Two children hurried down.
+
+Behind them came two teenagers.
+
+Padmé smiled.
+
+"These are my children, Luke and Leia."
+
+The twins waved enthusiastically.
+
+"And my nieces..."
+
+She gestured toward the older girls.
+
+"Ryoo and Pooja."
+
+Han smiled.
+
+"Han Solo."
+
+"Lando Calrissian."
+
+The introductions continued until everyone had met.
+
+Ruwee seemed particularly interested in their stories.
+
+"So," he said after hearing a few of Han's adventures, "why don't you stay here while Anakin and Padmé take Jabba to Coruscant?"
+
+Han blinked.
+
+"...Really?"
+
+"Of course."
+
+Anakin looked uncertain.
+
+"They're smugglers."
+
+Everyone looked toward him.
+
+"Are you sure it's a good idea for them to stay in the house with the children...?"
+
+Ruwee smiled calmly.
+
+"Smuggler or not..."
+
+He looked toward Han and Lando.
+
+"...they seem fun."
+
+"Don't worry, Anakin."
+
+"I'm sure they won't cause any issues."
+
+Anakin hesitated.
+
+"...I have my doubts."
+
+He looked toward Luke and Leia.
+
+"But your house..."
+
+"...your call."
+
+He sighed.
+
+"Just keep Luke and Leia safe."
+
+"We will," Ruwee promised.
+
+—
+
+Soon afterward, Anakin, Padmé, and R2 boarded the *Falcon* once more.
+
+Jabba remained securely locked inside the storage compartment.
+
+The freighter lifted off toward Coruscant.
+
+—
+
+Rather than landing at one of the Republic's primary spaceports, Anakin chose a secluded landing area on the outskirts of the capital.
+
+Han's concerns about the ship had not been unfounded.
+
+Its extensive modifications would invite unwanted attention from customs inspectors.
+
+"Better not tempt fate," Padmé agreed.
+
+Together they hauled Jabba out of the cargo compartment.
+
+The Hutt grumbled continuously in Huttese.
+
+"I know," Anakin replied.
+
+"You've already said that three times."
+
+Eventually they entered the Republic's central law enforcement headquarters.
+
+The officers behind the reception desk froze.
+
+One slowly stood.
+
+"...Is that..."
+
+Another officer looked twice.
+
+"It is."
+
+"That's Jabba the Hutt."
+
+Within moments the building erupted into activity.
+
+Several officers hurried over to secure the prisoner.
+
+One senior investigator stared at Anakin in disbelief.
+
+"...How on earth did you capture Jabba the Hutt?"
+
+He shook his head.
+
+"Capturing a crime lord on his level and successfully bringing him into custody would be a feat that almost nobody has accomplished."
+
+Anakin scratched the back of his neck.
+
+"Well..."
+
+He smiled awkwardly.
+
+"...it's complicated."
+
+The officer waited.
+
+"...Don't worry about it."
+
+The investigator looked at Padmé.
+
+She smiled politely.
+
+"It really is a long story."
+
+—
+
+Meanwhile, back on Naboo...
+
+Han looked toward the four younger members of the household.
+
+"So."
+
+He folded his arms.
+
+"Do any of you know how to play sabacc?"
+
+Luke nodded enthusiastically.
+
+"A little."
+
+Leia nodded too.
+
+"We're not very good."
+
+Ryoo smiled.
+
+"We've played a few times."
+
+Pooja shrugged.
+
+"I'm still learning."
+
+Han grinned.
+
+"Want to see what *real* competitive sabacc looks like?"
+
+All four answered together.
+
+"Yes!"
+
+Within minutes a table had been cleared.
+
+Han and Lando sat opposite each other.
+
+The four younger spectators crowded around from every possible angle.
+
+Luke practically leaned over Han's shoulder.
+
+Leia watched Lando's every move.
+
+Ryoo and Pooja quietly debated possible hands between themselves.
+
+From across the room, the adults observed.
+
+Jobal smiled.
+
+"Hopefully these two don't get the kids addicted to sabacc."
+
+Ruwee chuckled.
+
+"Oh, I'm sure they'll be fine."
+
+"It's just one match."
+
+Sola folded her arms.
+
+"Father..."
+
+"...you are too optimistic about everything."
+
+"I've been told that before."
+
+"Usually by me."
+
+"Usually."
+
+—
+
+Some time later, Anakin, Padmé, and R2 returned.
+
+They entered the house quietly.
+
+The game was still underway.
+
+Han and Lando had reached the endgame.
+
+Neither had noticed anyone else entering.
+
+Anakin and Padmé joined Jobal, Ruwee, and Sola at the edge of the room.
+
+A few tense moments later—
+
+Han laid down his final hand.
+
+"I won!"
+
+Lando looked at the cards.
+
+"I know."
+
+Leia tilted her head.
+
+"Do you get a prize?"
+
+Lando smiled.
+
+"We agreed there would be no stakes before the match."
+
+Luke frowned.
+
+"So..."
+
+"...you don't get anything for winning?"
+
+"And you don't lose anything for losing?"
+
+Han nodded.
+
+"No."
+
+"Not when we agreed beforehand on this."
+
+Ryoo smiled approvingly.
+
+"At least you are honorable about it."
+
+Lando laughed.
+
+"We may be criminals..."
+
+"...but we are not jerks."
+
+"We keep our words."
+
+Pooja considered that.
+
+"That is an interesting distinction."
+
+"It matters," Han said simply.
+
+—
+
+Not long afterward, everyone gathered outside.
+
+Anakin handed the *Millennium Falcon*'s controls back to Han.
+
+"As promised."
+
+Han looked over the ship carefully.
+
+"No scratches."
+
+"I told you."
+
+"No confiscation."
+
+"I told you."
+
+"You even topped off the fuel."
+
+Anakin smiled.
+
+"It seemed polite."
+
+Han laughed.
+
+"I appreciate that."
+
+The farewells were warm.
+
+The *Falcon* lifted off and disappeared into the evening sky.
+
+Inside the Naberrie home, the extended family shared a long, cheerful meal together before the time finally came to return to Varykino.
+
+—
+
+Aboard Anakin's starfighter, Luke and Leia sat behind their parents while R2 occupied his familiar socket.
+
+The ship glided peacefully across Naboo's skies.
+
+After several quiet minutes—
+
+"Dad?"
+
+Anakin smiled.
+
+"Yes?"
+
+Leia looked thoughtfully out the canopy.
+
+"That Han guy..."
+
+She nodded to herself.
+
+"...he's *really* handsome."
+
+For a heartbeat, there was silence.
+
+Then Anakin burst into laughter.
+
+Padmé laughed just as hard.
+
+Luke looked between them.
+
+"What?"
+
+Padmé wiped a tear from the corner of her eye.
+
+"Nothing."
+
+She smiled at Leia.
+
+"Nothing at all."
+
+Anakin was still chuckling as he returned his attention to flying.
+
+—
+
+Far away, aboard the *Millennium Falcon*...
+
+Han settled comfortably into the pilot's seat.
+
+"Well."
+
+He smiled.
+
+"We met some pretty interesting people together, don't you think, Lando?"
+
+Lando leaned back in the copilot's chair.
+
+"We sure did."
+
+Han shook his head in amazement.
+
+"I still can't believe they captured us..."
+
+"...and then let us go free."
+
+Lando nodded.
+
+"It worked out for everyone."
+
+"They wanted Jabba gone."
+
+"We wanted to stay free..."
+
+"...and get paid for delivering the spice."
+
+He smiled.
+
+"Both sides got what they wanted."
+
+Han laughed.
+
+"And those kids."
+
+He shook his head again.
+
+"They were so into sabacc."
+
+Lando chuckled.
+
+"Well..."
+
+"Sabacc is fun to play."
+
+"And it's fun to watch."
+
+"That's why it's stayed popular across the galaxy for so long."
+
+Han grew thoughtful.
+
+After a long pause, he spoke again.
+
+"...Do you think..."
+
+He looked ahead through the cockpit canopy.
+
+"...I could eventually marry one of them?"
+
+Lando stared at him for a second.
+
+Then burst into laughter.
+
+"Han!"
+
+"What?"
+
+"They're children and teenagers!"
+
+Han grinned.
+
+"I said *eventually*."
+
+Lando shook his head, still laughing.
+
+"I have absolutely no response to that."
+
+The *Millennium Falcon* jumped into hyperspace once more, carrying the two smugglers toward whatever adventure awaited them next.
