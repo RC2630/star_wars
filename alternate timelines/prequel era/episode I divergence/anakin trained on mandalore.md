@@ -458,7 +458,7 @@ A family.
 
 ---
 
-# Korkie Interlude
+# Korkie Interlude: Part 1
 
 Life inside the Sundari royal palace settled into rhythms none of them could have imagined only weeks earlier.
 
@@ -765,6 +765,580 @@ Anakin was now trying to explain torque ratios to a child who clearly thought to
 “Yes,” Obi-Wan admitted quietly.
 
 For a moment he simply stood there listening to the sound of their family becoming real.
+
+---
+
+# Korkie Interlude: Part 2
+
+The peace they found in Sundari lasted only a short while.
+
+The capital remained beautiful, ordered, and calm on its surface. Its gleaming domes stood against the endless white desert as symbols of the New Mandalorian dream: reason over violence, law over conquest, dialogue over bloodshed.
+
+Obi-Wan admired that dream.
+
+He also noticed, as the weeks passed, how many guards surrounded the Duchess wherever she went.
+
+One afternoon, while walking through one of Sundari's open plazas, he finally asked about it.
+
+Satine gave a faint smile.
+
+"There are still those who believe peace is weakness."
+
+"I've noticed."
+
+"They're quieter than they used to be."
+
+"But not gone."
+
+"No."
+
+Anakin walked several paces ahead, enthusiastically explaining to Korkie why a podracer with six engines would actually corner worse than one with two.
+
+Korkie was unconvinced.
+
+"What if all six were *really* fast?"
+
+"That isn't how engines work."
+
+"I think it should be."
+
+Obi-Wan smiled.
+
+Then the world exploded into motion.
+
+Helmeted warriors burst from adjoining streets with military precision.
+
+They wore dark armor without identifying markings. Jetpacks roared to life as stun bolts ripped through the air.
+
+"Down!" Obi-Wan shouted.
+
+Instinct took over.
+
+He thrust both hands forward.
+
+An invisible wave of Force energy blasted the first attackers backward before they could fire again.
+
+But there were more.
+
+Far more.
+
+The ambushers ignored Obi-Wan entirely.
+
+Their objective was obvious.
+
+Two warriors seized Satine before nearby palace guards could react. Another grabbed Korkie, lifting the struggling child effortlessly.
+
+"Korkie!" Satine cried.
+
+Anakin started running toward them.
+
+"No!"
+
+Obi-Wan lunged first.
+
+He caught Anakin around the waist just as another warrior reached for the boy.
+
+Then Obi-Wan gathered the Force beneath him.
+
+The world blurred.
+
+He burst away in a Force-enhanced dash that carried them across the plaza faster than any ordinary sprint. Stone shattered beneath his feet as he accelerated, putting precious distance between Anakin and the kidnappers.
+
+He came to a stop atop a nearby terrace.
+
+Too late.
+
+The attackers had already reached their extraction craft.
+
+Its engines ignited.
+
+Satine fought furiously despite being restrained.
+
+Korkie kicked and screamed.
+
+The ship lifted into the sky.
+
+"No..." Obi-Wan whispered.
+
+His eyes swept desperately across the street.
+
+A civilian landspeeder.
+
+Abandoned.
+
+Good enough.
+
+He lifted Anakin onto the passenger seat without breaking stride.
+
+"Hold on."
+
+Before Anakin could answer, Obi-Wan had already accelerated.
+
+The speeder shot through Sundari's traffic lanes with reckless speed.
+
+Buildings flashed past.
+
+Warning alarms blared as other vehicles scattered out of his path.
+
+Ahead, the kidnappers' ship climbed higher.
+
+Obi-Wan pushed the civilian engine far beyond anything its designers had intended.
+
+The speeder shook violently.
+
+Panels rattled loose.
+
+Smoke began pouring from the rear housing.
+
+Still he drove faster.
+
+"We're gaining!" Anakin shouted.
+
+"I know."
+
+The distance closed.
+
+Twenty meters.
+
+Ten.
+
+Five.
+
+Obi-Wan pulled alongside.
+
+The transport banked sharply.
+
+He matched it.
+
+Then, at precisely the right instant, he drove the speeder upward.
+
+Metal scraped violently against metal.
+
+The civilian craft slammed onto the transport's upper hull.
+
+Obi-Wan killed the engines.
+
+"We're here."
+
+He jumped onto the ship's exterior.
+
+The wind tore at his robes.
+
+The transport continued flying at high speed over Mandalore's deserts.
+
+Without thinking, Obi-Wan reached toward his belt.
+
+His hand found nothing.
+
+For one impossible second his mind still expected the familiar weight of a lightsaber.
+
+Only then did reality catch up.
+
+He had surrendered Qui-Gon's weapon.
+
+He no longer carried one himself.
+
+There would be no blade cutting effortlessly through durasteel.
+
+He looked down at the armored hull beneath his feet.
+
+"So be it."
+
+He planted both feet firmly.
+
+Raised his hands.
+
+And struck.
+
+The first Force Push echoed like a hammer blow.
+
+The hull groaned.
+
+But held.
+
+Again.
+
+Another tremendous impact slammed into the metal.
+
+Still it resisted.
+
+Obi-Wan closed his eyes briefly.
+
+He reached deeper.
+
+Not into anger.
+
+Into determination.
+
+Satine was inside.
+
+Korkie was inside.
+
+He struck again.
+
+The hull buckled.
+
+A visible dent appeared.
+
+Again.
+
+The durasteel bent inward with a shriek of tortured metal.
+
+Again.
+
+Again.
+
+Again.
+
+Each impact landed like artillery.
+
+Finally, the weakened plating gave way.
+
+Metal burst inward.
+
+A jagged opening tore through the transport's roof.
+
+Without hesitation Obi-Wan dropped through.
+
+He landed hard inside a cargo corridor.
+
+Blaster fire greeted him immediately.
+
+He thrust out one hand.
+
+The nearest guard flew backward into a bulkhead with enough force to crack the wall before collapsing unconscious.
+
+A second attacker rushed him.
+
+Obi-Wan seized the warrior telekinetically and hurled him sideways into a third.
+
+Both crashed together and fell still.
+
+More guards poured into the corridor.
+
+He searched through the Force.
+
+Satine.
+
+Korkie.
+
+There.
+
+Toward the bow.
+
+He sprinted.
+
+Blaster bolts ricocheted around him.
+
+He ducked one.
+
+Another scorched the wall inches from his shoulder.
+
+He burst into a larger compartment.
+
+Satine and Korkie sat restrained in heavy chairs.
+
+Half a dozen armored warriors stood around them.
+
+One guard immediately raised her rifle.
+
+Obi-Wan reached out.
+
+The weapon tore free from her hands.
+
+It flew across the room directly into his waiting grip.
+
+Years of Jedi training had never emphasized firearms.
+
+But he had spent enough time beside soldiers during the Naboo crisis.
+
+He fired.
+
+One guard dropped.
+
+A second.
+
+A third.
+
+The remaining warriors froze.
+
+Their commander looked from the fallen troops to the former Jedi standing calmly with the captured blaster.
+
+Then he slowly lowered his own weapon.
+
+One after another, the others followed.
+
+Their rifles clattered onto the deck.
+
+Obi-Wan did not take his eyes off them.
+
+"Move away from them."
+
+They obeyed.
+
+Only then did he hurry to Satine.
+
+He broke her restraints first.
+
+She immediately reached for Korkie.
+
+Obi-Wan freed the child moments later.
+
+Korkie threw his arms around both adults at once.
+
+"I knew you'd come."
+
+Obi-Wan managed a small smile.
+
+"Always."
+
+There was no time to celebrate.
+
+"We have to leave," Satine said urgently.
+
+Obi-Wan nodded.
+
+He led them back toward the breach in the roof.
+
+The four climbed onto the transport's exterior.
+
+The abandoned speeder still rested where Obi-Wan had landed it.
+
+Miraculously, it remained functional.
+
+They climbed aboard.
+
+Obi-Wan took the controls.
+
+Satine held Korkie tightly beside her.
+
+Anakin squeezed in beside them.
+
+The engines roared.
+
+The speeder leapt away.
+
+Behind them, alarms echoed across the transport.
+
+Then its weapon batteries opened fire.
+
+Scarlet bolts streaked through the sky.
+
+Obi-Wan twisted the speeder sharply.
+
+One blast missed by centimeters.
+
+Another exploded beneath them.
+
+The fragile civilian craft shuddered violently.
+
+"Hang on!" Obi-Wan shouted.
+
+More fire.
+
+He rolled.
+
+Dove.
+
+Climbed.
+
+Every instinct from years as a Jedi pilot returned immediately.
+
+The transport continued firing.
+
+Another barrage erupted.
+
+Obi-Wan banked hard.
+
+Most of the bolts missed.
+
+One did not.
+
+The explosion came without warning.
+
+There was no time to react.
+
+No opportunity to shield anyone.
+
+The bolt struck Korkie directly.
+
+The child went limp instantly.
+
+Satine screamed.
+
+"Korkie!"
+
+There was no response.
+
+No movement.
+
+Only stillness.
+
+Anakin stared in horror.
+
+Obi-Wan felt the life vanish through the Force in a single heartbreaking instant.
+
+Every instinct demanded he stop.
+
+Turn around.
+
+Fight.
+
+Grieve.
+
+Instead he tightened his grip on the controls.
+
+Not because he wanted to.
+
+Because everyone else aboard depended upon him.
+
+He pushed the damaged speeder even harder.
+
+Minute after minute he flew through the desert canyons surrounding Sundari, weaving between rock formations until finally the larger transport could no longer follow safely.
+
+Its engines faded into the distance.
+
+Eventually it abandoned pursuit.
+
+Only then did Obi-Wan slow.
+
+Silence filled the speeder.
+
+Satine cradled Korkie's small body throughout the flight home.
+
+She never let go.
+
+—
+
+The funeral took place three days later.
+
+Unlike the state ceremonies of Mandalorian nobles, this one was private.
+
+Satine requested it herself.
+
+Only family.
+
+Only those who had truly loved him.
+
+The white stone memorial overlooked the desert beyond Sundari's protective dome.
+
+Flowers surrounded the bier.
+
+Korkie's favorite toy—a small mechanical flyer Anakin had built for him only a week earlier—rested beside him.
+
+Anakin stood motionless through the ceremony.
+
+He had lost people before.
+
+But never someone who had laughed with him only days earlier.
+
+Never someone who had become his little brother.
+
+When everyone else had spoken, Anakin stepped forward quietly.
+
+"I was going to teach him how to fly someday."
+
+His voice cracked.
+
+"He would've been really good."
+
+There was nothing more to say.
+
+He stepped back.
+
+Obi-Wan wrapped an arm around his shoulders.
+
+Satine watched in silence as Korkie was laid to rest.
+
+She did not cry again.
+
+Her grief had become something quieter.
+
+Deeper.
+
+Afterward, the three returned to the palace.
+
+No one spoke until evening.
+
+Finally Satine broke the silence.
+
+"I know who sent them."
+
+Obi-Wan looked up.
+
+"The factions that opposed the New Mandalorians."
+
+She folded her hands tightly together.
+
+"The warriors who never accepted our reforms. They believe peace has weakened Mandalore. They believe removing me would return power to them."
+
+"They murdered his parents," Obi-Wan said softly.
+
+"Yes."
+
+"And now they murdered him."
+
+She nodded once.
+
+"I protected him for four years."
+
+Her voice nearly failed.
+
+"And in the end..."
+
+Obi-Wan reached across the table and took her hand.
+
+"You gave him four years of love he would never otherwise have known."
+
+She closed her eyes.
+
+After a long silence, Obi-Wan spoke again.
+
+"This won't be the last attempt."
+
+"No," Satine agreed.
+
+"They've seen that kidnapping can work."
+
+"They won't stop."
+
+Obi-Wan looked toward the adjoining room, where Anakin sat alone, staring silently out a window toward the desert.
+
+"They must never reach him."
+
+Satine followed his gaze.
+
+"The Jedi believed he is the Chosen One."
+
+"They did."
+
+"And whether that prophecy is true or not..." she said quietly, "...he is our family."
+
+Obi-Wan nodded.
+
+"They came for all of us today."
+
+His expression hardened with resolve.
+
+"They will not get another chance."
+
+Together they began making plans.
+
+The palace guard would be expanded.
+
+Travel routes would become unpredictable.
+
+Additional escorts would accompany every public appearance.
+
+Secure rooms throughout the palace would be reinforced.
+
+Obi-Wan himself would rarely allow Anakin out of his sight when beyond the palace walls.
+
+He had once trusted the Jedi Order to provide safety.
+
+Now there was only his own vigilance.
+
+He intended to make it enough.
 
 ---
 
