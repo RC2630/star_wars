@@ -1234,6 +1234,336 @@ Together, the four of them departed for the royal palace in Aldera, where, for t
 
 ---
 
+# Part 3 - Palpatine's Perspective
+
+After withdrawing from the burning Jedi Temple, Palpatine retreated to the Executive Building under heavy clone escort.
+
+His attack had failed.
+
+The Temple still stood.
+
+Damaged.
+
+Scarred.
+
+But still standing.
+
+He paced slowly across his office, hands folded behind his back.
+
+"The Jedi are wounded," he murmured to himself. "Not defeated."
+
+The duel replayed endlessly in his thoughts.
+
+Mace Windu.
+
+Obi-Wan Kenobi.
+
+Anakin Skywalker.
+
+Three Jedi attacking together had forced him into retreat.
+
+His expression hardened.
+
+"One problem at a time."
+
+If he could not destroy the Temple immediately, he could at least begin removing the Jedi who had opposed him most directly.
+
+Anakin came first.
+
+Palpatine stopped beside the great office window overlooking Coruscant.
+
+"He has attachments."
+
+A faint smile spread across his face.
+
+"Attachments can be exploited."
+
+He activated a secure communications terminal.
+
+"Connect me to Senator Padmé Amidala."
+
+After a short delay, her image appeared.
+
+She looked exhausted.
+
+More importantly, she showed no trace of surprise at seeing him.
+
+"What do you want?"
+
+"I request your presence for a private meeting."
+
+Padmé's expression became one of open disgust.
+
+"No."
+
+Palpatine's smile faded.
+
+"You should reconsider."
+
+"I already have."
+
+She leaned closer toward the holoprojector.
+
+"The entire Senate knows you're a Sith Lord now."
+
+Her voice carried no hesitation.
+
+"I'm not voluntarily meeting with you."
+
+The transmission ended.
+
+Palpatine stared at the empty projector for several seconds.
+
+"So be it."
+
+He opened another channel.
+
+"Commander."
+
+A clone officer appeared.
+
+"Yes, my lord."
+
+"Assemble a detachment."
+
+The clone saluted.
+
+"Immediately."
+
+Not long afterward, several military speeders swept across Coruscant toward Padmé's residence.
+
+Clone troopers secured every entrance while Palpatine entered personally.
+
+The confrontation was brief.
+
+Padmé resisted.
+
+The clones overwhelmed her.
+
+Minutes later she was brought into the Chancellor's office.
+
+Her wrists were locked inside restraints.
+
+Palpatine stood before her.
+
+"You've caused yourself unnecessary suffering."
+
+Padmé glared back.
+
+"I'll never help you."
+
+"I wasn't asking."
+
+He slowly circled around her.
+
+"The Jedi are collapsing."
+
+He gestured toward the city outside.
+
+"The Republic is becoming mine."
+
+She remained silent.
+
+"Your husband has already lost."
+
+Still she said nothing.
+
+Palpatine stopped directly in front of her.
+
+"He simply doesn't know it yet."
+
+Padmé finally answered.
+
+"You underestimate him."
+
+Palpatine smiled.
+
+"We shall see."
+
+He held up her comlink.
+
+"You're going to call Anakin."
+
+She shook her head.
+
+"No."
+
+One of the nearby clones stepped closer.
+
+Palpatine's voice remained calm.
+
+"You will."
+
+Several minutes later, Padmé reluctantly held the comlink.
+
+Palpatine watched her carefully.
+
+"Say exactly this."
+
+He dictated every word.
+
+When the transmission connected, Padmé spoke exactly as instructed.
+
+"Anakin... I have been kidnapped by Palpatine. I'm in his office. I desperately need help."
+
+The transmission ended.
+
+Palpatine immediately took the comlink from her.
+
+He slipped it into his robes.
+
+"No more conversations."
+
+Padmé looked away.
+
+"You won't get what you want."
+
+"Oh, I think I will."
+
+He approached the broken remains of one of the office's decorative statues.
+
+"When Anakin arrives, he will try to rescue you."
+
+He folded his hands.
+
+"He will fail."
+
+Padmé remained silent.
+
+"I will have both of you."
+
+He looked directly into her eyes.
+
+"And with you in my custody..."
+
+A satisfied smile crossed his face.
+
+"...Anakin will become remarkably cooperative."
+
+He imagined the conversation already.
+
+Reveal the locations of surviving Jedi.
+
+Reveal evacuation routes.
+
+Reveal everything the Order still possessed.
+
+If persuasion failed, there were other methods.
+
+And if the threat of Padmé's death became necessary...
+
+Palpatine believed Anakin's attachment would make him bend.
+
+Perhaps even break.
+
+Perhaps, finally, embrace the dark side completely.
+
+A new apprentice.
+
+Far younger than Dooku.
+
+Far stronger.
+
+He waited.
+
+Time passed.
+
+Then he felt it.
+
+A familiar presence.
+
+Anakin.
+
+Palpatine smiled.
+
+"Right on schedule."
+
+He remained standing near Padmé.
+
+He expected anger.
+
+A confrontation.
+
+Perhaps an exchange of words before another duel.
+
+Instead—
+
+The office doors exploded open.
+
+Anakin became a blur.
+
+He crossed the room with astonishing speed, using the Force to propel himself forward.
+
+Before Palpatine could fully react, another surge of the Force struck the office window.
+
+The transparisteel shattered outward in an explosion of fragments.
+
+Padmé was ripped free from where she stood.
+
+Still restrained, she flew toward Anakin.
+
+He caught her.
+
+Then, without attacking Palpatine even once, Anakin carried both of them straight through the shattered opening.
+
+Palpatine reached the broken window a moment later.
+
+He looked down.
+
+The pair plummeted toward the distant streets far below.
+
+For several seconds he watched them fall.
+
+"They're dead," he said quietly.
+
+No ordinary beings could survive such a descent.
+
+Even with the Force, the height was immense.
+
+He considered pursuing them.
+
+He could leap after them.
+
+Search the impact site.
+
+Confirm their deaths.
+
+After a moment, he dismissed the idea.
+
+"There is no need."
+
+He turned away from the ruined window.
+
+"The fall has finished them."
+
+Clone patrols would eventually secure the area regardless.
+
+If, by some extraordinary chance, anyone had survived, they would be found.
+
+Palpatine walked back toward his desk.
+
+His office was in ruins once again.
+
+Broken transparisteel covered the floor.
+
+Cold air rushed through the enormous opening overlooking Coruscant.
+
+He activated a communications console.
+
+There was still much to organize.
+
+The Jedi remained at large.
+
+The Temple had escaped destruction.
+
+The galaxy had yet to be fully brought under his control.
+
+Anakin Skywalker, he believed, was no longer among the living.
+
+That, at least, was one problem he considered solved.
+
+---
+
 # Part 4
 
 Dagobah was unlike any world most of the Jedi had ever seen.
