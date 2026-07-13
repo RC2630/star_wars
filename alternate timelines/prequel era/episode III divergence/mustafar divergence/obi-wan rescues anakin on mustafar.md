@@ -2245,3 +2245,1373 @@ Some battles were won through action.
 Others were won through patience.
 
 For now, patience would be their greatest weapon.
+
+---
+
+# Part 6
+
+Life on Naboo settled into an uneasy rhythm.
+
+Queen Apailana publicly cooperated with the Empire. Imperial officials were received with courtesy, taxes were paid, and Naboo presented the appearance of a loyal Imperial world.
+
+Privately, however, the Queen refused to abandon her principles.
+
+Whenever she could do so without drawing suspicion, she quietly resisted Imperial overreach. She protected local institutions, slowed the implementation of harsher directives through bureaucratic delays, and discreetly assisted citizens who had fallen under unfair Imperial scrutiny.
+
+Not everyone on Naboo shared her views.
+
+Some believed loyalty to the Empire was simply the safest course.
+
+"The Republic is gone," many argued. "Better to cooperate than provoke Coruscant."
+
+Others supported the Empire for a different reason.
+
+Palpatine had been born on Naboo.
+
+To them, the Emperor was not merely the ruler of the galaxy—he was one of Naboo's own, and they regarded his rise as a source of planetary pride.
+
+Far from the political life of Theed, the Skywalkers continued their quiet existence at Varykino Villa.
+
+The Naberrie family visited regularly.
+
+Sola often arrived with Ryoo and Pooja, bringing food, stories from Theed, and endless enthusiasm from the girls, who adored spending time with Luke and Leia.
+
+Anakin and Padmé, however, never made the journey in the opposite direction.
+
+One afternoon Ryoo asked why.
+
+"Why don't you ever visit us?"
+
+Padmé smiled gently.
+
+"Because Theed is much more dangerous for us."
+
+Anakin nodded.
+
+"The fewer people who see us there, the better."
+
+"So we come here instead," Sola said.
+
+"It works just fine."
+
+The girls accepted the explanation without complaint.
+
+Occasionally another visitor arrived.
+
+Ahsoka Tano.
+
+She always approached cautiously, making certain she had not been followed before landing near the villa.
+
+Each visit became a welcome reunion.
+
+"You look better every time I see you," Ahsoka remarked during one visit.
+
+Anakin laughed.
+
+"I'll take that as a compliment."
+
+"It was."
+
+She smiled toward Luke and Leia.
+
+"They're growing fast."
+
+"They are," Padmé agreed.
+
+Obi-Wan and Yoda never came.
+
+Both remained committed to their self-imposed exile on Dagobah, communicating only through carefully secured transmissions when absolutely necessary.
+
+As the children grew older, Sola gave Ryoo and Pooja one instruction that she repeated often.
+
+"You must never talk about Aunt Padmé, Uncle Anakin, Luke, or Leia at school."
+
+The girls nodded obediently.
+
+"They're a secret."
+
+"Exactly."
+
+"For everyone's safety."
+
+For quite some time, they kept that promise.
+
+Then one afternoon, excitement overcame caution.
+
+Ryoo returned to school after another happy visit to Varykino Villa.
+
+Her classmates asked what she had done over the weekend.
+
+Without thinking, she smiled brightly.
+
+"We visited Aunt Padmé and Uncle Anakin!"
+
+Several children looked confused.
+
+"The war hero?"
+
+"The Jedi?"
+
+"The pilot?"
+
+Ryoo enthusiastically nodded.
+
+"And Luke and Leia are getting so big—"
+
+Only then did she remember her mother's instructions.
+
+Her face fell.
+
+"Oh..."
+
+But the words had already been spoken.
+
+Children repeated the story to their friends.
+
+Friends repeated it to their families.
+
+Families discussed it with neighbors.
+
+Within days, much of Theed was talking.
+
+"Anakin Skywalker is alive?"
+
+"I thought he disappeared after the war."
+
+"The Hero With No Fear?"
+
+"The Jedi General?"
+
+"No, I remember him from before the Clone Wars."
+
+"The little boy who destroyed the Trade Federation control ship."
+
+"The one who saved Naboo."
+
+"So he lives at Varykino?"
+
+"And Senator Amidala is there too?"
+
+"They even have children."
+
+Rumors spread astonishingly fast across the planet.
+
+Meanwhile, life at Varykino Villa continued peacefully.
+
+The Skywalkers remained completely unaware that their existence had become one of Naboo's worst-kept secrets.
+
+Unfortunately, not every citizen who heard those rumors wished them well.
+
+Among Naboo's Imperial loyalists, several considered the information far too important to ignore.
+
+Encrypted reports soon departed Naboo for Coruscant.
+
+When Emperor Palpatine received them, he stared silently at the intelligence briefing.
+
+"Impossible."
+
+He immediately summoned Grand Moff Tarkin.
+
+Moments later, Tarkin entered the Imperial audience chamber.
+
+"You wished to see me, Your Excellency?"
+
+Palpatine handed him the report.
+
+"Explain this."
+
+Tarkin read it carefully.
+
+His expression changed.
+
+"They're on Naboo?"
+
+"So I am told."
+
+Palpatine looked directly at him.
+
+"You searched Naboo."
+
+"I did."
+
+"You searched Varykino."
+
+"I did."
+
+Palpatine's voice grew colder.
+
+"Then how did you fail?"
+
+Tarkin calmly activated a projector.
+
+Security recordings appeared above the table.
+
+Imperial troops systematically searched the grounds of Varykino Villa.
+
+Every room was inspected.
+
+Every outbuilding examined.
+
+No occupants were present.
+
+"You can see for yourself, Your Excellency."
+
+Palpatine watched the footage in silence.
+
+Tarkin continued.
+
+"My conclusion is straightforward."
+
+"They were not on Naboo when we conducted our search."
+
+"They must have arrived only after Imperial forces had already departed."
+
+Palpatine watched the recording until it ended.
+
+Finally he nodded.
+
+"The evidence supports your conclusion."
+
+He dismissed the projection.
+
+"I accept it."
+
+Tarkin inclined his head.
+
+"What are your orders?"
+
+Palpatine smiled faintly.
+
+"No fleet."
+
+"No army."
+
+He looked toward the viewport overlooking Coruscant.
+
+"I shall retrieve my apprentice myself."
+
+Without another word, preparations for his personal shuttle began.
+
+Not long afterward, the Emperor departed Coruscant for Naboo.
+
+On Naboo itself, the day had begun peacefully.
+
+Anakin had arranged to meet Ahsoka in one of the broad grassy fields overlooking Naboo's lake country.
+
+He brought Padmé, Luke, Leia, R2-D2, and C-3PO along for the outing.
+
+The twins laughed as they played among the wildflowers while Padmé watched them nearby.
+
+Anakin looked toward the sky.
+
+"Ahsoka should be here soon."
+
+A distant starship appeared overhead.
+
+"There she is," Padmé said.
+
+Anakin shaded his eyes.
+
+The vessel descended steadily.
+
+Then something felt wrong.
+
+"...That's not her ship."
+
+His expression hardened.
+
+As the shuttle drew closer, he recognized its unmistakable silhouette.
+
+His heart sank.
+
+"No..."
+
+The shuttle landed.
+
+The boarding ramp lowered.
+
+Emperor Palpatine descended alone.
+
+The instant Anakin saw him step onto Naboo's soil, he ignited his blue lightsaber.
+
+The familiar snap-hiss echoed across the field.
+
+Palpatine stopped several meters away.
+
+"My apprentice."
+
+"I'm not your apprentice."
+
+"You still could be."
+
+"I said no."
+
+Palpatine spread his hands.
+
+"You abandoned everything for the woman you loved."
+
+"And she lives."
+
+"My promise was fulfilled."
+
+"You've already seen that I spoke the truth."
+
+Anakin tightened his grip on the lightsaber.
+
+"You manipulated me."
+
+"I enlightened you."
+
+"You destroyed my life."
+
+"I offered you power."
+
+"I don't want your power."
+
+Palpatine's expression remained calm.
+
+"You could still stand at my side."
+
+"The galaxy could still be yours."
+
+Anakin took one determined step forward.
+
+"It never was."
+
+Without another word, he charged.
+
+Blue and crimson blades collided in an explosion of light.
+
+The duel began immediately.
+
+Their movements blurred across the open field as lightsabers crashed together again and again.
+
+Palpatine's mastery remained terrifying.
+
+Months of recovery had restored Anakin's physical abilities, and his new prosthetic limbs responded as naturally as his original ones ever had. He matched the Emperor blow for blow.
+
+Then Palpatine abruptly shifted tactics.
+
+Instead of focusing solely on Anakin, he thrust out one hand toward Padmé and the twins.
+
+Invisible Force energy hurled rocks and shattered tree branches toward them.
+
+"Padmé!" Anakin shouted.
+
+"Take cover!"
+
+She gathered Luke and Leia and sprinted toward a cluster of large boulders as debris crashed around them.
+
+Anakin tried to intercept Palpatine's attacks while simultaneously defending himself.
+
+The divided attention cost him.
+
+Palpatine steadily drove him backward.
+
+Each exchange forced Anakin farther from his family while making it harder to shield them from the Emperor's attacks.
+
+For the first time since the duel began, defeat seemed possible.
+
+Then another ship roared overhead.
+
+It descended rapidly toward the field.
+
+The boarding ramp opened before it had fully settled.
+
+Ahsoka Tano leapt to the ground.
+
+She took one look at the battlefield.
+
+Anakin.
+
+Palpatine.
+
+Ignited lightsabers.
+
+Without hesitation she drew her own.
+
+Twin blue blades burst to life.
+
+"Master!"
+
+She sprinted into the fight.
+
+Palpatine's eyes narrowed.
+
+He had not anticipated another Jedi.
+
+Ahsoka struck from his flank, forcing him to abandon an attack he had been directing toward Padmé.
+
+The balance of the duel shifted immediately.
+
+Anakin and Ahsoka fell naturally into the rhythm they had shared throughout the Clone Wars.
+
+One engaged directly.
+
+The other watched for openings.
+
+When Palpatine turned his attention toward one opponent, the other pressed the attack.
+
+Whenever the Emperor attempted another Force assault against Padmé and the twins, one of the two Jedi intercepted it while the other maintained relentless pressure.
+
+"Get them farther away!" Ahsoka called.
+
+"I've got him!"
+
+Anakin disengaged just long enough to escort Padmé, Luke, and Leia behind a rocky ridgeline hundreds of meters away.
+
+"They'll hold here," Padmé said.
+
+"Go!"
+
+Anakin nodded once before racing back toward the battlefield.
+
+Now there was nothing left to divide their attention.
+
+Together, master and former apprentice advanced.
+
+Palpatine's defense grew increasingly strained.
+
+Ahsoka's swift, unpredictable attacks forced him to reposition constantly.
+
+Anakin's powerful strikes denied him any opportunity to regain the initiative.
+
+Step by step, they drove him backward across the field.
+
+Palpatine unleashed arcs of Force lightning.
+
+Anakin absorbed the attack with his lightsaber while Ahsoka closed the distance.
+
+Palpatine turned to meet her.
+
+That opening was all Anakin needed.
+
+He broke through the Emperor's guard with a powerful overhead strike.
+
+Palpatine stumbled.
+
+Ahsoka's blades forced him lower still.
+
+For the first time in decades, the Dark Lord found himself completely on the defensive.
+
+He fell to one knee.
+
+Anakin stood over him.
+
+Palpatine looked up.
+
+"There is still time—"
+
+Anakin answered with silence.
+
+His blue lightsaber swept downward in one final strike.
+
+The blade passed cleanly through the Emperor.
+
+Darth Sidious fell motionless upon the grass.
+
+The duel was over.
+
+For several long seconds, neither Anakin nor Ahsoka moved.
+
+The only sounds were the distant wind across Naboo's fields and the steady hum of three blue lightsabers.
+
+Finally, Anakin deactivated his weapon.
+
+Padmé emerged cautiously from behind the rocks, carrying Leia while Luke clung to her other arm.
+
+She looked from Anakin to the fallen Emperor.
+
+Then she embraced her husband without saying a word.
+
+Ahsoka stood nearby, breathing heavily, grateful that she had arrived when she did.
+
+Without her unexpected arrival, the battle in the open fields of Naboo might have ended very differently.
+
+---
+
+# Part 7
+
+The death of Emperor Palpatine sent shockwaves through the Galactic Empire.
+
+Within hours, Coruscant became the center of an unprecedented political crisis.
+
+The Empire had been built around a single ruler.
+
+Now that ruler was gone.
+
+No universally accepted successor existed.
+
+Inside the Imperial Palace, Mas Amedda immediately asserted his authority.
+
+"As Grand Vizier," he declared before assembled Imperial officials, "I am the lawful successor to the Emperor's government until proper succession can be established."
+
+Not everyone agreed.
+
+Grand Moff Wilhuff Tarkin entered the chamber shortly afterward, flanked by senior naval officers.
+
+"You may claim legality," Tarkin said evenly, "but the Imperial Navy answers to me."
+
+Mas Amedda frowned.
+
+"The Empire is governed by law."
+
+Tarkin's expression remained cold.
+
+"The Empire is governed by power."
+
+He stepped closer.
+
+"If necessary, I will turn my fleet against anyone who attempts to deny my rightful authority."
+
+The room fell silent.
+
+The Empire had fractured.
+
+While Tarkin and Mas Amedda competed for control of the government, ordinary citizens across Coruscant watched events unfold with growing disbelief.
+
+Years earlier, Palpatine had proclaimed the Galactic Empire by promising peace, order, and stability.
+
+Many citizens had believed him.
+
+Many had accepted the end of the Republic because they believed the Empire would prevent further chaos.
+
+Now, one man's death had plunged the government into confusion.
+
+"If this is stability," people began saying openly, "what did we give up our democracy for?"
+
+Public opinion shifted rapidly.
+
+Those who had opposed Imperial rule from the beginning found themselves joined by countless former supporters.
+
+Demonstrations spread across Coruscant.
+
+Soon demonstrations became open revolt.
+
+Both Mas Amedda and Tarkin attempted to restore order by calling upon the clone army.
+
+The commands went unanswered.
+
+Confused officers repeatedly contacted clone commanders throughout the capital.
+
+"Why aren't you moving?"
+
+The replies were remarkably consistent.
+
+"Our orders are to obey the Supreme Chancellor of the Republic or the Emperor of the Galactic Empire."
+
+"There is no Supreme Chancellor."
+
+"And there is no recognized Emperor."
+
+"We have no lawful authority to obey."
+
+Without a universally acknowledged chain of command, the clone army refused to intervene.
+
+The revelation spread quickly through the streets.
+
+"The clones aren't attacking!"
+
+The revolts expanded almost overnight.
+
+Within the Imperial Senate, senators who had quietly opposed the Empire finally saw an opportunity.
+
+Bail Organa and Mon Mothma gathered like-minded senators behind closed doors.
+
+"The Empire has lost its legitimacy," Mon Mothma said.
+
+Bail nodded.
+
+"Then we must restore lawful government."
+
+Secure messages spread across the galaxy.
+
+On Naboo, Queen Apailana received Bail's appeal.
+
+She stood before the Royal Advisory Council.
+
+"For years," she said, "we have resisted quietly."
+
+She looked around the chamber.
+
+"That time is over."
+
+"The moment has come to defend democracy openly."
+
+The council unanimously agreed.
+
+Royal Naboo Security Forces prepared for deployment.
+
+Queen Apailana also requested a meeting with Boss Lyonie.
+
+The Gungan leader listened carefully.
+
+"The Empire is weak now," Apailana concluded.
+
+"But only if we act together."
+
+Boss Lyonie smiled.
+
+"The Gungans stood beside Naboo before."
+
+"We stand beside Naboo again."
+
+The Grand Army of the Gungans marched once more.
+
+On Alderaan, Queen Breha reached the same conclusion.
+
+She addressed her commanders.
+
+"Alderaan cannot stand aside while the Republic has a chance to live again."
+
+Her planetary defense forces immediately departed for Coruscant.
+
+One by one, worlds across the galaxy made similar decisions.
+
+Planetary governments that had quietly opposed Imperial rule committed their own security forces.
+
+Their ships converged upon Coruscant.
+
+Combined with the rapidly growing civilian uprising already sweeping the capital, the balance of power shifted decisively.
+
+Even Tarkin's loyal officers recognized that the situation had become impossible.
+
+After several days of mounting pressure, Republican senators, local security forces, and allied planetary contingents secured the Imperial Palace.
+
+Mas Amedda surrendered peacefully.
+
+Tarkin attempted to organize one final resistance before realizing he had been completely surrounded.
+
+He reluctantly ordered his remaining forces to stand down.
+
+Both men were arrested.
+
+Along with numerous senior Imperial officials, they were placed into custody to await trial for crimes committed under Imperial rule.
+
+With organized Imperial authority collapsed, the Senate reconvened.
+
+For the first time in years, its members debated freely.
+
+The first motion passed overwhelmingly.
+
+The Galactic Republic was restored.
+
+The next question concerned leadership.
+
+An immediate election for Supreme Chancellor was held.
+
+When the votes were counted, Bail Organa had won by a wide margin.
+
+As he stood before the Senate chamber to take the oath of office, many senators rose to applaud.
+
+"I accept this responsibility," Bail said.
+
+"Our task now is not vengeance."
+
+"It is reconstruction."
+
+"We must rebuild our institutions."
+
+"We must restore justice."
+
+"And we must ensure that fear never again replaces democracy."
+
+The Senate erupted in applause.
+
+Not long afterward, Ahsoka Tano arrived on Coruscant.
+
+She was not alone.
+
+Captain Rex stood beside her.
+
+Together they met with officials of the restored Republic.
+
+During extensive testimony, they explained everything they knew about Order 66.
+
+Rex described his own experience.
+
+"The inhibitor chip forced us."
+
+He placed a hand against his temple.
+
+"It wasn't a choice."
+
+Medical specialists carefully studied the evidence.
+
+Their conclusions confirmed the existence and purpose of the inhibitor chips.
+
+The Republic immediately established a galaxy-wide medical program.
+
+Over the following months, clone troopers voluntarily underwent surgery to remove the implants.
+
+One by one, the chips were removed.
+
+The threat of involuntary activation disappeared.
+
+The Senate then debated another question.
+
+What legal status should the clones possess now that the truth had been revealed?
+
+The answer came in the form of historic legislation.
+
+Every surviving clone trooper was recognized as a person under the law.
+
+Each received full citizenship within the restored Republic, together with the same legal rights and protections enjoyed by every other citizen.
+
+Many clones attended the Senate session in person.
+
+When the bill passed, they rose together in silent acknowledgment.
+
+Elsewhere on Coruscant, another long-awaited return took place.
+
+With the danger from Order 66 finally ended, Obi-Wan Kenobi and Yoda departed Dagobah.
+
+They arrived once more at the Jedi Temple.
+
+The sight saddened them.
+
+Palpatine had transformed the ancient Temple into the Imperial Palace.
+
+Jedi symbols had been removed.
+
+Meditation chambers had become administrative offices.
+
+The great halls no longer resembled the home they had once known.
+
+Obi-Wan looked around quietly.
+
+"We have a great deal of work ahead of us."
+
+"We do," Yoda agreed.
+
+With assistance from civilian volunteers, restoration began almost immediately.
+
+Imperial banners disappeared.
+
+Ancient Jedi architecture gradually returned.
+
+Archives were rebuilt.
+
+Meditation rooms reopened.
+
+Training halls were restored.
+
+Slowly, the Temple once again became the home of the Jedi.
+
+At the same time, Obi-Wan and Yoda began searching the galaxy for survivors of Order 66.
+
+Some answered immediately.
+
+"We're coming home."
+
+Others had chosen different lives.
+
+One former Jedi told Obi-Wan,
+
+"I still believe in helping people."
+
+"But I no longer believe I belong in the Order."
+
+Obi-Wan simply smiled.
+
+"Then continue helping people."
+
+"There are many ways to serve the Force."
+
+Yoda likewise refused to pressure anyone.
+
+"The choice," he told every survivor, "yours alone it is."
+
+Some returned.
+
+Others remained where they had built new lives.
+
+Both decisions were respected.
+
+On Naboo, news of the Republic's restoration eventually reached Varykino Villa.
+
+Padmé sat quietly after reading the latest reports.
+
+"The Republic is back."
+
+Anakin smiled.
+
+"I never thought I'd hear those words again."
+
+She looked thoughtfully toward the lake.
+
+"I could return."
+
+He looked at her.
+
+"To the Senate?"
+
+She nodded.
+
+"There's no Emperor anymore."
+
+"No one can use me as leverage against you."
+
+"The danger that kept me away is gone."
+
+For several evenings they discussed the possibility.
+
+Padmé missed public service.
+
+She missed representing people.
+
+She missed helping shape the future of the galaxy.
+
+At the same time, every discussion eventually returned to the same place.
+
+Luke.
+
+Leia.
+
+Their family.
+
+One evening, after putting the twins to bed, Padmé finally reached her decision.
+
+She found Anakin sitting outside beneath the stars.
+
+"I've decided."
+
+He waited quietly.
+
+"I'm staying."
+
+He searched her face.
+
+"You're sure?"
+
+She nodded.
+
+"I spent years serving the galaxy."
+
+She smiled softly.
+
+"Now I want to spend these years serving our family."
+
+She looked toward the villa.
+
+"The Republic has good people leading it."
+
+"Bail."
+
+"Mon Mothma."
+
+"So many others."
+
+"They'll continue the work."
+
+She reached for his hand.
+
+"But Luke and Leia only have one childhood."
+
+"I don't want to miss it."
+
+Anakin smiled more broadly than she had seen in a very long time.
+
+"I'm very happy to hear that."
+
+Padmé leaned against him.
+
+"So am I."
+
+While the restored Republic began rebuilding a galaxy scarred by war and dictatorship, peace finally settled over Varykino Villa.
+
+For the first time in many years, Anakin Skywalker was no longer a soldier.
+
+Padmé Amidala was no longer a senator.
+
+Together, they devoted themselves to raising their children, grateful that the future before Luke and Leia would unfold beneath the banner of a restored Republic rather than an Empire.
+
+---
+
+# Part 8
+
+Several more peaceful years passed at Varykino Villa.
+
+Luke and Leia grew into energetic children, filling the home with endless questions, games, and adventures around Naboo's lake country. Anakin devoted himself to teaching them patience, compassion, and the first gentle lessons of the Force, while Padmé ensured they also understood history, diplomacy, and the responsibilities that came with serving others.
+
+One afternoon, after the twins had gone outside to play with R2-D2 under C-3PO's watchful supervision, Anakin entered the sitting room carrying several old Jedi texts.
+
+His expression was unusually thoughtful.
+
+"Padmé?"
+
+She looked up from the document she had been reading.
+
+"What is it?"
+
+Anakin set the books down.
+
+"I've been reading about some rather unusual Force techniques."
+
+Padmé smiled.
+
+"That usually means you're about to tell me something that worries me."
+
+He hesitated.
+
+"There's a technique called essence transfer."
+
+Her smile faded.
+
+"What does it do?"
+
+"It allows someone to transfer their spirit from one body into another."
+
+Padmé stared at him.
+
+"That sounds quite unsettling."
+
+She narrowed her eyes.
+
+"You are not planning to use this, are you?"
+
+"Actually..."
+
+Anakin rubbed the back of his neck.
+
+"...I was planning to."
+
+Padmé blinked.
+
+"Why?"
+
+He slowly stretched out both prosthetic arms before shifting his weight onto his prosthetic legs.
+
+"Look at me."
+
+"I've lived with four prosthetic limbs for years now."
+
+"I'm almost more droid than human."
+
+He flexed his mechanical fingers.
+
+"If I could transfer my spirit into a clone of myself..."
+
+"...maybe I could have my organic limbs back."
+
+Padmé immediately shook her head.
+
+"Anakin, no."
+
+He looked surprised.
+
+"No?"
+
+"No."
+
+She folded her arms.
+
+"No, no, no."
+
+"Why not?"
+
+"Don't you want me to have my limbs back?"
+
+"You don't know what it's like to live like this every single day."
+
+He looked down at his hands.
+
+"It can feel..."
+
+He searched for the right word.
+
+"...dehumanizing."
+
+Padmé's expression softened.
+
+She crossed the room and gently took one of his mechanical hands.
+
+"Ani."
+
+"I do understand."
+
+"I know it must be painful."
+
+"I know there are days when these prosthetics remind you of everything that happened."
+
+She squeezed his hand.
+
+"But essence transfer sounds like a terrible idea."
+
+Anakin frowned.
+
+"Why do you think that?"
+
+Padmé raised one finger.
+
+"First."
+
+"You don't know whether the technique would even work."
+
+"If it failed..."
+
+She paused.
+
+"...you could die."
+
+Anakin lowered his eyes.
+
+"And if you died..."
+
+Her voice became quieter.
+
+"I would lose my husband."
+
+"Luke and Leia would lose their father."
+
+She looked directly into his eyes.
+
+"You wouldn't want them to grow up without you."
+
+"You wouldn't want me to raise them by myself."
+
+Anakin immediately shook his head.
+
+"Of course not."
+
+"But—"
+
+She gently interrupted.
+
+"Second."
+
+"Where exactly are you planning to get a clone of yourself?"
+
+"The Kaminoans."
+
+"They could grow another body."
+
+Padmé sighed.
+
+"They don't produce adult clones overnight."
+
+"They produce babies."
+
+Anakin nodded.
+
+"Yes."
+
+"But the clone could be given accelerated aging."
+
+"It would eventually reach my biological age."
+
+"Then I could perform the transfer."
+
+Padmé considered that for a moment.
+
+"And afterward?"
+
+"What do you mean?"
+
+"The accelerated aging."
+
+She spread her hands.
+
+"If your new body continues aging at that accelerated rate, you'll grow old much faster than I will."
+
+"You could die decades before me."
+
+Anakin thought for a moment.
+
+"Then perhaps they could stop the accelerated aging once the clone reaches adulthood."
+
+"Or stop it shortly before the transfer."
+
+Padmé slowly shook her head.
+
+"I don't think that's possible."
+
+"If it were..."
+
+"...the Republic could have simply stopped the accelerated aging of every clone trooper years ago."
+
+"But they never did."
+
+She continued thoughtfully.
+
+"Even after the Republic granted clone rights and invested heavily in clone medicine, no one discovered a way to reverse or halt accelerated aging once it had already begun."
+
+"If even the Kaminoans couldn't do it..."
+
+"...I don't think we should assume they suddenly can."
+
+Anakin nodded slowly.
+
+"...Fair."
+
+"Maybe that part of my idea doesn't work."
+
+Padmé raised a third finger.
+
+"I'm still not finished."
+
+Anakin gave a nervous smile.
+
+"I suspected as much."
+
+She couldn't help smiling back before becoming serious again.
+
+"Third."
+
+She looked steadily at him.
+
+"Have you considered that your clone wouldn't just be an empty body?"
+
+He blinked.
+
+"He would be a person."
+
+"He would have his own thoughts."
+
+"His own mind."
+
+"His own life."
+
+She spoke firmly.
+
+"If you transferred your spirit into that body..."
+
+"...you would erase another person's identity."
+
+"I can't support that."
+
+Anakin stared at her.
+
+"I..."
+
+He had no immediate answer.
+
+"I can't believe you thought of that before I did."
+
+Padmé smiled sadly.
+
+"Someone had to."
+
+She raised a fourth finger.
+
+"And finally."
+
+"What if the transfer changes your connection to the Force?"
+
+Anakin frowned.
+
+"What do you mean?"
+
+"What if your new body isn't Force-sensitive?"
+
+He was silent.
+
+"What if you wake up with four organic limbs..."
+
+"...but no connection to the Force at all?"
+
+She stepped closer.
+
+"The Force has been part of you since you were a child."
+
+"It shapes how you see the galaxy."
+
+"It guides your judgment."
+
+"It helped bring you back after everything that happened."
+
+She looked gently into his eyes.
+
+"Would you really trade all of that..."
+
+"...for four organic limbs?"
+
+Anakin stood motionless.
+
+Several long moments passed.
+
+Finally he looked down at his mechanical hands.
+
+Then he slowly flexed each finger.
+
+"They work."
+
+He shifted his weight.
+
+"So do my legs."
+
+He looked back at Padmé.
+
+"They're not the limbs I was born with."
+
+"They're not as good."
+
+"But they're functional."
+
+He smiled faintly.
+
+"And..."
+
+He paused.
+
+"...the Force really is part of who I am."
+
+"I don't want to lose that."
+
+He let out a long breath.
+
+"I suppose I can live without my original limbs."
+
+"I've already been doing exactly that for years."
+
+Padmé smiled with visible relief.
+
+"So..."
+
+"You won't pursue essence transfer?"
+
+Anakin nodded.
+
+"I won't."
+
+He took her hand.
+
+"I promise."
+
+"Good."
+
+They stood together quietly.
+
+After a short silence, Padmé spoke again.
+
+"There is one more thing."
+
+Anakin listened.
+
+"You've often thought of your prosthetic limbs as something that was taken from you."
+
+He nodded.
+
+"I have."
+
+She chose her words carefully.
+
+"Perhaps there's another way to look at them."
+
+He waited.
+
+"They're a reminder."
+
+"A reminder of the irreversible things you did."
+
+Her voice remained calm but firm.
+
+"You killed the younglings in the Jedi Temple."
+
+Anakin closed his eyes.
+
+"They can never have their lives back."
+
+"They never had the chance to grow up."
+
+"They never had the futures that were waiting for them."
+
+She gently rested a hand against his shoulder.
+
+"What happened to them cannot be undone."
+
+He swallowed quietly.
+
+"No."
+
+"It can't."
+
+Padmé continued.
+
+"When you consider everything that happened..."
+
+"...I think you're actually extraordinarily fortunate."
+
+"You survived."
+
+"You found your way back."
+
+"You have a family."
+
+"You have Luke."
+
+"You have Leia."
+
+"You have friends who forgave you."
+
+"The Jedi welcomed you back into their lives, even though they could never restore your place within the Order."
+
+She looked at him with compassion.
+
+"Many people would consider what you did unforgivable."
+
+"And yet..."
+
+"...you were given another chance."
+
+She touched one of his prosthetic arms.
+
+"In the end..."
+
+"...you lost your limbs."
+
+"But you did not lose your life."
+
+"You did not lose your family."
+
+"You did not lose your future."
+
+Anakin remained silent for a long time.
+
+When he finally spoke, his voice was quiet.
+
+"I've never thought about it that way."
+
+He slowly looked at each of his prosthetic limbs.
+
+"You're right."
+
+"I probably should have suffered a much worse fate."
+
+He looked back at Padmé.
+
+"Instead..."
+
+"...I was allowed to rebuild my life."
+
+He nodded slowly.
+
+"I should consider myself fortunate."
+
+He rested one mechanical hand over hers.
+
+"And perhaps these prosthetics should remain exactly as they are."
+
+"A constant reminder."
+
+"So that I never forget."
+
+"So that I never allow myself to become that person again."
+
+Padmé smiled.
+
+"I was hoping you'd say that."
+
+He smiled in return.
+
+"I completely agree with you."
+
+Without another word, they embraced.
+
+The conversation ended there.
+
+From that day forward, Anakin never again searched for ways to recover his original limbs.
+
+He no longer viewed his prosthetics as something that had stolen his humanity.
+
+Instead, they became a daily reminder of both the terrible consequences of his choices and the extraordinary mercy that had allowed him to build a new life afterward—a life shared with his wife, his children, and the family he had once feared he would lose forever.
