@@ -3281,3 +3281,1515 @@ At long last, the fighting was over.
 The family was together again.
 
 And for the first time in many years, the future held not fear, but peace.
+
+---
+
+# Epilogue: Part 1
+
+A few months after their reunion, life at Varykino Villa had settled into a comfortable rhythm.
+
+The old lakeside home had stood abandoned for decades.
+
+Together, Anakin, Padmé, Luke, Leia, R2-D2, and C-3PO restored it room by room.
+
+Fresh paint replaced weathered walls.
+
+The gardens bloomed once more.
+
+The balconies overlooking the lake were repaired.
+
+What had once been a place of secret meetings became, at last, an ordinary family home.
+
+One warm afternoon, the family gathered in the sitting room.
+
+R2-D2 projected one holographic recording after another while Anakin narrated the stories behind them.
+
+"There," Anakin said as another image appeared. "That's Commander Rex before he started going gray."
+
+R2 chirped proudly.
+
+"And that's Ahsoka complaining that I wasn't following Senator Amidala's orders."
+
+Leia laughed.
+
+"That sounds believable."
+
+"It happened more often than I'd like to admit."
+
+Another recording ended.
+
+R2 immediately loaded the next one.
+
+The familiar balcony of Varykino appeared.
+
+A younger Padmé, dressed in white.
+
+A younger Anakin standing opposite her.
+
+The quiet ceremony.
+
+The exchange of vows.
+
+The kiss.
+
+Luke smiled.
+
+"Wow."
+
+He watched his parents' younger selves.
+
+"Mom looked so beautiful."
+
+Anakin covered his face with one hand.
+
+"Oh no."
+
+Luke looked over.
+
+"Not you too."
+
+"What do you mean?"
+
+Anakin asked R2 to pause the recording.
+
+The frozen image of young Padmé remained suspended in the air.
+
+He leaned back in his chair.
+
+"Alright."
+
+He pointed toward the hologram.
+
+"Story time."
+
+Luke and Leia exchanged interested looks.
+
+"So."
+
+Anakin gestured toward the younger Padmé.
+
+"When your mom was in her 20s..."
+
+"...she was this gorgeous, stunning, angelic, almost divine-looking lady."
+
+He looked back at the hologram.
+
+"The hologram can't do her appearance back then true justice."
+
+"But at least it can give you an idea of what she looked like then."
+
+He smiled toward Padmé.
+
+"Now, obviously, she is still gorgeous today."
+
+Padmé rolled her eyes affectionately.
+
+"But back then..."
+
+He spread his hands dramatically.
+
+"...her appearance literally caused problems wherever we went."
+
+Leia laughed.
+
+"What problems?"
+
+Anakin pointed toward the ceiling as though trying to count.
+
+"Even before the Clone Wars, senators would constantly have crushes on her."
+
+"I have overheard I don't know how many senators privately trying to one-up each other to see who could impress your mom more."
+
+Padmé sighed.
+
+"I remember."
+
+"They were exhausting."
+
+Anakin nodded emphatically.
+
+"Now, of course, she was never interested and found these senators rather annoying."
+
+"I did."
+
+She looked toward Luke and Leia.
+
+"Some of them were borderline insane."
+
+Anakin chuckled.
+
+"To be honest..."
+
+"I was no better when I first saw her after 10 years."
+
+He smiled sheepishly.
+
+"I looked at her like she was an angel."
+
+Padmé immediately interrupted.
+
+"The first thing I told him was..."
+
+She pointed directly at Anakin.
+
+"'Don't look at me like that.'"
+
+"'It makes me uncomfortable.'"
+
+Luke stared at her.
+
+"Mom..."
+
+"You really said that?"
+
+"I did."
+
+Luke looked at his father.
+
+"Did Dad make you uncomfortable?"
+
+Padmé answered honestly.
+
+"Yes."
+
+She smiled apologetically at Anakin.
+
+"He reminded me of those annoying senators..."
+
+"HEY."
+
+Padmé reached over and poked him gently in the side.
+
+"You have no defense here."
+
+She smiled.
+
+"Don't even try to justify yourself."
+
+Anakin surrendered with a laugh.
+
+"I deserved that."
+
+He continued.
+
+"And because of the way the Jedi Order worked back then..."
+
+"...we had to hide our relationship for a long time."
+
+"Since nobody knew that we were married at first..."
+
+"...people far too often shot their shots at your mom in front of me."
+
+"All."
+
+"The."
+
+"Time."
+
+He sighed dramatically.
+
+"Of course I was endlessly annoyed by this but couldn't do anything about it."
+
+Padmé smiled knowingly.
+
+"You still tried to stop them."
+
+"With far less intensity than I hoped I could have used."
+
+Padmé gave him an amused look.
+
+"I noticed."
+
+Anakin continued.
+
+"In the early days of our service with the 501st Legion..."
+
+"...everybody assumed we were just a regular general-senator pair like all the others."
+
+"Now, the clones were genetically altered to be docile and commanded not to enter relationships..."
+
+"...but that didn't stop a few of them from trying to win over your mom's attention from time to time."
+
+He sighed again.
+
+"Often."
+
+"In front of me."
+
+Luke laughed.
+
+"And what did you do?"
+
+"I disciplined them."
+
+He shrugged.
+
+"However, most clones were obedient enough not to do anything overt."
+
+"Still..."
+
+"I caught far too many staring at your mom all the time."
+
+Padmé nodded.
+
+"And I noticed them staring."
+
+She smiled faintly.
+
+"By then I was used to everyone staring at me."
+
+"Mostly human men."
+
+She shrugged.
+
+"But also occasionally some women."
+
+"And even some aliens."
+
+She looked toward Luke and Leia.
+
+"As you know..."
+
+"...the entire clone army is human men, so..."
+
+Leia immediately understood.
+
+"So you expected it."
+
+"Exactly."
+
+Leia leaned back thoughtfully.
+
+"I grew up as a Princess of Alderaan."
+
+"People did this to me as well..."
+
+Anakin smiled.
+
+"Well..."
+
+"You inherited your looks from your mother at least in part."
+
+"I would expect no less."
+
+Leia nodded.
+
+"Although I think status also has to do with it."
+
+"Not just looks."
+
+She looked toward the window.
+
+"Ever since..."
+
+She paused briefly.
+
+"...the tragedy of Alderaan..."
+
+"...it's been happening less and less."
+
+"People no longer see me as a princess."
+
+She smiled softly.
+
+"I don't even see myself as a princess all the time anymore."
+
+"People still address me as 'Princess Leia' out of respect a lot."
+
+"I let them."
+
+"But privately I don't identify by that anymore."
+
+"Especially after I found out that I wasn't even a princess by birth."
+
+She glanced toward C-3PO.
+
+"I taught Threepio to call me 'Mistress Leia' instead of 'Princess Leia.'"
+
+Threepio inclined his head.
+
+"I confess it took me some time to adjust, Mistress Leia."
+
+Leia smiled.
+
+"It did."
+
+"But eventually he learned."
+
+She looked back toward Anakin.
+
+"But anyway."
+
+"Continue on."
+
+Anakin nodded.
+
+"I didn't discipline any clones for simply staring at your mom."
+
+He smiled.
+
+"I knew that if I were a clone..."
+
+"...I would have done the same."
+
+Padmé laughed quietly.
+
+Anakin continued.
+
+"Eventually the 501st learned that we were married once we all grew closer to one another and we decided that the secret belongs to the entire legion, not just to us."
+
+"The clones don't gossip."
+
+"They are very professional and very obedient."
+
+"So we had not much to fear by telling everyone in our legion."
+
+Luke smiled.
+
+"Did the clones stop staring at Mom after that?"
+
+Anakin looked at him.
+
+He sighed.
+
+"...No."
+
+"Regrettably, no."
+
+He shrugged helplessly.
+
+"But I understood."
+
+"I eventually learned to stop paying attention to them doing it."
+
+Leia laughed.
+
+"But they stopped trying to ask Mom out at least, right?"
+
+"The clones stopped very early on once they learned that they get disciplined by me for trying too hard to get your mom's attention."
+
+He smiled.
+
+"The other people on our ship..."
+
+"...non-clone ship crew, staff, and everyone else..."
+
+"...they only stopped when we told the entire legion that we were married."
+
+"But thankfully..."
+
+"...yes."
+
+"They did stop."
+
+He chuckled.
+
+"But I think you guys get my point by now."
+
+Luke folded his arms.
+
+"And your point is..."
+
+Anakin pointed once more toward the frozen hologram of the wedding.
+
+"...that your mom's looks were so astonishingly out of the ordinary in her 20s..."
+
+"...that essentially everyone found her extremely attractive."
+
+He raised a finger.
+
+"And I'm being completely objective here."
+
+"I think my evidence makes that clear enough."
+
+Leia smiled at Padmé.
+
+"And now?"
+
+Anakin looked affectionately toward his wife.
+
+"She is 52 now."
+
+He smiled.
+
+"Thankfully now we can go out and not have everyone stare at her or ask her out all the time."
+
+He reached over and took Padmé's hand.
+
+"Of course she is still as beautiful as ever..."
+
+"...but everybody else have finally started to tone it down a bit around her."
+
+Leia laughed.
+
+"Well..."
+
+"I definitely hope to be 52 one day so the same can happen to me."
+
+Luke grinned.
+
+"Would Han approve?"
+
+Leia rolled her eyes.
+
+"Luke..."
+
+"Han is more interested in living in a bachelor pad in Cloud City at the moment than what I will look like 27 years from now."
+
+She shook her head with an amused smile.
+
+"Honestly I don't even think he has his priorities straight right now."
+
+"I think he's quite confused and still trying to figure out who he is."
+
+Luke nodded.
+
+"Yeah..."
+
+Anakin smiled at both of them.
+
+"So anyway..."
+
+"I just wanted to share this because I feel sad that the two of you never had the chance to see what Padmé looked like first hand when she was younger."
+
+"That's an opportunity that was lost forever when we had to make the painful decision to hide the two of you."
+
+He looked at the paused wedding recording once more.
+
+"But I still wanted you to know this."
+
+"So you can understand that your mother was not only a frighteningly competent queen and senator..."
+
+"...a brilliant negotiator..."
+
+"...and a perceptive and compassionate partner..."
+
+He smiled warmly at Padmé.
+
+"...but also essentially..."
+
+He paused for dramatic effect.
+
+"...a supermodel who never wanted to be one."
+
+Padmé covered her face with both hands.
+
+"Oh, stars..."
+
+Leia burst into laughter.
+
+Luke followed immediately afterward.
+
+Even C-3PO let out a polite electronic chuckle.
+
+R2-D2 whistled what sounded suspiciously like agreement.
+
+Padmé lowered her hands just enough to look at Anakin.
+
+"You are impossible."
+
+He smiled.
+
+"I've been told that before."
+
+She leaned over and kissed him on the cheek anyway.
+
+"I know."
+
+"And somehow..."
+
+She smiled.
+
+"...I still married you on that balcony."
+
+Everyone laughed.
+
+Then R2 resumed the recording, and the younger Anakin and Padmé finished exchanging their vows beneath the Naboo sunset, while their older selves watched from the very same home where, at long last, they no longer had anything left to hide.
+
+---
+
+# Epilogue: Part 2
+
+Several months later, Varykino Villa had become a lively home.
+
+Luke visited often.
+
+Leia came and went whenever her work with the New Republic allowed.
+
+R2-D2 was as inseparable from the twins as ever, while C-3PO busied himself keeping the household organized despite nobody having actually asked him to.
+
+One peaceful afternoon, Leia's comlink chimed.
+
+She glanced at the display and smiled.
+
+"It's Han."
+
+She answered.
+
+"Hello?"
+
+Han's familiar voice came through.
+
+"Leia... I think I have finally made up my mind."
+
+She leaned comfortably against the wall.
+
+"Oh?"
+
+"I've had quite some time by myself here in Cloud City."
+
+He paused.
+
+"And after all..."
+
+"...I think I would still choose a life with you."
+
+Leia folded her arms.
+
+"Oh?"
+
+Her tone became deliberately sarcastic.
+
+"So you finally realized that I am preferable to Cloud City, huh?"
+
+"Leia, I mean it."
+
+She kept the teasing going.
+
+"You know, Han, few people turn down an offer to build a life with a princess."
+
+She shrugged.
+
+"Or a former princess, whatever."
+
+"Meanwhile you go running away to Bespin."
+
+"Leia."
+
+His voice became completely serious.
+
+"I am serious."
+
+Her smile softened.
+
+"So am I."
+
+She nodded.
+
+"Alright then."
+
+"Meet me on Naboo."
+
+"I'm coming right away, Princess."
+
+The transmission ended.
+
+Leia walked into the sitting room where the others were gathered.
+
+"Mom."
+
+"Dad."
+
+"Han is coming for a visit."
+
+Padmé smiled immediately.
+
+"Oh?"
+
+"The boyfriend you've been telling us about?"
+
+Leia nodded.
+
+"Yeah."
+
+"Him."
+
+Anakin looked thoughtful.
+
+"You said his ship was..."
+
+He snapped his fingers.
+
+"A heavily modified Corellian freighter?"
+
+"Exactly."
+
+Leia smiled.
+
+"The Millennium Falcon."
+
+Anakin frowned slightly.
+
+"Well..."
+
+"I don't trust them to land that thing on Varykino."
+
+He looked out toward the lake.
+
+"This island isn't big enough for that."
+
+He looked back at Leia.
+
+"Can you tell him to land in the Lake Country instead?"
+
+He paused.
+
+"Actually..."
+
+"You know what?"
+
+"Just give his channel to me."
+
+"I'll comm him myself."
+
+Leia raised an eyebrow.
+
+"You're going to scare him."
+
+"I just want our house to remain standing."
+
+She laughed and handed over Han's frequency.
+
+Moments later, Han answered.
+
+"Who is this?"
+
+"This is Anakin Skywalker."
+
+A brief silence followed.
+
+"I'm Leia Organa's father."
+
+Han blinked.
+
+"Leia's father?"
+
+"He has been dead for years!"
+
+Anakin sighed.
+
+"Has Leia never told you...?"
+
+He shook his head.
+
+"Never mind."
+
+"I can explain after you get here."
+
+"Listen carefully."
+
+"Don't try to land on our island."
+
+"Land in the Lake Country and take a gondola to our island."
+
+"Okay?"
+
+Han sounded almost offended.
+
+"You don't think I'm skilled enough to make a perfect landing on your island?"
+
+"No."
+
+Anakin answered calmly.
+
+"But I'd like to be cautious here."
+
+"We only have one home."
+
+Padmé leaned into the communication's view.
+
+"Hi, Han."
+
+"I'm Leia's mother."
+
+"I agree with Anakin."
+
+"It's less risky that way."
+
+Leia stepped beside her.
+
+"Han."
+
+"Remember you're a visitor here."
+
+"You have to listen to my parents."
+
+Han sighed dramatically.
+
+"...Fine."
+
+"I'll land in the Lake Country."
+
+Several hours later, the Millennium Falcon descended safely onto a landing field in the Lake Country.
+
+Han and Chewbacca stepped out.
+
+Waiting for them at the lakeshore was a gondola Leia had arranged.
+
+Han stared at it.
+
+"...You're kidding."
+
+Chewbacca growled.
+
+"No speeder?"
+
+Another growl.
+
+"No shuttle?"
+
+Chewbacca shrugged.
+
+Han climbed into the gondola.
+
+"I can't believe this."
+
+"They're making us row this stupid boat just to reach their island."
+
+Chewbacca took up one oar.
+
+Han took the other.
+
+After several awkward strokes, the gondola slowly began moving.
+
+Han wiped his brow.
+
+"They're definitely doing this on purpose to embarrass us, aren't they?"
+
+Chewbacca answered with another rumbling growl.
+
+Han pointed toward Varykino Island in the distance.
+
+"That island is perfectly big enough for me to land the Falcon."
+
+"It's clear they don't trust us enough."
+
+"This Anakin guy clearly doesn't know how good of a pilot I am."
+
+"He probably thinks I'm just a good old regular guy."
+
+Chewbacca growled knowingly.
+
+"Exactly."
+
+Han nodded.
+
+"We'll show them."
+
+"We'll show them exactly how the Falcon flies."
+
+Eventually, the gondola reached the small dock.
+
+The residents of Varykino Villa came out to greet the newcomers.
+
+Leia embraced Han.
+
+Chewbacca accepted Luke's welcoming handshake with a warm growl.
+
+Introductions followed.
+
+Leia finally explained the situation.
+
+"Han..."
+
+She gestured toward Anakin and Padmé.
+
+"I never really explained everything."
+
+"I was adopted."
+
+She smiled toward her parents.
+
+"They're my birth parents."
+
+Han looked from Leia to Anakin to Padmé.
+
+"...Well."
+
+"That explains a few things."
+
+Everyone laughed.
+
+Han gestured toward the towering Wookiee beside him.
+
+"And this is Chewbacca."
+
+"My first mate."
+
+Anakin looked at him for a moment.
+
+"Chewbacca..."
+
+He smiled.
+
+"Master Yoda spoke of him before."
+
+"I think they've met during the Clone Wars."
+
+Luke's eyes widened.
+
+"MASTER YODA KNOWS CHEWBACCA?"
+
+"He never mentioned it to me before!"
+
+Leia turned toward the Wookiee.
+
+"Chewie."
+
+"Is this true?"
+
+"Do you know Master Yoda?"
+
+Chewbacca gave an affirmative growl.
+
+Threepio translated immediately.
+
+"Master Chewbacca says that he has indeed met Master Yoda during the Battle of Kashyyyk near the end of the Clone Wars."
+
+Luke stared at Chewbacca.
+
+"...And you never thought to mention it."
+
+Chewbacca answered with another casual growl.
+
+Threepio tilted his head.
+
+"Master Chewbacca says he did not think this was important enough to bring up."
+
+Luke continued staring.
+
+Chewbacca simply shrugged.
+
+Later, after everyone had settled around the dining table with snacks and drinks, conversation drifted naturally from one topic to another.
+
+Eventually Han looked toward Anakin.
+
+"You know..."
+
+"I still think you underestimate my piloting skills."
+
+Anakin smiled.
+
+"Oh?"
+
+"You should know that I can land the Millennium Falcon perfectly on this island without hitting a single structure."
+
+He leaned back confidently.
+
+"And I can demonstrate it to you right now."
+
+Anakin shook his head.
+
+"Han."
+
+"I believe you."
+
+"But this is our home."
+
+"And we don't want to risk having a big freighter too close to it."
+
+Han folded his arms.
+
+"Ha!"
+
+"I still don't think you know who you're talking to right now."
+
+"Did you know that I made the Kessel Run in 12 parsecs?"
+
+Without missing a beat, Anakin answered,
+
+"And I destroyed a Trade Federation droid control ship when I was nine."
+
+Han blinked.
+
+"You what?"
+
+Padmé burst into uncontrollable laughter.
+
+She had to wipe tears from her eyes before answering.
+
+"It's true."
+
+"Anakin really did do that."
+
+Han stared at Anakin.
+
+"I flew straight through an asteroid field unharmed."
+
+Anakin nodded.
+
+"I landed half of the Invisible Hand—General Grievous' flagship—safely onto Coruscant after Grievous disabled all the computer systems."
+
+Han frowned.
+
+"Half?"
+
+"The ship broke apart into two halves."
+
+"I only had the front half to control."
+
+Han sat in silence for several seconds.
+
+"...Okay."
+
+"I will have to admit..."
+
+"...that is quite impressive."
+
+He rubbed his chin.
+
+"Alright."
+
+"Let me think."
+
+"I also..."
+
+Padmé gently interrupted.
+
+"Han."
+
+"If you want to marry our daughter..."
+
+"...maybe you should stop trying to one-up Anakin."
+
+She smiled knowingly.
+
+"He has a bit of an ego when it comes to piloting sometimes."
+
+"You don't want to upset him."
+
+Han grinned.
+
+"Oh yeah?"
+
+"Well then."
+
+"I challenge him to a dogfight."
+
+Padmé buried her face in one hand.
+
+"No."
+
+She sighed dramatically.
+
+"Please no."
+
+Anakin immediately brightened.
+
+"I'm fine with a flight simulator dogfight."
+
+He looked directly at Han.
+
+"If Han really wants to prove that he's a better pilot than me..."
+
+"...then I say let him."
+
+"And then he will find out."
+
+Luke looked back and forth between them.
+
+"Dad..."
+
+"I would advise caution."
+
+"Han REALLY is good."
+
+"Don't underestimate him."
+
+Anakin smiled confidently.
+
+"We shall see."
+
+Han matched the grin.
+
+"We shall see, indeed."
+
+Across the table, Padmé exchanged a glance with Leia.
+
+Both women recognized that look in the eyes of the two pilots.
+
+Leia sighed.
+
+"They're going to spend the entire evening arguing about flight maneuvers, aren't they?"
+
+Padmé nodded with perfect certainty.
+
+"Oh, absolutely."
+
+Chewbacca gave an amused rumbling laugh.
+
+Threepio looked from one pilot to the other.
+
+"Oh dear."
+
+"I do hope the simulator is insured."
+
+---
+
+# Epilogue: Part 3
+
+The following morning, everyone gathered outside Varykino Villa.
+
+The Millennium Falcon rested at the small landing area in the Lake Country where Han had left it the previous day.
+
+Han stood proudly beside the freighter.
+
+"So."
+
+He spread his arms.
+
+"Ready for a trip to Theed?"
+
+Leia smiled.
+
+"I still think it's funny that we're taking your ship to a flight simulator."
+
+"How else are we supposed to arrive in style?"
+
+Chewbacca gave an approving growl.
+
+Everyone boarded.
+
+Han settled into the pilot's seat with Chewbacca beside him.
+
+Luke, Leia, Padmé, Anakin, R2-D2, and C-3PO found places throughout the ship.
+
+As soon as the Falcon lifted off, Anakin disappeared from the common area.
+
+Padmé smiled knowingly.
+
+"He's inspecting your ship."
+
+Han laughed.
+
+"I noticed."
+
+For most of the flight, Anakin wandered through corridors, crouched beside access panels, peered into maintenance compartments, and examined nearly every visible modification.
+
+Eventually he returned to the cockpit.
+
+"I see at least twenty modifications to the ship already."
+
+Han grinned.
+
+"Oh, I think there's even more than that."
+
+Anakin nodded appreciatively.
+
+"I believe you."
+
+He pointed toward one of the weapon system displays.
+
+"For example..."
+
+"I've never seen a freighter with guns that strong."
+
+"These guns look like they belong on capital ships, not freighters."
+
+Han folded his arms proudly.
+
+"Well..."
+
+"Are you scared of our upcoming dogfight then?"
+
+"You don't think you can escape these big guns, do you?"
+
+Anakin looked almost offended.
+
+"Never."
+
+"I spent long enough dodging heavy-duty fire from capital ships during the Clone Wars that I'm sure I can dodge yours too."
+
+Han smiled.
+
+"Good luck."
+
+Meanwhile, Luke had found a seat beside Chewbacca.
+
+Ever since learning that the Wookiee had known Yoda personally, his curiosity had refused to settle.
+
+"So..."
+
+Luke leaned forward.
+
+"Tell me more."
+
+"What was Master Yoda like during the Clone Wars?"
+
+Chewbacca answered with a long series of growls.
+
+Threepio listened carefully.
+
+"Master Chewbacca says that during the Battle of Kashyyyk, Master Yoda rallied a large Wookiee army together to fight the Separatists."
+
+"The Wookiees fought alongside the clones against the Separatist battle droids."
+
+"Master Chewbacca himself was one of the two closest Wookiee advisors to Master Yoda."
+
+"The other being Tarfful."
+
+Chewbacca nodded.
+
+Threepio continued.
+
+"And Master Yoda's civilian commander, Senator Mon Mothma..."
+
+Luke blinked.
+
+"Mon Mothma was Yoda's commander?"
+
+Anakin looked back from the cockpit doorway.
+
+"During the Clone Wars, every Jedi General was paired with a senator to provide civilian oversight over the Republic's military campaigns."
+
+He smiled toward Padmé.
+
+"I was paired with your mother."
+
+He continued.
+
+"Master Obi-Wan was paired with Bail Organa."
+
+"And yes."
+
+"Master Yoda was paired with Mon Mothma."
+
+Leia looked surprised.
+
+"So Mon Mothma knows both Yoda and Chewbacca as well, then?"
+
+"Certainly."
+
+Leia smiled.
+
+"She's the Chancellor of the New Republic now."
+
+"I know."
+
+"And she was the leader of the Rebel Alliance for so many years."
+
+"I know."
+
+Anakin smiled.
+
+"Ahsoka and we were in the Alliance too."
+
+"Of course we know."
+
+Leia stared.
+
+"You were in the Rebel Alliance?"
+
+"We were covert operatives."
+
+"We all had codenames."
+
+He pointed to himself.
+
+"Mine was Skyguy."
+
+He gestured toward Padmé.
+
+"Your mother's was Angel."
+
+"And Ahsoka's was Fulcrum."
+
+Luke suddenly sat upright.
+
+"Oh!"
+
+"We've heard those codenames before."
+
+"We never knew who they were."
+
+Leia nodded vigorously.
+
+"And we certainly didn't have a clue at all that Skyguy and Angel were our birth parents."
+
+Anakin chuckled.
+
+"Which was precisely the point."
+
+"You weren't supposed to know."
+
+"That kept us hidden and covert."
+
+"The fact that you never found out means the codenames worked exactly as they were supposed to."
+
+Padmé smiled at Threepio.
+
+"Threepio."
+
+"Can you continue the translation?"
+
+"Certainly, Mistress Padmé."
+
+He turned back toward Chewbacca.
+
+"Master Yoda's civilian commander, Senator Mon Mothma, oversaw the entire battle from their flagship and handled much of the logistics and finances related to the battle."
+
+Padmé looked genuinely surprised.
+
+"Wow."
+
+"Even I never knew this."
+
+She looked toward Chewbacca.
+
+"Did Yoda and Mon work well together?"
+
+Chewbacca answered with another extended growl.
+
+Threepio translated.
+
+"Master Chewbacca says that, based on his own observations, Master Yoda and Senator Mon Mothma had a remarkably cooperative relationship."
+
+Padmé smiled.
+
+"That is great to hear."
+
+Not long afterward, the Millennium Falcon descended toward Theed.
+
+The city welcomed them with its familiar marble architecture, waterfalls, and elegant plazas.
+
+Their destination was one of Theed's premier flight simulation centers.
+
+As they entered, people immediately began recognizing familiar faces.
+
+One citizen pointed excitedly.
+
+"That's Anakin Skywalker!"
+
+Another gasped.
+
+"The Hero With No Fear from the Clone Wars!"
+
+Someone farther back added,
+
+"The boy who saved Naboo from the Trade Federation!"
+
+Another voice rose above the others.
+
+"And that's Han Solo!"
+
+"The Rebel hero!"
+
+"The one who took down the shield generator on Endor!"
+
+Within minutes, a sizeable audience had gathered around the simulator arena.
+
+Children climbed onto their parents' shoulders.
+
+Veteran pilots exchanged eager looks.
+
+Technicians quietly adjusted the simulator settings.
+
+One of the attendants smiled.
+
+"I don't think we've ever had this many spectators."
+
+Han climbed into one simulator pod.
+
+Anakin entered the other.
+
+The countdown began.
+
+Three.
+
+Two.
+
+One.
+
+The simulation started.
+
+Immediately, the crowd understood why both men had earned legendary reputations.
+
+Han accelerated aggressively, using the Millennium Falcon's unconventional handling to execute maneuvers that seemed impossible for a freighter.
+
+Anakin answered with razor-sharp precision, flying his starfighter with almost supernatural anticipation.
+
+"Did you see that turn?"
+
+"No starfighter should be able to do that!"
+
+"The Falcon shouldn't even fit through there!"
+
+"They're both insane!"
+
+Virtual laser fire filled the simulated battlefield.
+
+Han constantly changed attack angles.
+
+Anakin refused to stay in predictable patterns.
+
+Every time Han expected a standard evasive maneuver, Anakin did something entirely different.
+
+Every time Anakin believed he had predicted Han's escape route, the Falcon twisted into another impossible trajectory.
+
+Han skimmed dangerously close to simulated obstacles.
+
+Anakin threaded gaps barely wider than his own fighter.
+
+Heavy cannon fire.
+
+Missile locks.
+
+Ion bursts.
+
+Rolling scissors.
+
+Split-S maneuvers.
+
+High-G turns.
+
+Neither pilot gave the other even a moment to breathe.
+
+The audience applauded after nearly every exchange.
+
+Luke watched with folded arms.
+
+"I've never seen Han fly against someone who can actually keep up."
+
+Leia smiled proudly.
+
+"I have."
+
+Padmé quietly observed without saying much.
+
+She had watched Anakin fly through real battles.
+
+She had also watched recordings from R2-D2 that show Han piloting the Falcon through dangers that should have destroyed it many times over.
+
+Neither performance surprised her.
+
+The duel continued for a long time.
+
+Finally, after another exchange of near-impossible maneuvers, Anakin anticipated one of Han's signature escape patterns.
+
+His virtual starfighter cut across the Falcon's projected path.
+
+A perfectly timed ion cannon blast struck the freighter squarely.
+
+The Millennium Falcon's systems instantly shut down.
+
+Every display inside Han's simulator went dark.
+
+He looked at the blank controls for a moment.
+
+Then he laughed.
+
+He raised both hands.
+
+"I surrender."
+
+The simulator ended.
+
+The audience erupted into enthusiastic applause.
+
+Many spectators stood.
+
+Some cheered.
+
+Others simply shook their heads in amazement.
+
+"I've never seen flying like that."
+
+"They were unbelievable."
+
+"That was worth coming here for."
+
+Han stepped out of his simulator and walked over to Anakin.
+
+He extended his hand.
+
+"That..."
+
+"...was incredible."
+
+Anakin smiled and shook it.
+
+"So was your flying."
+
+The trip back to Varykino Villa was considerably more relaxed.
+
+Once again everyone boarded the Millennium Falcon.
+
+As Naboo's countryside drifted past outside, Han leaned back in the cockpit.
+
+"I have to admit..."
+
+"You're really good."
+
+"Way better than I thought."
+
+Anakin nodded.
+
+"And you as well."
+
+"I was genuinely impressed."
+
+Han was quiet for a moment.
+
+Then he looked over his shoulder toward the family seated behind him.
+
+"Despite my loss..."
+
+"...can I still marry your daughter?"
+
+Padmé burst into laughter.
+
+She looked at Leia, then back at Han.
+
+"Really, Han?"
+
+"That's what's on your mind now?"
+
+Han shrugged.
+
+"I figured I should ask."
+
+Padmé smiled warmly.
+
+"Yes, Han."
+
+"You have our blessings if you want to marry Leia."
+
+Han visibly relaxed.
+
+"That's good to hear."
+
+Anakin smiled.
+
+"Of course we weren't going to make outflying me a requirement to marry Leia."
+
+He looked toward his daughter.
+
+"If I actually made that a requirement..."
+
+He grinned.
+
+"...I'm afraid Leia may end up staying single her entire life."
+
+The cockpit filled with laughter.
+
+Leia rolled her eyes.
+
+"Oh, thanks, Dad."
+
+Han pointed at Anakin.
+
+"I still want a rematch someday."
+
+Anakin smiled.
+
+"I was hoping you'd say that."
+
+Chewbacca gave an enthusiastic roar of agreement.
+
+R2-D2 whistled excitedly.
+
+Threepio sighed.
+
+"Oh dear."
+
+"I suspect this rivalry is only just beginning."
