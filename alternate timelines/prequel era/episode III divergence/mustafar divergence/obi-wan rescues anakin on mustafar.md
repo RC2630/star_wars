@@ -3615,3 +3615,379 @@ From that day forward, Anakin never again searched for ways to recover his origi
 He no longer viewed his prosthetics as something that had stolen his humanity.
 
 Instead, they became a daily reminder of both the terrible consequences of his choices and the extraordinary mercy that had allowed him to build a new life afterward—a life shared with his wife, his children, and the family he had once feared he would lose forever.
+
+---
+
+# Part 9
+
+Several years after the Republic had been restored, Obi-Wan Kenobi finally decided to pay the Skywalker family a personal visit at Varykino Villa.
+
+Luke and Leia eagerly greeted him at the door.
+
+"Master Obi-Wan!" Luke exclaimed.
+
+Obi-Wan smiled warmly.
+
+"I think 'Obi-Wan' will do just fine."
+
+Leia crossed her arms with a playful grin.
+
+"But you *are* a master."
+
+"I suppose I can't argue with that."
+
+Padmé welcomed him inside while Anakin embraced his former master.
+
+"It's good to see you again."
+
+"And you," Obi-Wan replied.
+
+"You look well."
+
+"I am."
+
+"And Coruscant?"
+
+"The Temple is slowly beginning to feel like home again."
+
+After sharing a meal and catching up on the latest developments in the restored Jedi Order and the Republic, Obi-Wan suggested a walk through Naboo's countryside.
+
+Soon the three of them found themselves strolling across rolling green fields overlooking the lakes.
+
+Obi-Wan gradually wandered a little ahead of Anakin and Padmé.
+
+A grassy hill rose before him.
+
+He casually began climbing it.
+
+Behind him came Anakin's alarmed voice.
+
+"Obi-Wan, stop!"
+
+Obi-Wan turned around.
+
+"Why?"
+
+Anakin pointed dramatically toward the hill.
+
+"I can't let you get the high ground."
+
+Obi-Wan blinked.
+
+"...What?"
+
+"I can't let you get the high ground."
+
+He folded his arms.
+
+"Look what happened to me the last time you got the high ground."
+
+Padmé couldn't suppress a laugh.
+
+Obi-Wan stared at his former apprentice for several long seconds.
+
+"Anakin."
+
+"Really?"
+
+"Really."
+
+Obi-Wan sighed theatrically.
+
+"Very well."
+
+He stepped back down the hill.
+
+"You take the high ground."
+
+"But I promise you..."
+
+"...you don't know how to use it as I have."
+
+He unclipped a training lightsaber from his belt and tossed another toward Anakin.
+
+"Here."
+
+Anakin caught it easily.
+
+Padmé stepped off to one side, smiling as she watched.
+
+"This ought to be interesting."
+
+Anakin climbed to the top of the hill while Obi-Wan remained at its base.
+
+Both ignited their training sabers.
+
+Anakin pointed dramatically downward.
+
+"It's over, Obi-Wan!"
+
+"I have the high ground!"
+
+Obi-Wan smiled.
+
+"I was wondering when you were going to say that."
+
+Without another word, he leapt upward.
+
+Anakin immediately swung downward, attempting to intercept him.
+
+But halfway through the jump, Obi-Wan thrust out his free hand.
+
+A burst of Force energy struck Anakin squarely in the chest.
+
+Anakin staggered backward.
+
+His footing disappeared beneath him.
+
+He tumbled onto the hillside, and the training saber flew from his grasp before clattering harmlessly onto the grass.
+
+Obi-Wan landed lightly at the top of the hill.
+
+He looked down at Anakin.
+
+"You see?"
+
+Anakin rubbed the back of his head.
+
+"...Ow."
+
+Obi-Wan deactivated his training saber.
+
+"The high ground doesn't actually matter."
+
+Padmé raised an eyebrow.
+
+"It doesn't?"
+
+"It offers certain advantages."
+
+He nodded.
+
+"But it isn't some magical winning position."
+
+He extended a hand to help Anakin stand.
+
+"On Mustafar, you were so overcome with emotion that your judgment failed you."
+
+"You attacked impulsively."
+
+"I simply exploited that."
+
+Anakin frowned thoughtfully.
+
+"So..."
+
+"I could have done the same thing?"
+
+"You mean..."
+
+"I could have Force-pushed you while I was in midair?"
+
+Obi-Wan nodded.
+
+"Yes."
+
+Anakin stared.
+
+"...Seriously?"
+
+"Seriously."
+
+Obi-Wan's expression became more reflective.
+
+"There is something I never told you."
+
+"On Mustafar..."
+
+"...I was taking a considerable gamble."
+
+Anakin looked surprised.
+
+"You were?"
+
+"When I committed to that defensive strike, I had only one opportunity."
+
+He gestured toward the hillside.
+
+"If, instead of attacking with your lightsaber, you had simply Force-pushed me while you were airborne..."
+
+"...it would have been over."
+
+Anakin looked genuinely stunned.
+
+"You would have fallen."
+
+"I would have."
+
+"And given your state of mind at the time..."
+
+Obi-Wan gave a small shrug.
+
+"I suspect I would not have survived."
+
+Silence settled over the hillside.
+
+Finally Anakin muttered,
+
+"Obi-Wan..."
+
+"...don't remind me of what happened next."
+
+Obi-Wan's voice softened.
+
+"I'm not reminding you to hurt you."
+
+"I'm reminding you because there's a lesson there."
+
+He pointed toward the discarded training saber.
+
+"You weren't defeated because I stood on higher ground."
+
+"You were defeated because your emotions completely overwhelmed your tactical judgment."
+
+"You stopped thinking."
+
+"You saw only one path."
+
+"And because of that..."
+
+"...you missed the most obvious opening available."
+
+Anakin slowly nodded.
+
+"So that's why the Jedi teach emotional discipline."
+
+"Exactly."
+
+"The purpose isn't to suppress feeling."
+
+"It's to prevent feeling from controlling your decisions."
+
+"In a lightsaber duel..."
+
+"...clarity wins battles."
+
+He smiled.
+
+"If you truly wish to understand that..."
+
+"...practice Soresu."
+
+Anakin tilted his head.
+
+"Your form."
+
+"My form."
+
+"It emphasizes patience."
+
+"Awareness."
+
+"Precision."
+
+"And above all..."
+
+"...clarity."
+
+"It teaches you to remain fully present."
+
+"To see what is actually happening instead of what your emotions insist is happening."
+
+Anakin looked thoughtfully at the training saber.
+
+"I'll try."
+
+Obi-Wan smiled.
+
+"I know you will."
+
+The visit came to an end a few days later, and Obi-Wan returned to Coruscant.
+
+True to his word, Anakin began studying Soresu.
+
+At first the style felt almost unnatural.
+
+Instead of overwhelming offense, it demanded restraint.
+
+Instead of pursuing victory immediately, it emphasized surviving every exchange until the correct opportunity naturally revealed itself.
+
+One afternoon Padmé watched him practicing alone beside the lake.
+
+His movements were slower than she remembered from the Clone Wars.
+
+Not slower from hesitation.
+
+Slower from intention.
+
+Every motion flowed naturally into the next.
+
+When he finished, he deactivated his lightsaber and smiled.
+
+"Huh."
+
+Padmé approached.
+
+"Something wrong?"
+
+"No."
+
+He looked pleasantly surprised.
+
+"This really is a completely different way of fighting."
+
+"My entire mind feels different."
+
+She nodded.
+
+"I noticed."
+
+"You did?"
+
+"You look calmer."
+
+She smiled.
+
+"Your movements are more poised."
+
+"More deliberate."
+
+She took his hand.
+
+"And I don't think it's staying on the practice field."
+
+Anakin looked at her curiously.
+
+"What do you mean?"
+
+"I've noticed you're calmer in everyday life, too."
+
+"When something unexpected happens, you don't react immediately anymore."
+
+"You pause."
+
+"You think."
+
+"Then you act."
+
+She laughed softly.
+
+"I actually think this has been very good for you."
+
+Anakin raised an eyebrow.
+
+"You noticed all that?"
+
+Padmé smiled warmly.
+
+"Of course."
+
+She gently squeezed his mechanical hand.
+
+"I've always noticed."
+
+Anakin looked out across the peaceful waters of Naboo.
+
+Years earlier, his emotions had once driven him to destroy everything he loved.
+
+Now, with patience, discipline, and the guidance of those who had never truly given up on him, he found that the same lessons Obi-Wan had taught through lightsaber practice were quietly shaping every other part of his life as well.
