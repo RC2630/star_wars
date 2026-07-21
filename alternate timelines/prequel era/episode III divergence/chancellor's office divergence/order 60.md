@@ -2787,3 +2787,705 @@ The Confederacy had secured its independence through negotiation rather than con
 Millions of clone troopers had gained the freedom to determine their own futures.
 
 And in one apartment overlooking the endless skyline of Coruscant, two young children named Luke and Leia grew up with both of their parents beside them, while the galaxy around them cautiously embraced an uncertain but hopeful peace.
+
+---
+
+# Part 8
+
+Several months after the end of the Clone Wars, life on Coruscant had become peaceful enough that old friends could simply enjoy one another's company.
+
+One afternoon, Anakin Skywalker, Chancellor Padmé Amidala, and the retired Captain Rex took a leisurely walk through one of the capital's parks.
+
+The conversation drifted naturally toward the extraordinary events that had ended the war.
+
+Anakin shook his head.
+
+"Imagine if Order 66 was really issued instead of Order 60."
+
+He laughed uneasily.
+
+"Our galaxy would be a disaster."
+
+Padmé nodded.
+
+"Yeah."
+
+She smiled.
+
+"Thank the Force that Palpatine wasn't able to finish saying 'execute order 66'..."
+
+The words had barely left her mouth.
+
+Without warning, Rex's expression went completely blank.
+
+He stepped forward and struck Anakin with tremendous force.
+
+Anakin crashed to the ground.
+
+Padmé gasped.
+
+"REX!"
+
+"What are you doing?"
+
+Rex ignored her completely.
+
+His face remained emotionless as he threw himself toward Anakin and wrapped both hands around his throat.
+
+Anakin instinctively reached out with the Force.
+
+Rex was hurled backward.
+
+Before Rex could recover, Anakin leapt after him, wrestled him to the ground, and pinned him.
+
+Rex struggled with mechanical determination.
+
+His voice was completely flat.
+
+"Executing Order 66."
+
+Padmé's face turned pale.
+
+"Oh no..."
+
+She looked at her own hands.
+
+"What have I done?"
+
+Working together, she and Anakin restrained Rex.
+
+Even pinned to the ground, Rex continued trying to reach Anakin.
+
+Finally Anakin delivered a precise strike that rendered him unconscious.
+
+The three were immediately transported to a Republic medical facility.
+
+A medical droid approached them.
+
+"Chancellor Amidala."
+
+"General Skywalker."
+
+"What can I do for you?"
+
+Anakin lowered Rex onto an examination bed.
+
+"Captain Rex behaved strangely and immediately attacked me when Padmé uttered the words 'execute order 66.'"
+
+He folded his arms.
+
+"Given what we know about Order 66 and the other contingency orders, we suspect something is very wrong."
+
+"Please do a thorough medical examination of Rex."
+
+The droid nodded.
+
+"Very well."
+
+"Captain Rex shall be examined right away."
+
+Rex was taken into surgery.
+
+Comprehensive scans were performed.
+
+His brain received particular attention.
+
+Several hours later, the medical droid returned.
+
+"We have detected an inhibitor chip in Rex's brain that may be causing the issue."
+
+The display beside the droid showed a tiny implanted device.
+
+"We have removed the inhibitor chip."
+
+"We believe Captain Rex should behave normally again."
+
+A short while later, Rex emerged from recovery.
+
+He looked confused.
+
+"What have I done?"
+
+Anakin smiled reassuringly.
+
+"Oh..."
+
+He sighed.
+
+"You wouldn't want to know."
+
+"Don't worry."
+
+"We know it's not your fault."
+
+Padmé nodded.
+
+"We should test this theory on a few more clones."
+
+Within days, the Chancellor's Office announced a voluntary research study.
+
+Former clone troopers were invited to participate in research concerning the recently discovered inhibitor chip.
+
+A modest financial payment was offered to all volunteers.
+
+Two clones accepted.
+
+Andy.
+
+And Brandon.
+
+Andy underwent surgery to remove his inhibitor chip.
+
+Brandon did not.
+
+To assist with the experiment, Obi-Wan Kenobi and Plo Koon volunteered.
+
+The lead researcher carefully ensured that neither clone possessed any weapons or communication devices.
+
+Andy and Obi-Wan entered one room.
+
+Brandon and Plo entered another.
+
+The researcher first addressed Andy.
+
+"Execute Order 66."
+
+Nothing happened.
+
+Andy merely looked puzzled.
+
+The researcher made notes before entering Brandon's room.
+
+He looked directly at Brandon.
+
+"Execute Order 66."
+
+Again...
+
+Nothing happened.
+
+The room fell silent.
+
+The researcher frowned.
+
+"This doesn't make sense."
+
+He looked over his notes.
+
+"If the inhibitor chip alone is responsible..."
+
+He stopped speaking.
+
+Outside the testing rooms, Anakin and Padmé waited.
+
+When they were informed of the unexpected results, Anakin suddenly stopped walking.
+
+He looked thoughtful.
+
+"I think I know why."
+
+The researcher turned.
+
+"What is it?"
+
+Anakin thought aloud.
+
+"I used to say things containing the phrase 'execute order 66' quite frequently in casual conversation about recent events."
+
+He shrugged.
+
+"I'm sure lots of clones have heard me utter those words before."
+
+"None of them ever reacted."
+
+He looked toward Padmé.
+
+"But when Padmé said it the other day..."
+
+The researcher finished the thought.
+
+"So you believe Padmé is special?"
+
+Anakin nodded.
+
+"Well..."
+
+"Padmé is the Supreme Chancellor of the Republic."
+
+He continued reasoning.
+
+"Palpatine clearly designed the order for himself to activate."
+
+"He probably set it to something like 'only the Supreme Chancellor can activate it.'"
+
+He spread his hands.
+
+"Which is why Padmé can do it now..."
+
+"...but I can't."
+
+"And also you can't."
+
+The researcher slowly nodded.
+
+"You have a good point."
+
+"Let's test your hypothesis."
+
+Padmé entered the testing rooms herself.
+
+She first joined Andy and Obi-Wan.
+
+Andy no longer possessed his inhibitor chip.
+
+Padmé looked toward him.
+
+"Execute Order 66."
+
+Andy blinked.
+
+Nothing happened.
+
+The researcher made another note.
+
+They then moved to Brandon's room.
+
+Brandon still possessed his inhibitor chip.
+
+Plo Koon stood ready.
+
+Hidden above the room, an automated stun weapon had already been prepared.
+
+Padmé calmly repeated the words.
+
+"Execute Order 66."
+
+Brandon's eyes immediately lost focus.
+
+Without hesitation he charged directly toward Plo Koon.
+
+Plo pushed him backward with the Force.
+
+At the same instant, the concealed stun weapon fired.
+
+Brandon collapsed unconscious.
+
+Medical personnel rushed into the room.
+
+He was immediately taken into surgery.
+
+His inhibitor chip was removed.
+
+Later that afternoon, the lead researcher gathered everyone together.
+
+"I believe we have a conclusion."
+
+He activated a display summarizing the experiment.
+
+"The inhibitor chip forces compliance with Order 66."
+
+He looked toward Padmé.
+
+"And only the Supreme Chancellor of the Republic has the authority to issue this order."
+
+Rex folded his arms.
+
+"But when Order 60 was issued..."
+
+He shook his head.
+
+"...we didn't experience any behavioural override."
+
+"In fact, most of us were confused what Order 60 even was."
+
+"Many of us had to consult our manuals to figure out what Order 60's command was."
+
+Padmé nodded.
+
+"That means Palpatine must have designed this inhibitor chip only for Order 66."
+
+She looked at the research display.
+
+"The other orders exist and are mandatory for all clones to follow."
+
+"But it seems like only Order 66 triggers the inhibitor chip to fully overtake the clone's mind."
+
+The researchers decided to verify that conclusion as well.
+
+Another volunteer arrived.
+
+His name was Kevin.
+
+Unlike Andy and Brandon after surgery, Kevin still possessed his inhibitor chip.
+
+He was carefully searched before entering the testing room.
+
+Padmé stood before him.
+
+"Execute Order 67."
+
+Kevin remained perfectly still.
+
+He did not dance.
+
+Padmé continued.
+
+"Execute Order 69."
+
+Kevin made no attempt to retrieve a comlink.
+
+The researchers exchanged curious glances.
+
+Padmé decided to try something more significant.
+
+She looked directly at Kevin.
+
+"Execute Order 65."
+
+Even with the Supreme Chancellor standing directly before him, Kevin showed no reaction whatsoever.
+
+Padmé nodded slowly.
+
+"One last test."
+
+The room became tense.
+
+Plo Koon and Obi-Wan stood ready.
+
+Hidden stun weapons were already armed.
+
+Padmé spoke clearly.
+
+"Execute Order 66."
+
+Kevin immediately lunged toward Anakin.
+
+Before he could reach him, multiple stun blasts struck him.
+
+He collapsed unconscious.
+
+Medical staff immediately entered and prepared him for surgery to remove the inhibitor chip.
+
+Padmé looked toward the researchers.
+
+"Okay."
+
+"Hypothesis confirmed."
+
+After compiling all experimental data, the research team formally presented its conclusions to the Chancellor and the Jedi.
+
+The mechanism behind Order 66 was now understood in full.
+
+First, the inhibitor chip caused complete behavioural override of the affected clone.
+
+Second, only Order 66 activated the inhibitor chip.
+
+Third, only the Supreme Chancellor of the Republic possessed the authority to activate Order 66.
+
+Finally, activation depended solely upon the Supreme Chancellor speaking the words "execute Order 66" within earshot of a clone who still possessed an inhibitor chip. The chip activated regardless of the surrounding conversation, regardless of context, and regardless of whether the command had been spoken intentionally or accidentally.
+
+---
+
+# Part 9
+
+Following the publication of the Republic's findings regarding the inhibitor chips, a new question quickly emerged.
+
+The Republic now understood exactly how Order 66 functioned.
+
+The inhibitor chips remained inside millions of clone troopers throughout the galaxy.
+
+Although they no longer served in the military, they still carried the devices in their brains.
+
+Chancellor Padmé Amidala met with senators, medical experts, scientists, military officers, and representatives from the clone community.
+
+"Our objective is straightforward," Padmé said.
+
+"We need to remove the inhibitor chips from every clone in the galaxy."
+
+She paused.
+
+"But the question is how."
+
+One senator suggested a voluntary medical program.
+
+Another proposed dispatching Republic surgical teams throughout the galaxy.
+
+The discussion continued for hours.
+
+Eventually the difficulties became obvious.
+
+The clones now possessed complete freedom over their own lives.
+
+Many had established careers.
+
+Others had families.
+
+Some had settled on distant worlds far from Republic centers.
+
+Padmé summarized the problem.
+
+"We cannot realistically convince every clone to interrupt their lives and voluntarily undergo surgery."
+
+She looked around the room.
+
+"And even if they wished to cooperate, reaching every clone individually would be extraordinarily difficult."
+
+A medical administrator spoke next.
+
+"We briefly examined the possibility of sending mobile surgical teams to travel to the clones instead."
+
+He shook his head.
+
+"The logistics are overwhelming."
+
+"It simply isn't feasible."
+
+The room fell silent.
+
+After several minutes of thought, Padmé looked toward one of the Republic scientists.
+
+"We've been focusing on the clones."
+
+She leaned forward.
+
+"What about the chips themselves?"
+
+The scientist looked intrigued.
+
+"The chips?"
+
+Padmé nodded.
+
+"Where did they come from?"
+
+"Kamino."
+
+"If anyone understands them completely, it would be the Kaminoans."
+
+Within days, the Republic opened formal discussions with Kamino.
+
+The initial meetings proved difficult.
+
+The Kaminoans remained cautious.
+
+One senior Kaminoan scientist spoke plainly.
+
+"We fulfilled the contract under which the clone army was created."
+
+"We have no desire to become involved in political matters."
+
+Padmé answered calmly.
+
+"You are no longer working for anyone except the lawful government that commissioned the clone army."
+
+She continued.
+
+"The Republic's current administration seeks only to protect the clones whose creation you oversaw."
+
+"This collaboration will not harm Kamino in any way."
+
+The negotiations continued.
+
+Eventually the Kaminoans accepted her reasoning.
+
+They agreed to cooperate fully.
+
+Over the following weeks they transferred every technical record they possessed concerning the inhibitor chips.
+
+Complete blueprints.
+
+Engineering specifications.
+
+Manufacturing procedures.
+
+Design documentation.
+
+Republic scientists examined the enormous collection of data.
+
+Months of analysis followed.
+
+Finally one research team approached Chancellor Amidala with a proposal.
+
+"We believe we've found another solution."
+
+Padmé listened carefully.
+
+"We don't necessarily need to remove the inhibitor chips."
+
+The lead engineer activated a holographic diagram.
+
+"We believe we can permanently disable them."
+
+He highlighted several structures within the chip's design.
+
+"These components appear vulnerable to a very specific frequency."
+
+"If we generate that frequency correctly, the inhibitor chip should become permanently inactive while remaining physically inside the brain."
+
+Padmé smiled.
+
+"Can you build it?"
+
+"We believe so."
+
+Construction began immediately.
+
+After weeks of engineering work, the first prototype was completed.
+
+To verify the concept, another volunteer clone participated in the experiment.
+
+His name was Laurence.
+
+Laurence sat calmly inside the laboratory.
+
+The lead researcher held the newly constructed device before him.
+
+"Ready?"
+
+Laurence nodded.
+
+"Ready."
+
+The researcher activated the device.
+
+A quiet electronic hum filled the room.
+
+After several seconds, he switched it off.
+
+The researchers exchanged hopeful glances.
+
+Padmé then entered the laboratory accompanied by Anakin.
+
+She faced Laurence.
+
+"Execute Order 66."
+
+Laurence looked at her.
+
+Nothing happened.
+
+The room erupted into excited conversation.
+
+The lead researcher smiled broadly.
+
+"It worked."
+
+"The inhibitor chip is still present..."
+
+He reviewed the scanner.
+
+"...but it has been permanently disabled."
+
+The prototype had succeeded.
+
+Attention immediately shifted toward scaling the technology.
+
+Engineers redesigned the device from the ground up.
+
+Power output increased dramatically.
+
+Frequency emitters became vastly more powerful.
+
+Eventually the system grew large enough to be installed aboard Republic capital ships.
+
+One engineer explained the concept.
+
+"Rather than treating individual clones..."
+
+He pointed toward a schematic of a Venator-class Star Destroyer.
+
+"...we can broadcast the disabling frequency across an entire planet from orbit."
+
+The first large-scale trial took place above Coruscant.
+
+A Republic vessel entered orbit carrying the enlarged transmitter.
+
+After receiving final authorization, the crew activated the system.
+
+The broadcast continued until the planned transmission cycle concluded.
+
+Once complete, researchers selected clone volunteers at random from across Coruscant.
+
+Each underwent testing.
+
+Padmé personally conducted the final verification.
+
+Again and again she spoke the same words.
+
+"Execute Order 66."
+
+None of the volunteers reacted.
+
+The researchers compared medical scans.
+
+Every examined inhibitor chip remained physically present.
+
+Every one had become permanently inactive.
+
+The planetary-scale prototype had succeeded.
+
+Mass production began immediately.
+
+Republic shipyards manufactured large numbers of the orbital transmitters.
+
+The Republic Navy installed them aboard vessels assigned to a special humanitarian mission.
+
+The fleet then departed Coruscant.
+
+Groups of ships spread throughout known space.
+
+At each inhabited world, the vessels entered orbit and activated the transmitters before continuing onward.
+
+During planning, another issue emerged.
+
+Some former clone troopers had chosen to settle beyond Republic territory.
+
+Many now lived within the Confederacy of Independent Systems.
+
+Others had established new lives in Hutt Space.
+
+Padmé once again turned to diplomacy.
+
+Representatives of the Confederacy quickly agreed.
+
+"This operation benefits everyone," one CIS official remarked.
+
+"We have no objection."
+
+Negotiations with the Hutt leadership likewise proved successful.
+
+The agreement was straightforward.
+
+Republic naval vessels would be permitted to enter Hutt territory solely for the purpose of broadcasting the disabling frequencies before immediately departing.
+
+With every major government cooperating, the operation continued uninterrupted.
+
+Month after month, Republic vessels systematically traveled from world to world.
+
+One by one, every inhabited planet in known space received the transmission.
+
+Eventually the final reports reached Coruscant.
+
+Every scheduled world had been visited.
+
+Every transmission had been completed.
+
+The inhibitor chips of clone troopers throughout known space had been permanently disabled.
+
+The Republic regarded the operation as one of the greatest cooperative achievements in its recent history.
+
+Scientists had deciphered the chips.
+
+Engineers had transformed theory into practical technology.
+
+Medical researchers had verified its safety and effectiveness.
+
+Diplomats had secured permission to operate even beyond Republic borders.
+
+The Republic Navy had carried the mission across the galaxy.
+
+Political leaders had coordinated every stage of the effort.
+
+Together, they had solved a problem that no single discipline could have addressed alone.
+
+To many throughout the Republic and the Confederacy alike, the operation became a symbol of the new era that had followed the Clone Wars—a demonstration that science, engineering, politics, diplomacy, the military, and medicine could work together not to wage war, but to protect lives, strengthen trust, and deepen the peace and goodwill that had begun to spread across the galaxy.
