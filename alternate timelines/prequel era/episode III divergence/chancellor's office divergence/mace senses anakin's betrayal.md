@@ -2274,6 +2274,1312 @@ One that began each morning beside the quiet waters of Naboo, surrounded by the 
 
 ---
 
+# Wedding Interlude: Part 1
+
+Several peaceful weeks passed at Varykino Villa.
+
+Luke and Leia were thriving.
+
+Anakin had settled naturally into fatherhood, and every morning seemed to begin with one twin asleep in his arms while the other was being fed by Padmé.
+
+The villa, once silent, had become filled with laughter, soft cries, and the constant sounds of R2-D2 and C-3PO fussing over the infants.
+
+One warm afternoon, another skiff descended onto the landing platform outside the villa.
+
+Padmé smiled as she recognized it.
+
+"My parents are here."
+
+A few moments later, Ruwee and Jobal Naberrie stepped through the front door.
+
+Padmé embraced them first.
+
+"It's so good to see you."
+
+"And you as well," Jobal replied warmly.
+
+Ruwee smiled before looking around the room.
+
+His eyes eventually settled on Anakin, who was holding Luke.
+
+"So."
+
+He folded his arms with a grin.
+
+"You really are married now."
+
+Padmé gave an awkward smile.
+
+"Yes..."
+
+Jobal shook her head in amused disbelief.
+
+"And you have been married for three years already."
+
+Padmé nodded.
+
+"That is true."
+
+Ruwee let out a theatrical sigh.
+
+"We were really hoping that we wouldn't find out through the HoloNet news."
+
+Padmé looked genuinely apologetic.
+
+"I'm sorry."
+
+He raised a hand before she could continue.
+
+"But we understand why you had to keep it a secret."
+
+She relaxed.
+
+"Thank you for understanding."
+
+She glanced toward Anakin.
+
+"I also felt really bad that we couldn't tell you... or anyone else."
+
+Her expression softened.
+
+"But it had to be done."
+
+Ruwee nodded.
+
+"I believe that."
+
+He paused.
+
+"But now that we know..."
+
+A mischievous smile spread across his face.
+
+"...there is no way that I would allow my daughter to marry like that."
+
+Padmé blinked.
+
+"What?"
+
+"We need a proper wedding!"
+
+Padmé stared at him.
+
+"Father..."
+
+She laughed.
+
+"I'm already married."
+
+"Doesn't matter."
+
+Ruwee pointed decisively toward both of them.
+
+"I think we deserve a proper celebration."
+
+Anakin unexpectedly nodded.
+
+"I actually agree with your parents."
+
+Padmé looked at him in disbelief.
+
+"You do?"
+
+He smiled.
+
+"I do."
+
+He looked toward Ruwee and Jobal.
+
+"Let's hear what they have in mind."
+
+Padmé looked from Anakin to her parents before laughing in surrender.
+
+"All right."
+
+She folded her arms.
+
+"Fine."
+
+"What do you propose?"
+
+Jobal smiled.
+
+"We'll host a proper wedding for the two of you."
+
+Padmé listened.
+
+"Don't worry about planning."
+
+"We'll take care of it."
+
+She reached across and squeezed Padmé's hand.
+
+"All you need to do is tell us who you'd like to invite."
+
+The room grew quiet.
+
+Anakin looked toward Padmé.
+
+She looked back at him.
+
+For several moments neither of them spoke.
+
+Then Padmé smiled.
+
+"You know..."
+
+Anakin nodded.
+
+"I was thinking the same thing."
+
+She leaned back.
+
+"There really are a lot of people who deserved to celebrate with us."
+
+Anakin sighed.
+
+"Our secret wedding didn't just keep us safe."
+
+"It also kept everyone else away."
+
+Padmé nodded.
+
+"We robbed them of the opportunity to celebrate with us."
+
+Ruwee smiled.
+
+"So..."
+
+He rubbed his hands together.
+
+"Let's fix that."
+
+The discussion continued for hours.
+
+The first question was where the ceremony should be held.
+
+"The Royal Palace," Ruwee suggested confidently.
+
+Padmé immediately looked uncertain.
+
+"The palace?"
+
+"You ruled Naboo for four years."
+
+Jobal nodded.
+
+"It would be a fitting place."
+
+Padmé slowly shook her head.
+
+"No."
+
+"No?"
+
+"It feels too public."
+
+She thought for a moment.
+
+"I don't want the wedding to become a state ceremony."
+
+Anakin nodded in agreement.
+
+"This should be about family."
+
+"And friends," Padmé added.
+
+After considering several locations, Jobal suddenly smiled.
+
+"What about the square near our home in Theed?"
+
+Padmé's eyes brightened.
+
+"The public square?"
+
+"It has plenty of space."
+
+"And it's beautiful this time of year," Ruwee added.
+
+Padmé smiled.
+
+"I like that."
+
+Anakin nodded.
+
+"So do I."
+
+"Then it's settled."
+
+Ruwee made a note.
+
+"Outdoor ceremony."
+
+"Theed."
+
+"Near the Naberrie home."
+
+With the venue decided, they turned to the guest list.
+
+Ruwee looked at Anakin.
+
+"Let's begin with immediate family."
+
+Anakin smiled down at Luke.
+
+"I suppose Luke and Leia should probably attend."
+
+Padmé laughed.
+
+"I certainly hope so."
+
+"And Artoo."
+
+R2-D2 emitted a proud whistle.
+
+"Threepio too."
+
+The protocol droid looked delighted.
+
+"Oh my! It would be an honor."
+
+Jobal smiled.
+
+"We should give him a role."
+
+Padmé looked thoughtfully at Threepio.
+
+"You carried our secret for three years."
+
+Threepio looked touched.
+
+"I merely did my duty."
+
+"I'd like you to carry the rings."
+
+Threepio nearly froze.
+
+"I... I would?"
+
+"You would."
+
+"Oh!"
+
+He clasped his metallic hands together.
+
+"I shall practice immediately."
+
+Everyone laughed.
+
+Next came Padmé's family.
+
+"Sola has to be there," Padmé said immediately.
+
+"Of course," Jobal replied.
+
+"And Ryoo and Pooja."
+
+Ruwee smiled.
+
+"They've been asking when they could meet Luke and Leia."
+
+Padmé laughed.
+
+"They'll probably steal all the attention."
+
+"They can be flower girls," Jobal suggested.
+
+Padmé smiled.
+
+"They'd love that."
+
+"What about Sola?" Ruwee asked.
+
+Padmé thought for only a moment.
+
+"Maid of honor."
+
+Sola's role was settled.
+
+Ruwee looked toward Anakin.
+
+"Your family?"
+
+Anakin became quiet.
+
+"I'd like Owen and Beru there."
+
+Padmé nodded.
+
+"They should finally meet Luke and Leia."
+
+"And I'd like them there because..."
+
+He smiled faintly.
+
+"...they're family."
+
+Ruwee wrote down their names.
+
+Then came Anakin's closest companions.
+
+"Obi-Wan," Anakin said immediately.
+
+"There isn't anyone I'd rather have standing beside me."
+
+Padmé smiled.
+
+"He'll be honored."
+
+"And Ahsoka."
+
+Padmé nodded.
+
+"Absolutely."
+
+"I don't care that she's no longer in the Order."
+
+He smiled.
+
+"She's still family."
+
+"What role?"
+
+"Groomswoman."
+
+Ruwee chuckled.
+
+"I don't think I've ever written that title before."
+
+Anakin shrugged.
+
+"Then today can be the first."
+
+"And Captain Rex."
+
+Everyone looked toward him.
+
+"He deserves to stand beside me too."
+
+Padmé smiled.
+
+"Best man?"
+
+Anakin grinned.
+
+"Best man."
+
+Padmé's own list came next.
+
+"Bail and Breha."
+
+Ruwee nodded.
+
+"They've always supported you."
+
+"Mon Mothma."
+
+"Certainly."
+
+"My handmaidens."
+
+She thought for a moment.
+
+"Sabé and Dormé should stand with me."
+
+"As bridesmaids?"
+
+"Yes."
+
+"And Jar Jar."
+
+Everyone smiled.
+
+"There isn't any ceremony on Naboo without Jar Jar somehow becoming involved."
+
+Padmé laughed.
+
+"Exactly."
+
+Jobal looked down at the growing list.
+
+"Who will officiate?"
+
+Padmé answered immediately.
+
+"Maxiron Agolerga."
+
+Anakin looked at her.
+
+"The same priest?"
+
+"The very same."
+
+He smiled.
+
+"I'd like that."
+
+The list was almost complete.
+
+Ruwee looked up again.
+
+"What about everyone else?"
+
+Padmé thought carefully.
+
+"I don't want the ceremony itself to become crowded."
+
+"So..."
+
+"The ceremony should stay relatively intimate."
+
+"But afterwards..."
+
+She smiled.
+
+"I'd love for more people to celebrate with us."
+
+They settled on inviting Queen Apailana together with members of her inner circle to the reception.
+
+Padmé also wanted the rest of her former handmaidens present for the celebration, even if they were not part of the ceremony itself.
+
+Ruwee suggested inviting selected members of the Naboo public.
+
+"They supported you for years."
+
+Padmé nodded.
+
+"I'd like that."
+
+"And representatives from Otoh Gunga," Jobal added.
+
+Padmé smiled warmly.
+
+"Yes."
+
+"The Gungans are part of Naboo's family too."
+
+Jar Jar would undoubtedly appreciate their presence.
+
+By late afternoon every detail had been finalized.
+
+Ruwee reviewed the completed list aloud.
+
+"Then this is our wedding party."
+
+Everyone listened as he read.
+
+> ---
+>
+>### Core Family
+>
+>**Bride:** Padmé Amidala
+>
+>**Groom:** Anakin Skywalker
+>
+>**Children:** Luke Skywalker and Leia Skywalker
+>
+>**Ring Bearer:** C-3PO
+>
+>**Family Astromech:** R2-D2
+>
+>### Naberrie Family
+>
+>**Hosts and Coordinators:** Ruwee Naberrie and Jobal Naberrie
+>
+>**Maid of Honor:** Sola Naberrie
+>
+>**Flower Girls:** Ryoo Naberrie and Pooja Naberrie
+>
+>### Lars Family
+>
+>**Guests:** Owen Lars and Beru Lars
+>
+>### Anakin's Close Circle
+>
+>**Groomsman:** Obi-Wan Kenobi
+>
+>**Groomswoman:** Ahsoka Tano
+>
+>**Best Man:** Captain Rex
+>
+>### Padmé's Close Circle
+>
+>**Guests:** Chancellor Bail Organa and Queen Breha Organa
+>
+>**Guest:** Mon Mothma
+>
+>**Bridesmaids:** Sabé and Dormé
+>
+>**Guest:** Jar Jar Binks
+>
+>### Officiant
+>
+>Maxiron Agolerga
+>
+>### Reception Guests
+>
+>Queen Apailana and members of her inner circle
+>
+>Padmé's remaining former handmaidens
+>
+>Selected members of the Naboo public
+>
+>Selected representatives of the Gungan people
+>
+> ---
+
+Ruwee lowered the datapad.
+
+"I think that's everyone."
+
+Padmé looked at Anakin.
+
+He smiled.
+
+"It feels right."
+
+She nodded.
+
+"It really does."
+
+The following morning, invitations were carefully prepared and sent across the Republic.
+
+Ruwee and Jobal returned to Theed to begin organizing the celebration.
+
+In the days that followed, replies gradually began arriving.
+
+Obi-Wan accepted immediately, adding a brief message that he would not miss the occasion for anything.
+
+Ahsoka's acceptance arrived not long afterward, filled with excitement at finally seeing her former Master again.
+
+Captain Rex responded that he would be honored to stand beside Anakin.
+
+Bail and Breha Organa gladly accepted.
+
+Mon Mothma confirmed her attendance.
+
+Sabé and Dormé enthusiastically agreed to serve as bridesmaids.
+
+Jar Jar's reply was characteristically enthusiastic, promising that he would arrive early to help however he could.
+
+Owen and Beru accepted as well, expressing how eager they were to meet Luke and Leia.
+
+Queen Apailana confirmed that she and her delegation would attend the reception.
+
+The remaining invitations were answered one after another over the following days until every invited guest had accepted.
+
+Meanwhile, Varykino Villa settled into an atmosphere of quiet anticipation.
+
+Threepio devoted himself to practicing the careful handling of the wedding rings.
+
+R2-D2 repeatedly interrupted those rehearsals with skeptical whistles whenever Threepio became overly dramatic.
+
+Padmé occasionally traveled into Theed with her mother to discuss flowers, music, and decorations before returning home each evening.
+
+Anakin found himself looking forward to seeing old friends again under circumstances far happier than any they had shared in years.
+
+Little by little, the preparations came together.
+
+And with each passing sunrise, the day of the public wedding drew closer.
+
+---
+
+# Wedding Interlude: Part 2
+
+Morning sunlight bathed the streets of Theed in warm gold.
+
+The public square near the Naberrie home had been transformed overnight.
+
+Fresh flowers lined the stone walkways.
+
+Long banners in Naboo colors fluttered gently in the breeze.
+
+Musicians quietly tuned their instruments while citizens gathered respectfully behind the reserved seating.
+
+Although the ceremony was open to the public, it retained an unmistakably personal atmosphere.
+
+This was not a state occasion.
+
+It was a family celebration.
+
+Guests began arriving one after another.
+
+Captain Rex was among the first.
+
+He stopped for a moment, looking around the square.
+
+"Never thought I'd be attending General Skywalker's wedding."
+
+Obi-Wan approached from behind with a smile.
+
+"I imagine neither did he."
+
+Rex saluted out of habit before catching himself.
+
+"Sorry."
+
+Obi-Wan laughed.
+
+"You may relax today, Captain."
+
+"I'll try, General."
+
+A familiar voice interrupted.
+
+"Master!"
+
+Ahsoka Tano hurried across the square.
+
+Before Obi-Wan could say anything, she embraced him.
+
+"It's good to see you."
+
+"And you."
+
+She immediately turned toward Rex.
+
+"Captain."
+
+"Ahsoka."
+
+"It's been too long."
+
+"It has."
+
+Obi-Wan suddenly piped up.
+
+"Let's go check on Anakin."
+
+Ahsoka and Rex nodded.
+
+The three of them headed toward the Naberrie home.
+
+Nearby, Bail Organa and Queen Breha greeted Mon Mothma.
+
+"I'm glad you could come," Bail said.
+
+"I wouldn't have missed this," Mon replied.
+
+"They deserve one happy day."
+
+Sabé and Dormé soon joined them.
+
+Jar Jar Binks arrived moments later carrying an enormous bouquet that appeared almost too large for him to see around.
+
+"Mesa made it!"
+
+Sabé laughed.
+
+"We noticed."
+
+Meanwhile, another meeting unfolded nearby.
+
+Owen Lars cautiously approached the refreshment tables alongside Beru.
+
+Neither had ever visited Naboo before.
+
+Ruwee noticed them immediately.
+
+"You must be Owen and Beru."
+
+Owen nodded.
+
+"That's right."
+
+Ruwee extended his hand.
+
+"I'm Ruwee Naberrie."
+
+Owen shook it.
+
+"It's good to finally meet you."
+
+Jobal joined them.
+
+"We've heard quite a bit about both of you."
+
+Beru smiled.
+
+"And we've heard about your family as well."
+
+Ruwee laughed.
+
+"I suppose today is long overdue."
+
+"It is," Owen agreed.
+
+Inside the nearby Naberrie home, Padmé stood before a mirror while Sola adjusted the final details of her gown.
+
+"You look beautiful."
+
+Padmé smiled.
+
+"You too."
+
+Ryoo and Pooja rushed into the room carrying flower baskets.
+
+"We're ready!"
+
+Sola smiled.
+
+"You certainly look ready."
+
+The two girls immediately hurried over to Luke and Leia, who rested peacefully in a beautifully crafted double pram.
+
+"They're so little," Ryoo whispered.
+
+Pooja carefully waved.
+
+"Hello, Luke."
+
+Leia yawned.
+
+Everyone laughed quietly.
+
+Elsewhere in the house, Anakin adjusted his formal attire.
+
+Rex, Ahsoka, and Obi-Wan have arrived at the home moments earlier.
+
+Rex looked him over.
+
+"You clean up well, General."
+
+"I've been told."
+
+Obi-Wan smiled.
+
+"I never imagined I'd see you voluntarily wearing formal clothing."
+
+"You sound surprised."
+
+"I am."
+
+Ahsoka folded her arms.
+
+"I never imagined I'd see you getting married in front of half of Naboo."
+
+Anakin laughed.
+
+"Neither did I."
+
+Threepio approached carrying a carefully polished cushion upon which rested the wedding rings.
+
+"I have rehearsed this approximately one hundred and forty-seven times."
+
+R2-D2 emitted a sarcastic whistle.
+
+"I'm certain I shall not drop them."
+
+R2 whistled again.
+
+"I most certainly shall not."
+
+"Is everyone ready?" Sola asked.
+
+Everybody in the Naberrie home nodded.
+
+So they all made their way to the public square.
+
+Soon afterward, the musicians began playing.
+
+Guests found their seats.
+
+The quiet conversations gradually faded.
+
+Maxiron Agolerga stepped into place before the gathered assembly.
+
+"We gather today not to create a marriage..."
+
+He smiled toward Anakin and Padmé.
+
+"...but to celebrate one that has already endured."
+
+A gentle murmur of approval spread through the audience.
+
+The procession began.
+
+Ryoo and Pooja walked first, scattering flower petals across the stone path with tremendous enthusiasm.
+
+Occasionally they threw petals at each other instead.
+
+The guests smiled.
+
+Sola followed.
+
+Then Padmé appeared.
+
+The entire square seemed to pause.
+
+Anakin could not take his eyes off her.
+
+Obi-Wan quietly leaned toward Rex.
+
+"I think he's forgotten we're all here."
+
+Rex grinned.
+
+"I'd say that's understandable."
+
+Padmé reached Anakin.
+
+They smiled at one another.
+
+Neither seemed capable of saying anything for several moments.
+
+Maxiron waited patiently before continuing.
+
+"My friends..."
+
+His voice carried gently across the square.
+
+"Love is strengthened not only by joyful moments, but also by perseverance through hardship."
+
+He looked toward the couple.
+
+"You have already faced challenges that many marriages never will."
+
+He smiled warmly.
+
+"And today, your family and friends finally have the privilege of celebrating beside you."
+
+Threepio carefully stepped forward with the rings.
+
+Just then—
+
+Luke began crying.
+
+A moment later Leia joined him.
+
+Within seconds both twins were loudly protesting the interruption to their morning.
+
+Padmé smiled apologetically.
+
+"I'm sorry."
+
+Anakin looked down toward the twins.
+
+His expression remained perfectly calm.
+
+Without moving his hands or drawing attention to himself, he reached gently through the Force.
+
+The crying gradually softened.
+
+Luke blinked.
+
+Leia yawned.
+
+Within moments both infants settled peacefully back to sleep.
+
+Several guests quietly smiled.
+
+Ahsoka and Obi-Wan exchanged knowing looks.
+
+Obi-Wan raised one eyebrow.
+
+Ahsoka folded her arms with a grin.
+
+Obi-Wan leaned just enough for Anakin to hear.
+
+"Did you just use a Jedi mind trick on your own children?"
+
+Anakin looked innocently ahead.
+
+"I have absolutely no idea what you're talking about."
+
+Ahsoka suppressed a laugh.
+
+"You know we both saw that."
+
+"I simply projected a calming presence."
+
+Obi-Wan smiled.
+
+"That's a very elegant way of describing a mind trick."
+
+"I prefer my version."
+
+Padmé quietly shook her head, trying not to laugh in the middle of the ceremony.
+
+Maxiron smiled patiently.
+
+"I believe the youngest members of the family have now expressed their opinion."
+
+The guests laughed.
+
+The ceremony continued.
+
+Maxiron turned toward Anakin.
+
+"Do you continue to choose Padmé Amidala as your wife, partner, and companion for all the years ahead?"
+
+"I do."
+
+He never hesitated.
+
+Maxiron looked toward Padmé.
+
+"And do you continue to choose Anakin Skywalker as your husband, partner, and companion?"
+
+She smiled through happy tears.
+
+"I always will."
+
+Threepio carefully presented the rings.
+
+His hands trembled only slightly.
+
+Anakin accepted Padmé's ring.
+
+Padmé accepted Anakin's.
+
+They exchanged them quietly.
+
+Maxiron raised his hands.
+
+"Then before your family, your friends, and the people of Naboo..."
+
+He smiled.
+
+"...I invite you to celebrate the marriage you have already built together."
+
+The applause began before he had even finished speaking.
+
+Anakin and Padmé embraced.
+
+Then they kissed.
+
+The applause grew louder.
+
+Luke remained asleep.
+
+Leia slept just as peacefully.
+
+"See?" Anakin whispered.
+
+"My calming presence."
+
+Padmé laughed.
+
+"Don't push your luck."
+
+The ceremony gave way naturally to the reception.
+
+Long tables filled the square.
+
+Music drifted through the afternoon air.
+
+The formal seating quickly disappeared as guests wandered freely.
+
+Selected members of the Naboo public arrived to join the festivities, along with representatives from Otoh Gunga who had come to honor the couple and the unity of Naboo.
+
+Naboo children and Gungan younglings alike ran between the decorations.
+
+Queen Apailana entered with members of her inner circle, greeted by a respectful wave from the Naboo citizens already gathered.
+
+Several Gungans bowed politely toward the Queen before beginning conversations with Naboo citizens.
+
+A cluster of Padmé's remaining former handmaidens walked into the reception soon after, smiling as they took in the celebration.
+
+Exactly as Ruwee had hoped, people who would otherwise never have met found themselves talking together.
+
+Jar Jar hurried over to a group of Gungans, beaming.
+
+"Mesa introducing everybody!"
+
+The square gradually filled with cheerful voices.
+
+Owen and Beru eventually found themselves seated beside Ruwee and Jobal.
+
+Ruwee smiled.
+
+"So."
+
+He looked toward Luke.
+
+"Our grandson certainly inherited Anakin's hair."
+
+Beru laughed.
+
+"I was thinking the same thing."
+
+"And Leia has Padmé's eyes," Jobal added.
+
+Owen nodded.
+
+"They're lucky children."
+
+"They are."
+
+Conversation gradually turned toward Tatooine.
+
+"I've never been there," Jobal admitted.
+
+Beru smiled.
+
+"It's not nearly as green as Naboo."
+
+"I gathered that."
+
+"There isn't a lake within sight."
+
+Ruwee chuckled.
+
+"I think we'll stay here."
+
+Nearby, Rex found himself speaking with Bail Organa.
+
+"I've heard quite a bit about you, Captain."
+
+"I hope most of it was good."
+
+"It was."
+
+Bail smiled.
+
+"You've served the Republic honorably."
+
+Rex nodded quietly.
+
+"I've just tried to do my job."
+
+Bail looked toward the families gathered together.
+
+"I hope soldiers like you finally get some peace."
+
+"So do I."
+
+Elsewhere, Ahsoka found herself surrounded by curious Gungan representatives.
+
+One of them tilted his head.
+
+"Yousa really trained by General Skywalker?"
+
+"I survived."
+
+The Gungans laughed.
+
+Jar Jar proudly introduced everyone.
+
+"Mesa telling you, her was one of da bravest Jedi."
+
+Ahsoka smiled.
+
+"Jar Jar and I actually went on a mission together once."
+
+Several Gungans looked astonished.
+
+Jar Jar looked delighted.
+
+"Mesa remembered!"
+
+"I remember everything."
+
+"And did yousa save da day?"
+
+"We usually managed."
+
+Nearby, Sabé and Dormé finally met Beru.
+
+"So you're Anakin's family."
+
+Beru smiled.
+
+"As much as anyone can claim."
+
+Sabé laughed.
+
+"Then we have something in common."
+
+"We've both spent years worrying about those two."
+
+Dormé nodded emphatically.
+
+"Constantly."
+
+Padmé eventually joined them.
+
+"What are you talking about?"
+
+Beru smiled.
+
+"You."
+
+Sabé nodded.
+
+"And Anakin."
+
+Padmé groaned playfully.
+
+"I should have guessed."
+
+Obi-Wan eventually wandered over carrying a plate of food.
+
+Ruwee waved him over.
+
+"Master Kenobi!"
+
+Obi-Wan smiled.
+
+"Please."
+
+"Today..."
+
+He gestured toward the festivities.
+
+"...just Obi-Wan."
+
+Ruwee stood and offered him a seat.
+
+"I've wanted to thank you."
+
+"What for?"
+
+"You looked after Anakin."
+
+Obi-Wan looked toward Anakin across the square.
+
+"I tried."
+
+"You did more than that."
+
+Jobal nodded.
+
+"You gave him a family before he found ours."
+
+Obi-Wan became unusually quiet.
+
+"Thank you."
+
+Across the reception, Anakin stood watching Luke and Leia sleeping beneath the shade of a tree.
+
+Rex approached.
+
+"You look different."
+
+Anakin smiled.
+
+"I am different."
+
+"You miss flying?"
+
+"Sometimes."
+
+"You miss the Order?"
+
+He thought for a long moment.
+
+"I miss the people."
+
+He looked toward Obi-Wan and Ahsoka laughing together.
+
+"I don't miss trying to be someone I wasn't."
+
+Rex nodded.
+
+"I figured."
+
+Padmé joined them carrying Leia.
+
+"She's awake."
+
+Anakin immediately reached out.
+
+Leia settled comfortably into his arms.
+
+Padmé smiled.
+
+"I think she's decided you're her favorite."
+
+Luke, apparently unwilling to be left out, immediately began fussing.
+
+R2 rolled over and emitted a teasing whistle.
+
+Obi-Wan, overhearing from several meters away, called out loudly enough for everyone nearby to hear.
+
+"No Force this time, Anakin."
+
+Laughter erupted around the tables.
+
+Anakin raised both hands.
+
+"I wasn't even thinking about it."
+
+Ahsoka grinned.
+
+"That's exactly what someone thinking about it would say."
+
+"I've been unfairly accused."
+
+Padmé laughed so hard she nearly had to sit down.
+
+As evening approached, lanterns illuminated the square.
+
+Music became livelier.
+
+Some guests danced.
+
+Others simply watched.
+
+Ruwee eventually raised a glass.
+
+"My friends."
+
+The conversations gradually quieted.
+
+"Today was never about correcting the past."
+
+He looked toward Anakin and Padmé.
+
+"It was about sharing joy that should never have been hidden."
+
+He smiled at both families.
+
+"Today, our families became one."
+
+He looked across the assembled guests.
+
+"And judging by everything I've seen today..."
+
+He laughed.
+
+"...we should have done this years ago."
+
+Glasses were raised throughout the square.
+
+"To Anakin and Padmé."
+
+"To Anakin and Padmé," the crowd echoed.
+
+Anakin looked around at everyone gathered.
+
+His old Master.
+
+His former apprentice.
+
+His captain.
+
+His friends.
+
+Padmé's friends.
+
+Both families.
+
+The people of Naboo.
+
+Even guests who had been strangers that morning were now laughing together.
+
+He squeezed Padmé's hand.
+
+She smiled back.
+
+For years, their marriage had belonged only to the two of them.
+
+Now it belonged to everyone who loved them.
+
+And as music carried through the warm Naboo evening and laughter echoed across the square, the celebration continued long after the sun had disappeared beyond the hills.
+
+---
+
 # Part 5
 
 The seasons passed gently over Naboo.
