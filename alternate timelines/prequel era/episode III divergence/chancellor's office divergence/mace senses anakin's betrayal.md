@@ -3038,7 +3038,7 @@ Everyone laughed quietly.
 
 Elsewhere in the house, Anakin adjusted his formal attire.
 
-Rex, Ahsoka, and Obi-Wan have arrived at the home moments earlier.
+Rex, Ahsoka, and Obi-Wan had arrived at the home moments earlier.
 
 Rex looked him over.
 
