@@ -1209,3 +1209,1233 @@ Whatever blood they had inherited, their choices would be their own.
 At last, with the house around them peaceful and silent, Luke and Leia extinguished the light.
 
 For the first time since learning they were twins, they fell asleep beneath the roof of their mother's family, surrounded by people who welcomed them not as strangers, but as kin.
+
+---
+
+# Part 4
+
+3 years passed.
+
+The Rebel Alliance never remained in one place for long.
+
+Each victory against the Empire was answered with relentless pursuit. Hidden bases were abandoned. Supply depots were evacuated in haste. Fleets disappeared into hyperspace only hours before Imperial task forces arrived. Every safe haven eventually became another battlefield.
+
+Luke Skywalker and Leia Organa matured alongside the Rebellion.
+
+The discovery that they were twins—and the children of Padmé Amidala and Anakin Skywalker—remained known only to a handful of people. Even among their closest allies, the truth stayed hidden.
+
+During those years, Luke and Leia trained together whenever duty allowed. Without a Jedi Master, they relied on instinct, old lessons from Obi-Wan Kenobi, and endless practice against one another. Wooden staffs became lightsabers. Meditation became routine. Little by little, their connection to the Force deepened.
+
+One evening, after an especially intense sparring session, a familiar blue glow appeared between them.
+
+Obi-Wan Kenobi's spirit slowly took shape.
+
+Luke immediately stood.
+
+"Ben."
+
+Leia bowed her head respectfully.
+
+The old Jedi smiled gently.
+
+"You've both come farther than I hoped."
+
+Luke stepped forward.
+
+"We've done everything we could remember."
+
+"I know."
+
+Leia asked the question that had lingered for years.
+
+"Is there anyone left who can teach us?"
+
+Obi-Wan nodded.
+
+"There is."
+
+Luke's eyes widened.
+
+"Yoda."
+
+"You remember him."
+
+"The little green fellow from Artoo's recording," Leia said.
+
+Obi-Wan smiled faintly.
+
+"He is Grand Master of the Jedi Order."
+
+Luke leaned forward eagerly.
+
+"Where is he?"
+
+"On Dagobah."
+
+Neither twin had ever heard of the planet.
+
+"It is there," Obi-Wan continued, "that you must complete your training."
+
+Not long afterward, Luke and Leia departed aboard an Alliance transport with R2-D2 accompanying them. C-3PO remained behind with Han Solo, Chewbacca, and the Millennium Falcon.
+
+Han had returned to the Alliance some time earlier.
+
+After finally settling his debt with Jabba the Hutt, he had discovered that walking away from the Rebellion had become impossible. Somewhere between escaping the Death Star, fighting beside Luke, and watching Leia grow from an impossible princess into one of the Alliance's strongest leaders, his priorities had quietly changed.
+
+He came back.
+
+Chewbacca came with him.
+
+So did the Falcon.
+
+No one complained.
+
+Dagobah was unlike any world Luke or Leia had imagined.
+
+It was damp, ancient, and overflowing with life.
+
+Yoda proved every bit as mysterious as the stories suggested.
+
+Training under him was harder than either of them expected.
+
+He challenged not only their bodies but their thoughts, their fears, and their certainty.
+
+Months stretched onward.
+
+Then, one day, everything changed.
+
+Far across the galaxy, Emperor Palpatine reached a decision.
+
+"The boy who destroyed the Death Star and the Rebel princess continue to evade us," he said from the throne aboard his command ship.
+
+Darth Vader knelt before him.
+
+"They hide well."
+
+"They will reveal themselves."
+
+The Emperor's yellow eyes narrowed.
+
+"They have attachments."
+
+Vader remained silent.
+
+"Capture their friends."
+
+Cloud City floated peacefully above Bespin's endless orange clouds.
+
+Han Solo had convinced Leia that he deserved at least one vacation after years of constant fighting. Luke and Leia remained on Dagobah, while Han, Chewbacca, C-3PO, and the Millennium Falcon accepted Lando Calrissian's invitation to spend several quiet days in Cloud City.
+
+The peace ended with the arrival of an Imperial fleet.
+
+Alarm sirens echoed through the city.
+
+"Lando!" an aide shouted. "Star Destroyers!"
+
+Lando looked through the observation window.
+
+"...Well."
+
+He sighed.
+
+"So much for a quiet week."
+
+Cloud City's security forces fought bravely.
+
+They were hopelessly outmatched.
+
+Imperial troops flooded the platforms and corridors with terrifying speed.
+
+Han fired until his blaster clicked empty.
+
+Chewbacca roared while hurling stormtroopers aside.
+
+Lando organized defensive positions wherever he could.
+
+It made no difference.
+
+One by one, they were overwhelmed.
+
+Vader personally oversaw the prisoners.
+
+Han was separated from the others.
+
+The torture lasted only long enough to achieve its purpose.
+
+On distant Dagobah, Luke suddenly staggered during meditation.
+
+His eyes flew open.
+
+Leia clutched her chest.
+
+"Han."
+
+"I felt it too."
+
+Pain.
+
+Agony.
+
+A cry through the Force.
+
+They ran to Yoda.
+
+"We have to go!" Luke said.
+
+"They're hurting him!"
+
+Yoda remained seated.
+
+"Not ready, you are."
+
+Leia shook her head.
+
+"We can't abandon our friends."
+
+"If leave now," Yoda warned, "great danger there is."
+
+Luke ignited his lightsaber.
+
+"We have no choice."
+
+Yoda closed his eyes sadly.
+
+"Always in motion, the future is."
+
+Within hours, Luke, Leia, and R2-D2 departed Dagobah.
+
+Using every trick they had learned during the war, they slipped through the Imperial blockade surrounding Bespin and landed unnoticed within Cloud City.
+
+The Force guided them.
+
+Every corridor.
+
+Every lift.
+
+Every intersection.
+
+Eventually they reached a vast chamber where Darth Vader waited.
+
+His crimson lightsaber ignited with a hiss.
+
+"I knew you would come."
+
+Luke and Leia drew their own blue blades.
+
+The duel began.
+
+Blue and red light flashed across polished floors.
+
+Steel screamed against steel.
+
+The battle carried them through the chamber in a blur of impossible speed.
+
+Then Luke spoke.
+
+"The Emperor never told you what happened to your wife."
+
+Vader's blade struck against Luke's.
+
+"He told me enough."
+
+Another clash.
+
+"He told me that in my anger, I killed her."
+
+Leia met Vader's next strike.
+
+"No."
+
+She pushed him backward.
+
+"She died giving birth to me and my brother."
+
+Luke stepped beside her.
+
+"Anakin Skywalker..."
+
+He lowered his blade slightly.
+
+"...I am your son."
+
+Leia looked directly into the black mask.
+
+"And I am your daughter."
+
+Vader froze.
+
+The red blade hung motionless.
+
+For several seconds, no one moved.
+
+Then a broken whisper emerged through the vocoder.
+
+"No."
+
+His breathing became uneven.
+
+"No."
+
+The lightsaber trembled.
+
+"That's not true."
+
+His voice rose.
+
+"That's impossible!"
+
+Luke answered calmly.
+
+"Search your feelings."
+
+He took another step.
+
+"You know it to be true."
+
+Vader staggered backward.
+
+"No!"
+
+He clutched at his helmet.
+
+"No!"
+
+Leia reached toward him.
+
+"Father..."
+
+The word echoed through the chamber.
+
+"I know there is still good in you."
+
+She lowered her weapon.
+
+"Turn away from the dark side."
+
+Her voice softened.
+
+"Now is the time for you to reclaim your true self."
+
+Vader stood motionless.
+
+Finally he answered.
+
+"It is too late for me."
+
+Luke shook his head.
+
+"It is never too late."
+
+He extinguished his anger, though not his blade.
+
+"We believe in you."
+
+He spoke the next words with complete conviction.
+
+"Anakin Skywalker, you are a Jedi, just as we are."
+
+For one impossible moment, Vader simply stood there.
+
+The conflict inside him became almost tangible.
+
+Then rage returned.
+
+With a furious cry, his lightsaber erupted into motion once more.
+
+The duel resumed.
+
+It was fiercer than before.
+
+Luke and Leia fought as one.
+
+Every opening created by one sibling was exploited by the other.
+
+Step by step, they forced Vader backward.
+
+His defense weakened.
+
+Leia saw an opening.
+
+Her lightsaber flashed.
+
+The blue blade sliced cleanly through Vader's mechanical right wrist.
+
+His prosthetic hand spun away into the depths beneath Cloud City.
+
+The crimson lightsaber followed it into the endless orange clouds below.
+
+Silence.
+
+Vader dropped to both knees.
+
+Luke looked at Leia.
+
+Without speaking, both extinguished their lightsabers.
+
+Vader slowly raised his head.
+
+Luke stepped closer.
+
+"Father..."
+
+His voice held no hatred.
+
+"We will not kill you."
+
+He knelt before the fallen Sith.
+
+"We only hope that you can see through the mask of darkness that has consumed you for more than two decades... and return to the light."
+
+Leia knelt beside Luke.
+
+"Please, Anakin."
+
+Her eyes filled with tears.
+
+"You know we are right."
+
+She gently placed a hand against the undamaged shoulder of his armor.
+
+"You want to believe us."
+
+Her voice became almost a whisper.
+
+"We can feel it."
+
+She closed her eyes.
+
+"Let go of the Emperor."
+
+"Let go of hatred."
+
+"Let go of the dark side of the Force."
+
+For several long seconds, Vader said nothing.
+
+Then, so quietly that even the respirator nearly drowned out the words, he whispered,
+
+"Thank you."
+
+His body slumped.
+
+He collapsed unconscious onto the floor.
+
+Luke caught him before his helmet struck the durasteel.
+
+Together, the twins carefully carried the armored figure through Cloud City's corridors until they found a secure medical recovery room.
+
+After placing him gently on the bed, Luke activated the restraints on the room's entrance and locked the door behind them.
+
+"Let's get the others," Leia said.
+
+Using the Force, they searched again.
+
+This time they found Han, Chewbacca, C-3PO, Lando Calrissian, and several other prisoners held under heavy guard.
+
+Luke sliced open the cell door.
+
+Han looked up in disbelief.
+
+"...Kid?"
+
+Leia smiled.
+
+"We're a little late."
+
+Stormtroopers rushed toward the prison.
+
+Luke and Leia met them head-on.
+
+Blue lights flashed through the corridor.
+
+Blaster bolts rebounded into armored ranks.
+
+One squad after another fell back beneath the relentless assault of the Jedi twins.
+
+Chewbacca tore a blaster from one stormtrooper and covered the escape.
+
+Lando armed himself from a fallen Imperial.
+
+Han recovered his own blaster and grinned.
+
+"I knew you'd show up."
+
+"I told you to take a vacation," Leia replied while deflecting another volley.
+
+"I did!"
+
+Han fired over her shoulder.
+
+"This is how my vacations usually end!"
+
+The group fought its way back through the city.
+
+At the recovery room, Luke and Leia retrieved Vader's unconscious body.
+
+Han stopped dead.
+
+"...You're bringing him?"
+
+Luke nodded.
+
+"Yes."
+
+Han stared.
+
+"...We're discussing this later."
+
+Together they hauled Vader aboard the Millennium Falcon.
+
+Han rushed to the cockpit.
+
+Chewbacca took the copilot's seat.
+
+Lando sprinted after them.
+
+The Falcon blasted from its landing platform just as Imperial fighters converged.
+
+Alarms echoed across Cloud City.
+
+Turbolasers filled the sky.
+
+The freighter twisted between towers, plunged through clouds, and shot toward space.
+
+Imperial Star Destroyers closed in from every direction.
+
+Han gripped the controls.
+
+"Hang on!"
+
+The Falcon dove beneath one destroyer, rolled through a barrage of green laser fire, slipped through a narrowing gap in the blockade, and accelerated into open space.
+
+Moments later, stars stretched into brilliant lines.
+
+The Millennium Falcon vanished into hyperspace, carrying Luke, Leia, Han, Chewbacca, Lando, C-3PO, R2-D2—and the unconscious Darth Vader—away from Bespin.
+
+---
+
+# Part 5
+
+Inside the Millennium Falcon's medical compartment, Darth Vader slowly opened his eyes.
+
+The first thing he saw was Luke and Leia sitting nearby.
+
+Neither of them had ignited a lightsaber.
+
+Neither had raised a weapon.
+
+They were simply waiting.
+
+Vader looked down at the empty space where his mechanical right hand had once been.
+
+For a long moment, no one spoke.
+
+Finally, his mechanical breathing broke the silence.
+
+"You spared me."
+
+Luke nodded.
+
+"Yes."
+
+"I gave you every reason to hate me."
+
+Leia answered quietly.
+
+"We had every reason."
+
+Vader lowered his head.
+
+"You had every reason to kill me."
+
+Another long silence followed.
+
+Then Vader looked at both of them.
+
+"Thank you."
+
+The words sounded strange coming from the towering armored figure.
+
+Luke leaned forward.
+
+"For what?"
+
+"For showing mercy."
+
+Vader's voice remained low.
+
+"I had forgotten what mercy looked like."
+
+Leia watched him carefully.
+
+"We meant what we said."
+
+He looked at her.
+
+"You believed there was still good in me."
+
+"There is."
+
+He slowly closed his eyes.
+
+"When you lowered your weapons... I finally understood."
+
+Luke waited.
+
+"I have served darkness for more than two decades."
+
+Vader looked between his son and daughter.
+
+"No longer."
+
+Luke's expression brightened.
+
+"You mean..."
+
+"I will fight the Emperor."
+
+Leia smiled for the first time since Cloud City.
+
+"Welcome back, Father."
+
+Vader lowered his head once more.
+
+"I do not deserve to hear that."
+
+"Perhaps not," Leia admitted.
+
+"But you're hearing it anyway."
+
+Luke looked toward the empty wrist beneath Vader's armor.
+
+"First things first."
+
+He pointed gently.
+
+"You need a new hand."
+
+Returning to Imperial space was impossible.
+
+Bringing Vader openly into a Rebel medical facility was equally impossible.
+
+Han thought for a few seconds before snapping his fingers.
+
+"I know a guy."
+
+Leia looked at him.
+
+"You know a guy?"
+
+Han shrugged.
+
+"I know lots of guys."
+
+Chewbacca rumbled skeptically.
+
+"Yeah, yeah," Han replied. "Some are more trustworthy than others."
+
+He looked toward Luke.
+
+"Nar Shaddaa."
+
+Luke had heard the name.
+
+"The Smuggler's Moon?"
+
+Han nodded.
+
+"I've got an old contact there."
+
+"He'll help Vader?"
+
+"He doesn't care who you are."
+
+Han grinned.
+
+"He only cares whether you can pay."
+
+Leia smiled faintly.
+
+"That part I can solve."
+
+Several days later, the Falcon quietly landed on Nar Shaddaa.
+
+Han's contact proved exactly as advertised.
+
+He asked no political questions.
+
+He offered no opinions.
+
+He simply examined Vader's damaged arm.
+
+"Replacement prosthetic."
+
+He looked at Leia.
+
+"Expensive."
+
+Leia answered without hesitation.
+
+"I'll cover it."
+
+The technician merely nodded.
+
+Money changed hands.
+
+Several hours later, Vader flexed the fingers of a newly fitted prosthetic right hand.
+
+The movement was smooth.
+
+Accurate.
+
+Almost natural.
+
+He slowly opened and closed the mechanical fingers.
+
+"It has been a long time," he said quietly, "since anyone has done something for me expecting nothing in return."
+
+Han folded his arms.
+
+"Don't get sentimental."
+
+The former Sith actually gave the faintest hint of a nod.
+
+"I will try."
+
+From Nar Shaddaa, the Falcon departed once more.
+
+Their destination was Dagobah.
+
+Luke sat in the cockpit beside Han.
+
+"We promised Yoda we'd come back."
+
+Han looked sideways at him.
+
+"You really think he'll be happy?"
+
+Luke smiled.
+
+"I honestly have no idea."
+
+Dagobah greeted them with its familiar mist and endless swamps.
+
+When Yoda stepped from his hut and saw who had emerged from the Falcon, he simply stared.
+
+His ancient eyes settled upon Darth Vader.
+
+Then upon Luke.
+
+Then Leia.
+
+Finally he spoke.
+
+"Defeated Vader..."
+
+His ears twitched.
+
+"...and redeemed him, you did?"
+
+Luke nodded.
+
+"Yes, Master."
+
+Yoda blinked several times.
+
+"Hmmm."
+
+He slowly walked toward Anakin.
+
+"Private moment."
+
+Anakin inclined his head.
+
+"Of course, Master."
+
+The others quietly withdrew while Yoda led Anakin inside the small hut.
+
+The door closed.
+
+For a long moment neither spoke.
+
+Finally Yoda broke the silence.
+
+"Undo the damage that you have caused, you cannot."
+
+Anakin bowed his head.
+
+"I understand, Master."
+
+"But return to the light side of the Force, you still can."
+
+"Thank you, Master."
+
+Yoda looked up into Anakin's eyes.
+
+"Skywalker... the Chosen One, you were."
+
+Anakin closed his eyes.
+
+"I am sorry, Master."
+
+"Defeat the Sith, you were supposed to."
+
+"I know."
+
+Yoda stepped closer.
+
+"The Chosen One, you still are."
+
+Anakin looked up.
+
+"Defeat the Sith, you still can."
+
+The old Jedi rested a small hand against Anakin's arm.
+
+"Yours, this destiny still is."
+
+Emotion entered Anakin's voice.
+
+"I will not fail you this time, Master."
+
+Yoda slowly turned toward a small wooden chest tucked against the wall.
+
+He opened it.
+
+Inside rested a small green lightsaber.
+
+He carefully lifted it with both hands.
+
+"My lightsaber, this is."
+
+He extended it.
+
+"Now yours, it will be."
+
+Anakin stared.
+
+"Master Yoda... you are giving me your lightsaber?"
+
+"Yes, Skywalker, I am."
+
+Very carefully, Anakin accepted the weapon.
+
+He held it with both hands as though afraid to damage it.
+
+"Thank you, Master."
+
+Yoda smiled peacefully.
+
+"...May the Force be with you."
+
+He closed his eyes.
+
+His breathing slowed.
+
+Then stopped.
+
+His body became luminous.
+
+Moments later, it vanished completely.
+
+Only the robes remained.
+
+Anakin stood silently for several seconds before picking them up and folding them neatly.
+
+Then he stepped outside.
+
+Luke immediately stood.
+
+"Where's Yoda?"
+
+Anakin's voice caught.
+
+"I..."
+
+He struggled to continue.
+
+"...Yoda..."
+
+Leia's eyes widened.
+
+"Father..."
+
+She looked past him toward the hut.
+
+"What have you done to Yoda?!"
+
+Before Anakin could answer, a familiar green figure shimmered into existence beside the doorway.
+
+Yoda's luminous spirit smiled.
+
+"Finished what I needed to finish, I have."
+
+He looked toward all of them.
+
+"Go."
+
+Luke took an involuntary step forward.
+
+"But our training..."
+
+Yoda's smile widened.
+
+"Complete, your training is."
+
+His gaze rested proudly upon the twins.
+
+"Jedi Knights, both of you now are."
+
+He slowly turned toward Anakin.
+
+Then back again.
+
+"The Emperor..."
+
+His voice became firm.
+
+"...now you must face."
+
+Leia bowed respectfully.
+
+"Yes, Master."
+
+Yoda inclined his head one final time.
+
+Then his spirit faded into the swamp air.
+
+Outside the hut, the group gathered around the Falcon.
+
+"We only get one chance," Luke said.
+
+Anakin nodded.
+
+"The Emperor expects me to bring him prisoners."
+
+Leia looked toward him.
+
+"So we let him believe you've succeeded."
+
+Han crossed his arms.
+
+"You mean you're actually going to walk into his throne room?"
+
+"Yes," Luke answered.
+
+Anakin continued the plan.
+
+"I will pretend I have captured Luke and Leia."
+
+"They'll be restrained."
+
+"I'll present them to the Emperor."
+
+Leia finished the thought.
+
+"And when his attention is on us..."
+
+Luke ignited an imaginary lightsaber with his hand.
+
+"...all three of us strike together."
+
+Han looked unconvinced.
+
+"I still hate this plan."
+
+Chewbacca growled his agreement.
+
+"It's dangerous," Leia admitted.
+
+"But surprise is our greatest advantage."
+
+The Falcon departed Dagobah.
+
+Its next stop was a small Imperial outpost.
+
+The garrison never expected an attack.
+
+Within minutes the defenders had been overwhelmed.
+
+Anakin entered the landing bay alone.
+
+An Imperial Lambda-class shuttle sat waiting.
+
+He boarded it.
+
+Luke and Leia followed.
+
+Their wrists were fitted with convincing restraints.
+
+Han clasped Anakin's forearm.
+
+"Good luck."
+
+"You as well."
+
+The shuttle lifted off.
+
+Soon afterward, Anakin opened a communications channel.
+
+The Emperor's image appeared.
+
+"My master," Anakin said.
+
+"I have successfully captured the Rebel princess and the boy who destroyed the Death Star."
+
+He glanced toward Luke and Leia.
+
+"I am now bringing them to you."
+
+The Emperor smiled.
+
+"Good, Lord Vader."
+
+His yellow eyes gleamed.
+
+"You have done well."
+
+The transmission ended.
+
+Hours later, the shuttle settled inside the Emperor's flagship.
+
+Imperial guards escorted the prisoners into the throne room.
+
+Palpatine slowly descended from his throne.
+
+He circled Luke and Leia.
+
+"So strong..."
+
+His smile widened.
+
+"The Force flows powerfully through both of you."
+
+His eyes lingered upon them.
+
+"There is great potential."
+
+He chuckled softly.
+
+"Perhaps..."
+
+Before he could finish, Anakin acted.
+
+With a single movement of the Force, Luke's restraints flew away.
+
+Leia's restraints followed an instant later.
+
+Three lightsabers ignited almost simultaneously.
+
+Blue.
+
+Blue.
+
+Green.
+
+All three Jedi lunged.
+
+Palpatine reacted with astonishing speed.
+
+His own crimson blade flashed into existence just in time.
+
+The clash shook the chamber.
+
+An instant later, a tremendous wave of the Force exploded outward.
+
+Luke, Leia, and Anakin were hurled backward.
+
+Palpatine's voice thundered through the throne room.
+
+"You dare betray me, Lord Vader!"
+
+Anakin rose to his feet.
+
+He held Yoda's green lightsaber before him.
+
+"I am no longer your apprentice, Darth Sidious."
+
+His voice rang with certainty.
+
+"I am Anakin Skywalker."
+
+He raised the blade.
+
+"And I am a Jedi Knight!"
+
+Palpatine's face twisted with fury.
+
+"You speak of treason!"
+
+Both of his hands erupted with brilliant Force lightning.
+
+The torrent struck Anakin's life-support armor.
+
+Electricity surged across every panel.
+
+Anakin tried to hold his lightsaber against the storm.
+
+It wasn't enough.
+
+The lightning overwhelmed him.
+
+His suit failed.
+
+He collapsed.
+
+Luke and Leia ran toward him.
+
+"Father!" they cried together.
+
+Anakin looked up at them through failing breath.
+
+"There..."
+
+His voice weakened.
+
+"...is..."
+
+Another breath.
+
+"...no..."
+
+"...time."
+
+His chest rose painfully.
+
+"I..."
+
+"...cannot..."
+
+"...be..."
+
+"...saved."
+
+His eyes found Luke.
+
+Then Leia.
+
+"Finish..."
+
+"...what..."
+
+"...I..."
+
+"...started."
+
+The respirator fell silent.
+
+Anakin Skywalker did not move again.
+
+Luke closed his father's eyes.
+
+Leia stood.
+
+Palpatine laughed.
+
+"So ends the last hope of the Jedi."
+
+Luke slowly rose.
+
+Leia stood beside him.
+
+Together they ignited their blue lightsabers once more.
+
+The duel resumed.
+
+Blade met blade again and again.
+
+The throne room echoed with relentless impacts.
+
+At last Palpatine unleashed another torrent of Force lightning.
+
+Both hands extended.
+
+The storm roared toward them.
+
+Luke and Leia crossed their lightsabers into the shape of an X.
+
+The lightning struck.
+
+For a moment they barely held.
+
+Then the energy bent.
+
+Turned.
+
+Raced back toward its source.
+
+Palpatine screamed.
+
+The lightning engulfed him.
+
+His own power consumed him.
+
+He staggered backward.
+
+Luke and Leia moved without hesitation.
+
+They leaped together.
+
+Two blue blades swept downward in perfect unison.
+
+The strikes landed.
+
+The Emperor collapsed.
+
+Silence filled the throne room.
+
+The Emperor of the Galactic Empire was dead.
+
+Luke and Leia did not wait.
+
+Imperial personnel throughout the flagship were only beginning to realize something had gone terribly wrong.
+
+Confusion spread through every corridor.
+
+Alarms began to sound.
+
+The twins reached the nearest escape pod and launched before organized resistance could form.
+
+Minutes later, a familiar freighter appeared from hyperspace.
+
+The Millennium Falcon intercepted the pod exactly where planned.
+
+Han opened the airlock.
+
+Luke and Leia hurried aboard.
+
+Han searched their faces.
+
+"It's done?"
+
+Luke nodded.
+
+"It's over."
+
+Han looked past them.
+
+"Where's your father?"
+
+Leia lowered her head.
+
+"He stayed behind."
+
+No one spoke for several moments.
+
+Chewbacca quietly placed a hand on Luke's shoulder.
+
+The Falcon turned away from the Imperial flagship.
+
+Stars stretched into lines.
+
+The ship vanished into hyperspace.
+
+The Galactic Civil War was not yet finished.
+
+The Empire still possessed vast fleets, countless soldiers, and governors spread across thousands of worlds.
+
+But the man who had held that immense machine together through fear, manipulation, and absolute authority was gone.
+
+Across the galaxy, no one yet understood the full consequences of the Emperor's death.
+
+The slow unraveling had already begun.
