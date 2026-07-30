@@ -113,6 +113,40 @@ All right.
 
 # 2. (source: A New Hope)
 
+The princess grabs Luke's gun and fires at a small grate in 
+the wall next to Han, almost frying him.
+
+HAN
+What the hell are you doing?
+
+LEIA
+Somebody has to save our skins. Into 
+the garbage chute, wise guy.
+
+She jumps through the narrow opening as Han and Chewbacca 
+look on in amazement. Chewbacca sniffs the garbage chute and 
+says something.
+
+HAN
+Get in there you big furry oaf! I 
+don't care what you smell! Get in 
+there and don't worry about it.
+
+Han gives him a kick and the Wookiee disappears into the 
+tiny opening. Luke and Han continue firing as they work their 
+way toward the opening.
+
+HAN
+Wonderful girl! Either I'm going to 
+kill her or I'm beginning to like 
+her. Get in there!
+
+Luke ducks laserfire as he jumps into the darkness. Han fires 
+off a couple of quick blasts creating a smokey cover, then 
+slides into the chute himself and is gone.
+
+# 3. (source: A New Hope)
+
 LEIA
 Listen. I don't know who you are, or 
 where you came from, but from now 
@@ -136,7 +170,7 @@ Han watches her start away. He looks at Luke.
 HAN
 No reward is worth this.
 
-# 3. (source: A New Hope)
+# 4. (source: A New Hope)
 
 HAN
 Not a bad bit of rescuing, huh? You 
@@ -221,7 +255,7 @@ No!
 Luke says it with finality and looks away. Han smiles at 
 young Luke's jealousy.
 
-# 4. (source: The Empire Strikes Back)
+# 5. (source: The Empire Strikes Back)
 
 Taking a deep breath, Han blurts out what is on his mind.
 
@@ -347,7 +381,7 @@ a good kiss!
 
 Angrily, Han strides down the corridor as Leia stares after him.
 
-# 5. (source: The Empire Strikes Back)
+# 6. (source: The Empire Strikes Back)
 
 Han turns as Leia enters the room.  He looks at her with a big, 
 devilish grin.
@@ -413,7 +447,7 @@ on her heel and walks out, leaving everyone in the room slightly
 dumbstruck.  With some smugness, Luke puts his hands behind his head 
 and grins.
 
-# 6. (source: The Empire Strikes Back)
+# 7. (source: The Empire Strikes Back)
 
 The sliding door closes behind the indignant Threepio as Chewie and he 
 move back to the hold.  Suddenly, the ship lurches again, throwing Leia 
@@ -449,7 +483,7 @@ got time for anything else.
 Han grins quickly wickedly at Leia as he turns and exits through the 
 door.  Leia's confused emotions show clearly on her lovely face.
 
-# 7. (source: The Empire Strikes Back)
+# 8. (source: The Empire Strikes Back)
 
 Leia finishes welding the valves she has been working on and attempts 
 to reengage the system by pulling a lever attached to the valve.  It 
@@ -556,7 +590,7 @@ like this before, and it almost makes her faint.  When he stops, she
 regains her breath and tries to work up some indignation, but finds it 
 hard to talk.
 
-# 8. (source: The Empire Strikes Back)
+# 9. (source: The Empire Strikes Back)
 
 INT. CLOUD CITY - CARBON-FREEZING CHAMBER
 
@@ -657,7 +691,7 @@ Instantly, fiery liquid begins to pour down in a shower of sparks and
 fluid as great as any steel furnace.  Holding Leia, Chewie half-turns 
 away from the sight, giving Threepio a view of the procedure.
 
-# 9. (source: Return of the Jedi)
+# 10. (source: Return of the Jedi)
 
 76   EXT EWOK VILLAGE - NIGHT
 
@@ -812,7 +846,7 @@ Hold me.
 
 Han gathers her tightly in his protective embrace.
 
-# 10. (source: Return of the Jedi)
+# 11. (source: Return of the Jedi)
 
 116  EXT FOREST - GENERATOR BUNKER
 
@@ -879,7 +913,7 @@ barks triumphantly.
 HAN
 Chewie!  Get down here!  She's wounded!  No, wait....  I got an idea.
 
-# 11. (source: Return of the Jedi)
+# 12. (source: Return of the Jedi)
 
 136  EXT ENDOR FOREST
 
