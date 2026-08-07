@@ -2949,3 +2949,1647 @@ Campaign after campaign carried the 479th Division from one battlefield to the n
 Throughout the Republic, people hoped for the day when the Clone Wars would finally come to an end.
 
 For now, however, that day remained beyond anyone's sight.
+
+---
+
+# Part 9
+
+A few months passed.
+
+The Clone Wars continued to rage across the galaxy.
+
+While Republic and Separatist fleets clashed on distant battlefields, life on Naboo remained remarkably peaceful.
+
+One bright morning in the Naberrie home in Theed, Sola Naberrie finished packing a small travel bag.
+
+She looked toward the hallway.
+
+"You ready, girls?"
+
+Ryoo immediately appeared.
+
+"Yes!"
+
+Pooja came running behind her.
+
+"We're going to Varykino today!"
+
+Sola smiled.
+
+"That's right."
+
+Ryoo grinned excitedly.
+
+"Yay! We haven't been there for so long!"
+
+"Let's go!" Pooja added.
+
+Ruwee and Jobal emerged from another room carrying the last of their luggage.
+
+Before long, the family boarded their ship and departed Theed.
+
+Ever since Padmé had left Naboo to serve in the Galactic Senate more than a decade earlier, she had given her family permission to use Varykino Villa whenever they wished.
+
+The Naberries had gladly accepted the offer.
+
+Every so often, they escaped the bustle of Theed to spend quiet vacations at the lakeside estate.
+
+Their flight was uneventful.
+
+As the familiar villa came into view, Ryoo pressed her face against the viewport.
+
+"I can't wait to go swimming!"
+
+"And I want to explore the gardens!" Pooja said.
+
+The ship landed.
+
+Everyone stepped outside.
+
+Sola walked confidently to the front entrance and entered the security code on the keypad using the access Padmé had given her years before.
+
+The door slid open.
+
+She stepped inside.
+
+Then stopped.
+
+A man she had never seen before was sitting in the first room.
+
+Hearing the door open, Owen Lars immediately stood.
+
+The two stared at one another in equal surprise.
+
+Sola was the first to speak.
+
+"Who are you?"
+
+Owen blinked.
+
+"Who are you?"
+
+"My name is Sola Naberrie."
+
+She looked around the house.
+
+"What are you doing in this house?"
+
+Owen scratched the back of his head.
+
+"Uh..."
+
+"Padmé said we could stay here."
+
+Sola frowned.
+
+"Padmé?"
+
+"You know her?"
+
+"How do you know her?"
+
+By now, the conversation had attracted the attention of the rest of the household.
+
+Shmi, Cliegg, and Beru walked into the entrance hall.
+
+Shmi smiled politely.
+
+"Padmé is my daughter-in-law."
+
+Sola blinked.
+
+"Daughter-in-law?"
+
+"My son's wife."
+
+"And your son is?"
+
+"Anakin Skywalker."
+
+Understanding immediately appeared on Sola's face.
+
+She remembered Anakin well.
+
+Several years earlier, shortly after the two assassination attempts against Padmé, he had visited the Naberrie home while serving as her Jedi protector.
+
+Anakin and Padmé had both insisted that their relationship was purely professional.
+
+Even so, Sola, Ruwee, and Jobal had noticed the way they looked at one another.
+
+The quiet smiles.
+
+The lingering glances.
+
+The obvious affection neither seemed very good at hiding.
+
+Standing in the doorway now, Sola was not surprised at all.
+
+She smiled warmly.
+
+"Ah."
+
+"I see."
+
+She extended her hand.
+
+"I'm Sola Naberrie."
+
+"Padmé's sister."
+
+Shmi shook it.
+
+"It's wonderful to meet you."
+
+Sola stepped aside and gestured toward the others waiting outside.
+
+"And these are my daughters, Ryoo and Pooja."
+
+The two girls waved enthusiastically.
+
+"And my parents, Ruwee and Jobal."
+
+Pooja bounced forward with a huge smile.
+
+"Hi!"
+
+Everyone laughed.
+
+Shmi smiled back.
+
+"Hello."
+
+She began making introductions of her own.
+
+"I am Shmi Skywalker Lars."
+
+"I'm Anakin's mother."
+
+She placed a hand on Cliegg's shoulder.
+
+"This is my husband, Cliegg."
+
+She gestured toward the younger couple.
+
+"And this is Owen and Beru."
+
+"Owen is Cliegg's son."
+
+"And Beru is Owen's wife."
+
+Pleasantries quickly turned into conversation.
+
+Before long, everyone had moved into the villa's spacious living room.
+
+Refreshments were brought out, and introductions gradually became stories.
+
+After some time, Jobal asked the question that had been on everyone's mind.
+
+"Why were we never told that Padmé was married?"
+
+Shmi gave an apologetic smile.
+
+"It was complicated."
+
+She explained the Jedi prohibition against marriage.
+
+She described Anakin and Padmé's small secret wedding.
+
+She admitted that even she had not learned of the marriage until sometime afterward.
+
+"I only found out because Anakin eventually told me himself."
+
+Ruwee looked thoughtful.
+
+"If Anakin later left the Jedi Order..."
+
+He tilted his head slightly.
+
+"...why did Padmé still keep the marriage from us?"
+
+Shmi slowly shook her head.
+
+"I honestly don't know."
+
+She smiled faintly.
+
+"My best guess is that she simply forgot."
+
+"The two of them have been incredibly busy ever since the war began."
+
+Sola nodded.
+
+"That certainly sounds like Padmé."
+
+She then turned toward Beru.
+
+"May I ask something?"
+
+"Of course."
+
+"Why are all of you living here?"
+
+"What happened?"
+
+Beru exchanged a glance with the others.
+
+Then she began explaining everything.
+
+She described Chancellor Palpatine's unexpected visit to the Lars homestead.
+
+His offer to station clone troopers there.
+
+The family's refusal.
+
+The destruction of their home.
+
+Their relocation to Naboo.
+
+When she finished, the Naberries finally understood why strangers had been living in the villa.
+
+Sola smiled sympathetically.
+
+"Well..."
+
+She looked around the spacious estate.
+
+"Padmé also lets our family use this place as a vacation home."
+
+Shmi's expression immediately became apologetic.
+
+"Oh..."
+
+"I'm sorry."
+
+"We didn't realize."
+
+"I hope we haven't interrupted your vacation."
+
+Sola laughed softly.
+
+"Not at all."
+
+She looked around the enormous villa.
+
+"This place has plenty of room."
+
+"We can share."
+
+And so they did.
+
+Over the following week, the villa was filled with conversation and laughter.
+
+The two families quickly became comfortable with one another.
+
+Shmi told stories about Anakin's childhood on Tatooine.
+
+Ruwee shared stories of Padmé growing up in Theed.
+
+Cliegg and Owen spoke about moisture farming.
+
+Beru learned Naboo recipes from Jobal.
+
+Ryoo and Pooja quickly warmed to everyone in the villa.
+
+The girls constantly asked the Lars family questions about Tatooine.
+
+The Larses found both girls absolutely adorable.
+
+Eventually, the Naberries prepared to return home.
+
+As luggage was loaded onto their ship, Sola turned toward the Lars family.
+
+"You should come visit Theed."
+
+She smiled.
+
+"It's very different from here."
+
+"I don't think you've experienced a big city on Naboo yet."
+
+Ruwee nodded.
+
+"Naboo is a wonderful place."
+
+"While you're here..."
+
+"I think you should explore everything."
+
+"The cities."
+
+"The countryside."
+
+"The lakes."
+
+The invitation prompted discussion among the Lars family.
+
+After some deliberation, they agreed.
+
+Instead of remaining at Varykino, they accompanied the Naberries back to Theed.
+
+Over the next several days, the Naberries gave them a thorough tour of the city.
+
+They walked through bustling streets lined with elegant stone buildings.
+
+They visited markets, parks, and public squares.
+
+They admired the architecture and watched musicians perform throughout the city.
+
+One afternoon, after spending several hours exploring, Owen looked around with an appreciative smile.
+
+"I actually like it here a lot."
+
+He looked down the lively street.
+
+"It's... more vibrant."
+
+"Lots of things going on."
+
+He glanced toward Beru.
+
+"Varykino feels nice..."
+
+"...but it is a bit too secluded."
+
+He folded his arms thoughtfully.
+
+"I think we should find ourselves a place to live here."
+
+"We can't live at Varykino forever anyway."
+
+"So we might as well just move here now."
+
+Beru nodded.
+
+"I like that idea."
+
+Shmi smiled.
+
+"So do I."
+
+Cliegg agreed.
+
+"It feels like home already."
+
+Jobal smiled.
+
+"There are some homes for sale near our place."
+
+She pointed farther down the street.
+
+"See if you're interested in any of them."
+
+Together they visited several properties.
+
+Some were too small.
+
+Others simply did not feel right.
+
+Eventually they came to a comfortable home in a quiet neighborhood.
+
+Everyone immediately liked it.
+
+Owen looked over the purchase information.
+
+He blinked.
+
+"Do we have enough credits..."
+
+He looked at the listed price again.
+
+"Wow."
+
+"Naboo is expensive."
+
+Ruwee chuckled.
+
+"Oh, don't worry about it."
+
+"We can cover you."
+
+Beru immediately protested.
+
+"Oh, you don't have to be so generous."
+
+Jobal smiled warmly.
+
+"Don't worry about it."
+
+"We love doing things for family."
+
+She leaned toward Beru and lowered her voice to a whisper.
+
+"And also..."
+
+"...just saying..."
+
+"Padmé is quite rich."
+
+Owen laughed.
+
+"Yeah."
+
+"I figured."
+
+After some more discussion, the Lars family gratefully accepted the Naberries' offer of financial assistance.
+
+The purchase was completed.
+
+Over the next several days, they moved their belongings from Varykino Villa into their new home in Theed.
+
+Before long, the villa stood empty once more, waiting quietly beside the lake.
+
+Far away on distant battlefields, Republic General Anakin Skywalker, Senator Padmé Amidala, R2-D2, and C-3PO continued serving with the Republic.
+
+None of them had the slightest idea that their two families had met, become close friends, and helped one another begin a new chapter together on Naboo.
+
+---
+
+# Part 10
+
+Some time later, Republic General Anakin Skywalker and Senator Padmé Amidala found themselves enjoying a rare break from the war.
+
+For once, there were no battle reports demanding immediate attention, no emergency deployments, and no strategy meetings waiting for them.
+
+The two simply walked together through one of Coruscant's public plazas, enjoying the ordinary rhythm of city life.
+
+Padmé smiled.
+
+"I almost forgot what it's like to take a walk without someone handing us a datapad every five minutes."
+
+Anakin laughed.
+
+"I was starting to think clone troopers reproduced by paperwork."
+
+As they continued down the promenade, two familiar figures approached from the opposite direction.
+
+One was unmistakable.
+
+Obi-Wan Kenobi.
+
+Beside him walked a young Togruta Padawan.
+
+The two groups stopped as they recognized one another.
+
+Anakin smiled.
+
+"Hello, Master."
+
+Obi-Wan chuckled.
+
+"Oh, you don't have to call me that anymore, Anakin."
+
+He folded his arms with a grin.
+
+"Just call me Obi-Wan."
+
+Anakin nodded.
+
+"Hello, Obi-Wan."
+
+"There."
+
+Obi-Wan smiled.
+
+"Much better."
+
+He looked Anakin over.
+
+"So..."
+
+"How is life for you?"
+
+Anakin shrugged.
+
+"Pretty good."
+
+A faint smile crossed his face.
+
+"Well, as good as it can be during wartime, at least."
+
+He then noticed the young Togruta standing beside Obi-Wan.
+
+"Who is this?"
+
+He pointed politely toward her.
+
+The Togruta smiled brightly.
+
+"Hi."
+
+"My name is Ahsoka Tano."
+
+"I'm Obi-Wan's Padawan."
+
+Anakin extended his hand.
+
+"Nice to meet you, Ahsoka."
+
+She shook it enthusiastically.
+
+Anakin turned back toward Obi-Wan.
+
+"You have a new Padawan already?"
+
+Obi-Wan laughed.
+
+"Well..."
+
+"After you left the Order..."
+
+"...the Council thought that I was too bored."
+
+Anakin rolled his eyes.
+
+"I can imagine."
+
+"So they assigned me a new Padawan."
+
+Obi-Wan smiled toward Ahsoka.
+
+"She turned out to be just like you."
+
+Ahsoka tilted her head.
+
+"Should I be worried?"
+
+"Not very interested in following the rules."
+
+Ahsoka looked innocently toward the sky.
+
+"I have no idea what you're talking about."
+
+Obi-Wan continued.
+
+"A bit too mischievous."
+
+Ahsoka grinned.
+
+"I prefer 'creative.'"
+
+Obi-Wan sighed dramatically.
+
+"You see what I deal with?"
+
+He looked back at Anakin.
+
+"I'm sure you'll like her if you get to know her."
+
+Anakin nodded.
+
+"Looks like the Council did the right thing, then."
+
+Obi-Wan smiled.
+
+"So anyway..."
+
+"Have you still been training since you left?"
+
+"Yeah."
+
+Anakin nodded.
+
+"I'm still constantly training."
+
+His expression became more serious.
+
+"I'm hoping to be able to beat Dooku one day."
+
+Obi-Wan considered him for a moment.
+
+"Well..."
+
+"Let's see where you are at."
+
+He smiled.
+
+"Shall we spar?"
+
+Anakin looked toward Padmé.
+
+She smiled.
+
+"Just don't get yourself killed."
+
+"I won't."
+
+Padmé stepped back to give them room.
+
+Obi-Wan ignited his blue lightsaber.
+
+A familiar blue blade answered as Anakin ignited his own.
+
+Beside Obi-Wan, Ahsoka activated a green lightsaber.
+
+Then, to Anakin's surprise, she ignited a second, shorter yellow-green blade in her other hand.
+
+Anakin blinked.
+
+"You're a dual wielder?"
+
+Ahsoka chuckled.
+
+"I've been trained in the art of Jar'Kai."
+
+She spun both blades confidently.
+
+"It suits me well."
+
+"It feels natural with me."
+
+Anakin smiled.
+
+"Okay then."
+
+The friendly sparring match began.
+
+Ahsoka rushed forward first.
+
+She moved quickly, using both lightsabers in a coordinated flurry of attacks.
+
+Anakin immediately recognized skill and enthusiasm.
+
+He also recognized inexperience.
+
+After a brief exchange of blows, he redirected one blade, stepped inside her guard, and sent both of her lightsabers spinning harmlessly across the practice area.
+
+Ahsoka looked at her empty hands.
+
+"...Well."
+
+She laughed.
+
+"That could have gone better."
+
+She retrieved her lightsabers and walked over to stand beside Padmé.
+
+Watching Anakin and Obi-Wan resume their duel, she quietly said,
+
+"Wow."
+
+"That guy is good."
+
+Padmé smiled without taking her eyes off the duel.
+
+"Let's see how he performs against his former master."
+
+"Maybe that'll change your mind."
+
+Meanwhile, Obi-Wan and Anakin circled one another.
+
+Blue blades met with practiced precision.
+
+Their movements reflected years of shared training.
+
+Obi-Wan's defensive mastery repeatedly frustrated Anakin's attacks.
+
+Anakin answered with speed, strength, and increasingly refined technique.
+
+Minutes passed.
+
+Neither gained a decisive advantage.
+
+Ahsoka watched with growing fascination.
+
+"I've never seen Master Kenobi pushed like this."
+
+Padmé nodded.
+
+"Neither have I."
+
+The duel continued.
+
+Gradually, Anakin began applying greater pressure.
+
+His attacks flowed together more smoothly than before, forcing Obi-Wan farther and farther onto the defensive.
+
+Finally, Anakin spotted an opening.
+
+He slipped around Obi-Wan's guard with a precise strike.
+
+Obi-Wan's lightsaber flew from his hand.
+
+It landed several meters away.
+
+The duel was over.
+
+Obi-Wan looked down at his empty hand before breaking into a smile.
+
+"Wow, Anakin."
+
+"You really have become quite powerful now."
+
+He retrieved his lightsaber.
+
+"I think you're ready to face Dooku."
+
+Anakin's expression immediately became serious.
+
+"You think I can beat Dooku?"
+
+Obi-Wan nodded.
+
+"Based on what we know about him..."
+
+"...I can sincerely say that if you center yourself in the Force and fight well..."
+
+"...Dooku won't stand a chance against you."
+
+He raised a finger.
+
+"But don't underestimate him."
+
+"Don't be impulsive."
+
+"Don't get emotional."
+
+"As long as you can remain composed..."
+
+"...I think you will win."
+
+Anakin considered the advice carefully.
+
+"But will the Senate let me kill Dooku?"
+
+Obi-Wan folded his arms.
+
+"You can ask that you and your division be assigned as a special task force to hunt down and eliminate Dooku."
+
+"I think the Senate will welcome it."
+
+He looked thoughtful.
+
+"Personally..."
+
+"I think the Clone Wars will never end until Dooku is gone."
+
+"I feel he's the one holding the entire Confederacy together."
+
+"If we can get rid of him..."
+
+"...perhaps we can put an end to this war."
+
+Anakin smiled.
+
+"Excellent."
+
+"I'll see what I can do."
+
+Obi-Wan nodded.
+
+"I'll be there to vouch for you."
+
+"I think I'm in the best possible position to attest to your power."
+
+Anakin smiled appreciatively.
+
+"Thank you, Obi-Wan."
+
+The next day, Anakin and Padmé traveled to the Galactic Senate.
+
+As promised, Obi-Wan accompanied them.
+
+When the session began, Padmé invited both men into Naboo's senatorial pod.
+
+The presiding officer recognized Senator Amidala.
+
+Padmé stood.
+
+"Fellow Senators."
+
+She looked around the chamber.
+
+"General Skywalker would like to have the 479th Division be assigned as a special task force for the purpose of hunting down and eliminating Count Dooku."
+
+A senator requested the floor.
+
+"May we speak to General Skywalker directly, please?"
+
+Anakin stepped forward.
+
+"Hello, Senator."
+
+"I am here."
+
+The senator regarded him carefully.
+
+"By now you must understand that you are of great importance to the Republic."
+
+Anakin nodded.
+
+"If you are defeated by Dooku..."
+
+"...it would be a disaster for the Republic."
+
+The senator paused.
+
+"Are you certain that this will not happen?"
+
+Anakin answered honestly.
+
+"Not certain."
+
+"But still quite confident."
+
+Obi-Wan raised a hand.
+
+"May I please add something?"
+
+The senator nodded.
+
+"Go ahead, General Kenobi."
+
+Obi-Wan stepped forward.
+
+"I trained General Skywalker for ten years as my Padawan."
+
+"I watched him mature and grow in power."
+
+He looked toward Anakin.
+
+"Recently Commander Tano and I sparred with him to gauge his level."
+
+"He was able to disarm both of us."
+
+Obi-Wan spoke with complete confidence.
+
+"I firmly believe that General Skywalker has the competence to defeat Count Dooku."
+
+The Senate entered deliberations.
+
+Arguments were exchanged throughout the chamber.
+
+Some senators worried about risking one of the Republic's most successful generals.
+
+Others argued that if anyone possessed the ability to eliminate Count Dooku, it was Anakin Skywalker.
+
+Eventually the matter proceeded to a vote.
+
+One by one, the senatorial pods cast their decisions.
+
+When the tally was complete, the motion had passed.
+
+Republic General Anakin Skywalker and the 479th Division were officially authorized to pursue and kill Count Dooku.
+
+As soon as the session concluded, Anakin wasted no time.
+
+He returned to his command and immediately began preparing the 479th Division for its new mission.
+
+---
+
+# Part 11
+
+The Senate's authorization gave Republic General Anakin Skywalker and the 479th Division a single objective.
+
+Find Count Dooku.
+
+Destroy him.
+
+Anakin's first assumption was straightforward.
+
+"Cato Neimoidia," he said as he studied a holographic map aboard his flagship. "It was their headquarters not long ago. If Dooku is anywhere, that's where I'd expect him to be."
+
+The 479th Division set course immediately.
+
+Upon arriving in the Cato Neimoidian system, they encountered determined Separatist resistance. Battle droid forces attempted to prevent the Republic fleet from reaching the surface, but Anakin pressed the attack without hesitation.
+
+"All squadrons, advance."
+
+The clone pilots acknowledged in unison.
+
+"Yes, General."
+
+The Republic fleet broke through the blockade and began landing troops.
+
+The battle for Cato Neimoidia lasted several days.
+
+The 479th Division steadily pushed through one defensive line after another until they reached the former Separatist headquarters.
+
+Inside, they found little.
+
+The command centers had been stripped.
+
+Computers had been wiped.
+
+Most military equipment had been evacuated.
+
+Anakin looked around the empty command room.
+
+"They moved."
+
+A clone officer nodded.
+
+"It appears so, General."
+
+The Republic ultimately secured control of Cato Neimoidia, but the victory yielded little intelligence.
+
+Count Dooku had vanished.
+
+Back on Coruscant, Republic Intelligence began a galaxy-wide effort to locate the leader of the Confederacy.
+
+Agents gathered reports from countless worlds.
+
+Supply routes were analyzed.
+
+Intercepted transmissions were examined.
+
+Known Separatist sympathizers were watched closely.
+
+Months passed.
+
+At last, a pattern emerged.
+
+A senior intelligence officer stood before Chancellor Bail Organa and several military commanders.
+
+"Our latest assessment indicates that Count Dooku is most likely operating from Serenno."
+
+Anakin immediately leaned forward.
+
+"How confident are you?"
+
+"Confident enough to recommend a full-scale operation."
+
+The Chancellor looked around the room.
+
+"Then we proceed."
+
+Orders spread rapidly throughout the Grand Army of the Republic.
+
+Multiple clone legions were assembled.
+
+Jedi Generals prepared their forces.
+
+Republic General Anakin Skywalker and the 479th Division received a special assignment.
+
+While the Republic launched a massive assault across Serenno, Anakin would lead an infiltration directly into Dooku's headquarters.
+
+The invasion began at dawn.
+
+Republic warships emerged from hyperspace over Serenno.
+
+Thousands of clone troopers descended toward the planet while Separatist battle droids rushed to meet them.
+
+Across cities, forests, and industrial complexes, fierce fighting erupted.
+
+The thunder of artillery echoed across the world.
+
+Gunships roared overhead.
+
+Explosions lit the horizon.
+
+Amid the chaos, the 479th Division carried out its own mission.
+
+Anakin led his clone troopers toward the heavily fortified headquarters that served as Dooku's command center.
+
+The first defensive line consisted of battle droids supported by heavy blaster emplacements.
+
+"Forward!" Anakin shouted.
+
+The clones advanced.
+
+Blaster fire filled the corridors.
+
+One defense after another collapsed.
+
+Deeper inside, Magnaguards emerged with electrostaffs crackling.
+
+Anakin's lightsaber flashed through the air.
+
+One Magnaguard fell.
+
+Then another.
+
+The clone troopers poured blaster fire into the remaining droids until the hallway was secure.
+
+Further inside, droidekas unfolded behind energy shields.
+
+The rolling droids unleashed devastating streams of blaster fire.
+
+"EMP grenades!" a clone captain shouted.
+
+The grenades detonated.
+
+Several shields flickered.
+
+Anakin immediately charged through the opening, cutting down the disabled droidekas before they could recover.
+
+Room by room, corridor by corridor, the 479th fought its way toward the center of the complex.
+
+Eventually, the final blast door opened.
+
+Beyond it stood Count Dooku.
+
+The aging Sith Lord calmly ignited his crimson lightsaber.
+
+"So."
+
+His voice remained composed.
+
+"It seems you've finally found me."
+
+Anakin ignited his own blue blade.
+
+"This ends today."
+
+Dooku smiled faintly.
+
+"Many have said those words."
+
+"They all failed."
+
+The duel began.
+
+Dooku's elegant Makashi technique forced Anakin onto the defensive almost immediately.
+
+Every strike was measured.
+
+Every movement economical.
+
+Anakin answered with speed and relentless power.
+
+Blue and red blades clashed again and again.
+
+The room echoed with the sharp crack of lightsabers meeting.
+
+Dooku suddenly thrust out his free hand.
+
+Invisible Force energy hurled heavy machinery toward Anakin.
+
+Anakin caught the debris with the Force before it struck him.
+
+With a shout, he sent it crashing harmlessly aside.
+
+Dooku immediately answered with arcs of Force lightning.
+
+Blue-white energy surged across the chamber.
+
+Anakin crossed his lightsaber before him, absorbing the assault long enough to dive clear.
+
+The duel intensified.
+
+Minutes passed.
+
+Neither combatant gave ground willingly.
+
+Gradually, however, Dooku's movements began slowing.
+
+Anakin remained relentless.
+
+Remember Obi-Wan's advice, he told himself.
+
+Stay composed.
+
+Don't rush.
+
+Don't fight with anger.
+
+Wait for the opening.
+
+It came.
+
+Dooku attempted another precise thrust.
+
+Anakin turned the blade aside.
+
+He stepped inside Dooku's guard.
+
+His lightsaber swept across the Count's defenses.
+
+A final strike ended the duel.
+
+Count Dooku collapsed to the floor.
+
+The leader of the Confederacy of Independent Systems was dead.
+
+For a brief moment, Anakin stood silently.
+
+Then he deactivated his lightsaber.
+
+He looked toward his clone troopers.
+
+"We're not finished."
+
+"The battle is still outside."
+
+The clones immediately fell in behind him.
+
+"Move out!"
+
+The 479th Division rejoined the wider fighting across Serenno.
+
+The battle continued for several more days.
+
+Separatist resistance gradually weakened as Republic forces secured city after city.
+
+Eventually Serenno fell completely under Republic control.
+
+It was a major victory.
+
+But not a complete one.
+
+General Grievous escaped.
+
+So did the remaining members of the Separatist Council.
+
+Their surviving fleet fled into hyperspace before Republic forces could intercept them.
+
+The remnants of the Confederacy regrouped on Utapau.
+
+Within a secure chamber, the surviving leadership met to discuss their future.
+
+Nute Gunray broke the silence.
+
+"The Republic is getting stronger."
+
+He looked around the room.
+
+"I fear that if this war continues..."
+
+"...we will face the same fate as Count Dooku."
+
+General Grievous folded his mechanical arms.
+
+"And so what do you recommend?"
+
+Nute answered carefully.
+
+"Perhaps we can negotiate an end to this war."
+
+"That way..."
+
+"...we can all make it out of the war alive."
+
+Grievous tilted his head.
+
+"Will the Republic be reasonable?"
+
+Nute nodded slowly.
+
+"We should emphasize that Count Dooku was a Sith Lord."
+
+"And so now that he has been defeated..."
+
+"...the Republic has nothing to worry about from us."
+
+Grievous stared at him.
+
+"What are you suggesting?"
+
+Nute clasped his hands together.
+
+"We should paint ourselves as victims."
+
+He continued.
+
+"We say that the Confederacy began as a legitimate movement because we did not wish to be ruled by the corrupt Republic."
+
+"Then our cause was hijacked by Dooku, a Sith Lord, against our wills."
+
+He looked around the chamber.
+
+"And now that Dooku has been eliminated..."
+
+"...we emphasize the legitimate side of the Confederacy."
+
+"We say that we are relieved to finally be free from Sith manipulation."
+
+Grievous' photoreceptors narrowed.
+
+"You want us to betray our former leader?"
+
+"He was our master."
+
+Nute remained calm.
+
+"I'm just being practical and pragmatic."
+
+He met Grievous' gaze.
+
+"General..."
+
+"If you want the Confederacy to remain independent..."
+
+"...and if you want all of us to stay alive and stay out of prison..."
+
+"...you should do what I say."
+
+Grievous was silent for several moments.
+
+"So..."
+
+"We throw Dooku under the bus in order to ensure that we receive better treatment?"
+
+Nute nodded.
+
+"Exactly."
+
+"Dooku is dead already anyway."
+
+"What harm would come of this strategy?"
+
+Grievous slowly inclined his head.
+
+"...Good point."
+
+He looked around the chamber.
+
+"Very well, then."
+
+"We shall follow your lead."
+
+The surviving leaders of the Confederacy began preparing a formal request for peace negotiations with the Galactic Republic, hoping that the end of Count Dooku's leadership might offer them a path to end the war before the Republic destroyed what remained of their government.
+
+---
+
+# Part 12
+
+The death of Count Dooku dramatically changed the course of the war.
+
+Several weeks after the fall of Serenno, a formal diplomatic request arrived on Coruscant from the Confederacy of Independent Systems.
+
+The Galactic Senate convened to hear its contents.
+
+Supreme Chancellor Bail Organa stood before the assembled senators.
+
+"They say that they legitimately want to rule themselves independently from the Republic."
+
+The chamber listened attentively.
+
+"They seek only independence, not conquest."
+
+He continued reading the Confederacy's message.
+
+"They say they never wanted to attack Republic territory, but that the Sith Lord Count Dooku hijacked their movement and forced them to change their strategy from independence to conquest, which is why they had been attacking Republic territory over the past few years."
+
+Several senators quietly exchanged glances.
+
+"And they say that now that Count Dooku is dead, the Confederacy would like a chance to return to its original goal of independence."
+
+Bail lowered the datapad slightly.
+
+"They have promised to never attack the Republic again if the Republic agrees to end the war and formally grant independence to the Confederacy."
+
+The Senate chamber erupted into debate.
+
+One senator rose immediately.
+
+"This proposal is unacceptable."
+
+"The Confederacy devastated countless Republic worlds."
+
+"The surviving Separatist leadership should face justice, not receive the reward of independence."
+
+Another senator requested recognition.
+
+"How many more years are we prepared to fight?"
+
+"Our citizens are exhausted."
+
+"Our soldiers are exhausted."
+
+"If peace is genuinely possible, we owe it to the Republic to explore it."
+
+A third senator spoke.
+
+"I find it rather convenient that they now condemn Count Dooku."
+
+"He led them throughout the war."
+
+"Now that he is dead, they suddenly claim they were merely manipulated?"
+
+Across the chamber another voice answered.
+
+"Dooku was a Sith Lord."
+
+"We know that much beyond any doubt."
+
+"It is entirely possible that he twisted what began as a legitimate political movement into something far more destructive."
+
+The discussion continued for hours.
+
+Arguments were made.
+
+Objections were raised.
+
+Compromises were suggested.
+
+Finally, the Senate voted.
+
+The motion passed.
+
+The Republic would enter formal peace negotiations with the Confederacy of Independent Systems.
+
+The negotiations proved long and difficult.
+
+Delegations from both governments met repeatedly over the course of several months.
+
+Every issue required careful discussion.
+
+Borders.
+
+Trade.
+
+Military limitations.
+
+Recognition of sovereignty.
+
+Prisoners.
+
+Reparations.
+
+Neither side received everything it wanted.
+
+Eventually, however, both governments concluded that peace was preferable to another generation of war.
+
+A final meeting was arranged on the neutral world of Corellia.
+
+Representatives from both powers gathered in a grand conference hall.
+
+On behalf of the Galactic Republic stood Supreme Chancellor Bail Organa and Jedi General Yoda, representing the Republic's political and military leadership.
+
+Opposite them stood Viceroy Nute Gunray and General Grievous, representing the Confederacy's political and military leadership.
+
+One by one, the treaty's final pages were reviewed.
+
+Then the signing began.
+
+Each representative signed in turn.
+
+With the final signature completed, the treaty officially entered into force.
+
+The Galactic Republic formally acknowledged and recognized the Confederacy of Independent Systems as an independent, sovereign, and legitimate government with legal jurisdiction over the worlds under its control at the moment the treaty was signed.
+
+In return, the Confederacy agreed to substantial military disarmament.
+
+After years of devastating conflict, the Clone Wars were finally over.
+
+Peace slowly returned to the galaxy.
+
+The cloning facilities on Kamino were eventually shut down.
+
+The Republic later enacted legislation recognizing the rights of clone troopers.
+
+Every surviving clone received legal personhood and full Republic citizenship.
+
+Many chose to remain in military service.
+
+Others began entirely new civilian lives.
+
+Across former Confederacy territory, battle droid foundries greatly reduced production in accordance with the peace treaty.
+
+Many factories converted their assembly lines to manufacture civilian droids instead of military hardware.
+
+The galaxy entered a new political era.
+
+Two great governments now existed side by side.
+
+The Galactic Republic.
+
+The Confederacy of Independent Systems.
+
+Although relations remained cautious, the terrible cost of the Clone Wars left both sides determined to preserve the fragile peace.
+
+Few wished to see another galactic conflict.
+
+Several months after the peace treaty was signed, Padmé discovered that she was expecting a child.
+
+After giving the matter considerable thought, she sat down with Anakin one evening in their apartment on Coruscant.
+
+"I've made a decision."
+
+Anakin looked up from the table.
+
+"What is it?"
+
+"I think it's time for me to resign from the Senate."
+
+He studied her expression.
+
+"Are you sure?"
+
+Padmé nodded.
+
+"The Republic is finally at peace."
+
+"Chancellor Bail Organa is leading it well."
+
+"I don't think I'm as indispensable now as I was during the war."
+
+She smiled gently.
+
+"And honestly..."
+
+"I've been under constant stress for years."
+
+"The Senate."
+
+"The war."
+
+"Everything."
+
+"I'd like a break."
+
+She rested a hand on her abdomen.
+
+"I'd like us to focus on our family."
+
+Anakin smiled.
+
+"I support your decision."
+
+His own commission as a Republic General had concluded with the end of the war.
+
+Padmé finalized her resignation from the Senate the next day.
+
+For the first time in many years, neither of them carried military or senatorial responsibilities.
+
+Together with R2-D2 and C-3PO, they decided to spend more time at Varykino Villa.
+
+When they arrived, however, they found the estate strangely quiet.
+
+Anakin looked around.
+
+"Where is everyone?"
+
+The villa was completely empty.
+
+Then he noticed a handwritten note resting on the living room table.
+
+He picked it up and read aloud.
+
+"We have moved to a new home in Theed."
+
+"Our address is 284 Garden Plaza."
+
+"Come visit us when you're free!"
+
+"Love, Shmi."
+
+Anakin blinked.
+
+"Huh?"
+
+"Why did they move?"
+
+Padmé smiled knowingly.
+
+"That address is in the same neighborhood as my family."
+
+She laughed softly.
+
+"I suspect my family had something to do with this."
+
+Anakin folded the note.
+
+"Well..."
+
+"Let's go check it out."
+
+They traveled to Theed and found the address without difficulty.
+
+When the front door opened, Sola immediately recognized them.
+
+"Padmé!"
+
+She embraced her sister warmly.
+
+"It's so good to see you."
+
+Anakin looked past her into the house.
+
+The Lars family was there.
+
+So were Ruwee and Jobal.
+
+The house buzzed with conversation.
+
+"We're just visiting the Larses," Sola explained with a smile.
+
+Everyone gathered in the sitting room.
+
+One by one, the two families recounted everything that had happened during the previous months.
+
+They explained how they had unexpectedly met at Varykino Villa.
+
+How they had become friends.
+
+How the Naberries had introduced the Lars family to Theed.
+
+How Owen had decided he preferred city life.
+
+How the Naberries had helped them purchase their new home.
+
+When the story was finished, Anakin leaned back with a smile.
+
+"So that's what happened."
+
+Padmé laughed.
+
+"It all makes sense now."
+
+"I'm really glad everything worked out."
+
+While the adults talked, Ryoo and Pooja had found R2-D2.
+
+The astromech chirped as the two girls chased him through the house.
+
+R2 expertly rolled around furniture while the girls laughed behind him.
+
+Eventually it was time for Anakin and Padmé to return to Varykino.
+
+Pooja hugged R2 affectionately.
+
+She looked up hopefully.
+
+"Can we keep R2?"
+
+Anakin smiled apologetically.
+
+"Uh..."
+
+"No, sorry."
+
+Sola chuckled.
+
+"We'll get you your own astromech when you're a bit older."
+
+The two girls looked disappointed.
+
+"Aww..."
+
+Even so, they reluctantly let R2 roll back to Anakin.
+
+Life gradually settled into a peaceful routine.
+
+Anakin and Padmé returned to Varykino Villa with R2-D2 and C-3PO.
+
+Padmé's pregnancy progressed smoothly over the following months.
+
+During a routine medical appointment in Theed, the physician completed another examination before smiling.
+
+"I have some news."
+
+Anakin and Padmé looked at one another.
+
+"You're having twins."
+
+Anakin's eyes widened.
+
+"Wow."
+
+"We are very fertile."
+
+Padmé burst into laughter.
+
+On the journey home, Anakin grew thoughtful.
+
+"You know..."
+
+"Owen once told me that he and Beru are having problems with infertility."
+
+"It seems that they can't have a baby."
+
+He glanced toward Padmé.
+
+"Maybe we should..."
+
+"...let them adopt one of our children?"
+
+Padmé considered the idea quietly.
+
+After a long pause, she smiled.
+
+"Nah."
+
+"These are ours."
+
+Anakin nodded.
+
+"I thought you might say that."
+
+He smiled.
+
+"Looks like they're going to have to find another way then."
+
+Not long afterward, Padmé gave birth to healthy twins.
+
+They named their son Luke.
+
+Their daughter was named Leia.
+
+The years that followed were peaceful ones.
+
+At Varykino Villa, Anakin and Padmé devoted themselves to raising their children.
+
+R2-D2 eagerly accompanied Luke and Leia on countless adventures around the estate, while C-3PO patiently answered endless questions and watched over them whenever he could.
+
+In Theed, the Lars family settled comfortably into their new home.
+
+Their neighborhood was made all the warmer by the nearby presence of the Naberries, whose friendship had become as strong as family.
+
+The Republic and the Confederacy maintained the peace established on Corellia.
+
+Though disagreements between the two governments remained, both remembered the terrible cost of war and worked to avoid another.
+
+Surrounded by family, friends, and the quiet beauty of Naboo, the Skywalkers built the life they had long hoped for.
+
+And for the first time in many years, the galaxy looked toward the future with hope.
