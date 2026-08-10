@@ -597,7 +597,7 @@ It was personal.
 
 —
 
-### **A Spark in the Dark**
+**A Spark in the Dark**
 
 A small Rebel corvette tore through space, engines straining.
 
@@ -633,7 +633,7 @@ A call for help.
 
 —
 
-### **Naboo**
+**Naboo**
 
 Naboo had not forgotten how to be peaceful.
 
@@ -659,7 +659,7 @@ Anakin stood in the distance, watching.
 
 —
 
-### **The Message**
+**The Message**
 
 That night, R2-D2 projected a flickering hologram.
 
@@ -679,7 +679,7 @@ Anakin closed his eyes.
 
 —
 
-### **Han Solo**
+**Han Solo**
 
 Help came from an unexpected direction.
 
@@ -705,7 +705,7 @@ Then: “Alright. I’m in.”
 
 —
 
-### **The First Attempt**
+**The First Attempt**
 
 The Death Star moved into position.
 
@@ -735,7 +735,7 @@ But Anakin didn’t smile.
 
 —
 
-### **The Second Attempt**
+**The Second Attempt**
 
 They did.
 
@@ -753,7 +753,7 @@ Many pilots didn’t return.
 
 —
 
-### **The Third Attempt**
+**The Third Attempt**
 
 “Why isn’t it working?” an Imperial officer demanded.
 
@@ -773,7 +773,7 @@ On Naboo, the sky itself seemed to hold its breath.
 
 —
 
-### **A Plan Born of Desperation**
+**A Plan Born of Desperation**
 
 In a dim command room, Luke stared at the schematics.
 
@@ -807,7 +807,7 @@ Luke met his father’s gaze.
 
 —
 
-### **The Final Attempt**
+**The Final Attempt**
 
 The Death Star loomed larger than ever.
 
@@ -869,7 +869,7 @@ Then, with a flicker of dark power, he vanished.
 
 —
 
-### **The End of the Death Star**
+**The End of the Death Star**
 
 The Death Star exploded in a silent, blinding bloom.
 
@@ -881,7 +881,7 @@ The planet still stood.
 
 —
 
-### **Aftermath**
+**Aftermath**
 
 Celebration spread across the Rebel ranks—but it was different from the stories of old victories.
 
@@ -935,7 +935,7 @@ It sharpened it.
 
 —
 
-### **A Galaxy Under Pressure**
+**A Galaxy Under Pressure**
 
 The Empire struck back with precision and fury.
 
@@ -959,7 +959,7 @@ A leader.
 
 —
 
-### **The Rebel Command**
+**The Rebel Command**
 
 In a hidden command center beneath Naboo’s surface, Anakin addressed a gathered group—pilots, operatives, smugglers.
 
@@ -985,7 +985,7 @@ Neither of them said it yet.
 
 —
 
-### **Luke’s Training**
+**Luke’s Training**
 
 Far from the front lines, Luke trained.
 
@@ -1005,7 +1005,7 @@ Luke exhaled. “That’s not helpful.”
 
 —
 
-### **The Hunter Arrives**
+**The Hunter Arrives**
 
 They came without warning.
 
@@ -1063,7 +1063,7 @@ And then he was gone.
 
 —
 
-### **Escape and Loss**
+**Escape and Loss**
 
 Luke ran.
 
@@ -1079,7 +1079,7 @@ Virex turned slightly. “My master?”
 
 —
 
-### **A Ghost’s Warning**
+**A Ghost’s Warning**
 
 Back on Naboo, Luke found Anakin.
 
@@ -1117,7 +1117,7 @@ Luke looked at him. “You’re sending me away?”
 
 —
 
-### **Dagobah**
+**Dagobah**
 
 Dagobah was… not what Luke expected.
 
@@ -1133,7 +1133,7 @@ Yoda chuckled. “We shall see.”
 
 —
 
-### **The Falcon**
+**The Falcon**
 
 Meanwhile, the war dragged on.
 
@@ -1165,7 +1165,7 @@ Neither of them mentioned it afterward.
 
 —
 
-### **The Empire Advances**
+**The Empire Advances**
 
 The Empire adapted.
 
@@ -1185,7 +1185,7 @@ Anakin stood with her.
 
 —
 
-### **Trials on Dagobah**
+**Trials on Dagobah**
 
 Luke’s training intensified.
 
@@ -1203,7 +1203,7 @@ And always, the sense that the war was slipping further from their grasp.
 
 —
 
-### **A Dark Confrontation**
+**A Dark Confrontation**
 
 It came suddenly.
 
@@ -1261,7 +1261,7 @@ The war had lasted long enough that hope no longer arrived as a surge—it endur
 
 —
 
-### **Dagobah: The Last Lesson**
+**Dagobah: The Last Lesson**
 
 Mist curled low over the swamps.
 
@@ -1303,7 +1303,7 @@ Luke stood slowly.
 
 —
 
-### **Return to Naboo**
+**Return to Naboo**
 
 Naboo still burned—but it had not fallen.
 
@@ -1323,7 +1323,7 @@ Anakin met his eyes. “Then we end it.”
 
 —
 
-### **The Plan**
+**The Plan**
 
 The Rebel Alliance gathered its remaining strength.
 
@@ -1363,7 +1363,7 @@ He looked at them—both of them.
 
 —
 
-### **Endor**
+**Endor**
 
 The forest moon was alive—dense, watchful.
 
@@ -1387,7 +1387,7 @@ Leia smiled faintly. “They’re already using us.”
 
 —
 
-### **The Assault Begins**
+**The Assault Begins**
 
 In orbit, the Rebel fleet arrived.
 
@@ -1403,7 +1403,7 @@ The battle began.
 
 —
 
-### **Into the Lion’s Den**
+**Into the Lion’s Den**
 
 A stolen shuttle slipped through the chaos.
 
@@ -1425,7 +1425,7 @@ Toward the throne room.
 
 —
 
-### **The Throne Room**
+**The Throne Room**
 
 The doors opened.
 
@@ -1469,7 +1469,7 @@ The room exploded into motion.
 
 —
 
-### **The Final Duel**
+**The Final Duel**
 
 Virex struck first—fast, precise.
 
@@ -1555,7 +1555,7 @@ Darth Virex fell.
 
 —
 
-### **The Emperor’s End**
+**The Emperor’s End**
 
 Sidious did not retreat.
 
@@ -1617,7 +1617,7 @@ Gone.
 
 —
 
-### **Escape**
+**Escape**
 
 Alarms blared instantly.
 
@@ -1651,7 +1651,7 @@ The hangar exploded behind them as they lifted off.
 
 —
 
-### **The Death Star Falls**
+**The Death Star Falls**
 
 Outside, the battle reached its peak.
 
@@ -1677,7 +1677,7 @@ The core ignited.
 
 —
 
-### **End**
+**End**
 
 The shuttle burst free of the station just as the Death Star erupted into light.
 
@@ -1691,7 +1691,7 @@ Its enforcer—gone.
 
 —
 
-### **Aftermath**
+**Aftermath**
 
 On Endor, celebration spread.
 
@@ -1731,7 +1731,7 @@ It came slowly—unevenly—like dawn through smoke.
 
 —
 
-### **A Galaxy Without an Empire**
+**A Galaxy Without an Empire**
 
 The fall of the Empire left behind silence… and ruin.
 
@@ -1757,7 +1757,7 @@ A murmur rippled through the chamber.
 
 —
 
-### **The Galactic Union**
+**The Galactic Union**
 
 Padmé’s vision was radical—and, to many, necessary.
 
@@ -1779,7 +1779,7 @@ The **Galactic Union** was born.
 
 —
 
-### **Rebuilding the Ruins**
+**Rebuilding the Ruins**
 
 Aid spread outward from the core worlds.
 
@@ -1803,7 +1803,7 @@ Padmé did not hesitate.
 
 —
 
-### **The Queen Returns**
+**The Queen Returns**
 
 Theed Palace rose again—stone by stone, arch by arch—rebuilt not just as a symbol, but as a promise.
 
@@ -1825,7 +1825,7 @@ And he did not intend to leave it.
 
 —
 
-### **Coruscant and the Road Not Taken**
+**Coruscant and the Road Not Taken**
 
 There had been calls—many of them.
 
@@ -1855,7 +1855,7 @@ It was only one voice among many.
 
 —
 
-### **The Last of the Jedi**
+**The Last of the Jedi**
 
 The cost of Order 66 lingered.
 
@@ -1875,7 +1875,7 @@ He tried to build what should have been.
 
 —
 
-### **Dagobah: A New Beginning**
+**Dagobah: A New Beginning**
 
 On Dagobah, where Yoda had lived and died, Luke established a new Jedi academy.
 
@@ -1901,7 +1901,7 @@ And differently.
 
 —
 
-### **A New Jedi Philosophy**
+**A New Jedi Philosophy**
 
 One evening, beneath the thick canopy, Luke spoke with Anakin.
 
@@ -1929,7 +1929,7 @@ But so had everything worth doing.
 
 —
 
-### **Family on Naboo**
+**Family on Naboo**
 
 Life, at last, began to resemble something like peace.
 
@@ -1967,7 +1967,7 @@ A special chamber within the palace was built just for him—though he preferred
 
 —
 
-### **The Millennium Falcon**
+**The Millennium Falcon**
 
 The Falcon never stopped flying.
 
@@ -1993,7 +1993,7 @@ He didn’t.
 
 —
 
-### **A Living Legacy**
+**A Living Legacy**
 
 Luke visited when he could.
 
@@ -2059,7 +2059,7 @@ And yet, over time, it became home.
 
 —
 
-### **The Hidden Years**
+**The Hidden Years**
 
 Padmé had once lived in grandeur.
 
@@ -2092,7 +2092,7 @@ Especially not when rumors spread that Padmé Amidala herself still lived somewh
 
 —
 
-### **A Planet Under Siege**
+**A Planet Under Siege**
 
 The punishment came in waves.
 
@@ -2127,7 +2127,7 @@ And within it all, life continued.
 
 —
 
-### **Living Together**
+**Living Together**
 
 The quarters were modest.
 
@@ -2155,7 +2155,7 @@ And in that simplicity, they quietly rediscovered each other.
 
 —
 
-### **After the Empire**
+**After the Empire**
 
 When the Empire finally fell, the galaxy celebrated.
 
@@ -2177,7 +2177,7 @@ And she did.
 
 —
 
-### **The Queen Returns Home**
+**The Queen Returns Home**
 
 At first, Padmé and Anakin returned quietly to their old hidden residence.
 
@@ -2200,7 +2200,7 @@ Permanently.
 
 —
 
-### **The End of Elections**
+**The End of Elections**
 
 The support was overwhelming.
 
@@ -2238,7 +2238,7 @@ And ultimately, she accepted.
 
 —
 
-### **The Palace Decision**
+**The Palace Decision**
 
 Even then, she hesitated about leaving the secluded residence.
 
@@ -2274,7 +2274,7 @@ Padmé smiled faintly. “I’m thinking about where to even begin.”
 
 —
 
-### **The First Planning Session**
+**The First Planning Session**
 
 A week later, the surviving architects of Naboo gathered within a partially restored chamber of the palace.
 
@@ -2315,7 +2315,7 @@ Padmé nodded.
 
 —
 
-### **A Different Kind of Palace**
+**A Different Kind of Palace**
 
 The discussions stretched over weeks.
 
@@ -2353,7 +2353,7 @@ One chamber.
 
 —
 
-### **Padmé and Anakin’s Chamber**
+**Padmé and Anakin’s Chamber**
 
 The design became surprisingly collaborative.
 
@@ -2385,7 +2385,7 @@ Just a room meant to be lived in.
 
 —
 
-### **Leia and Han**
+**Leia and Han**
 
 Leia’s chamber planning proved… more complicated.
 
@@ -2423,7 +2423,7 @@ He pretended to study the blueprint very seriously. “Just making sure that was
 
 —
 
-### **Chewbacca’s Chamber**
+**Chewbacca’s Chamber**
 
 The architects were entirely unprepared for Chewbacca.
 
@@ -2455,7 +2455,7 @@ The workers took this as high praise.
 
 —
 
-### **Luke’s Place**
+**Luke’s Place**
 
 Luke visited periodically during construction, usually between journeys to and from Dagobah.
 
@@ -2473,7 +2473,7 @@ Whenever he visited, palace staff quietly prepared the same chamber for him auto
 
 —
 
-### **Balancing Palace and Home**
+**Balancing Palace and Home**
 
 One of the greatest challenges was balancing public symbolism with private practicality.
 
@@ -2496,7 +2496,7 @@ More a living household.
 
 —
 
-### **Completion**
+**Completion**
 
 Years after reconstruction began, the final scaffolding came down.
 
