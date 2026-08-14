@@ -1232,6 +1232,1352 @@ With his commission complete and his command established, Anakin prepared to lea
 
 ---
 
+# Clovis Interlude: Part 1
+
+Not long after Anakin Skywalker received his commission as a Republic General, an urgent summons arrived at the apartment he shared with Padmé Amidala.
+
+Anakin read the message twice.
+
+"Oh no," he muttered. "What have we done?"
+
+Padmé looked over from her desk.
+
+"I don't think we've done anything wrong."
+
+She stood and took the datapad from him.
+
+"Let's just go see what they have to say."
+
+The following day, Anakin and Padmé entered a small meeting room inside the Senate building. Several senators were already waiting for them.
+
+At the head of the table sat Senator Adrian Dabello, chairman of the Senate Intelligence Oversight Committee.
+
+Dabello studied the two of them for a moment before speaking.
+
+"Relax, Senator Amidala and General Skywalker. You have done nothing wrong."
+
+Anakin's shoulders relaxed slightly.
+
+Padmé gave him a brief glance.
+
+Dabello continued.
+
+"This meeting is not about you."
+
+He paused.
+
+"It's about... Senator Rush Clovis."
+
+Anakin and Padmé exchanged a look.
+
+Anakin leaned forward.
+
+"Clovis?"
+
+Dabello nodded.
+
+"Recently, our committee has found leads suggesting that Senator Clovis may be collaborating with the Separatists."
+
+Anakin's expression immediately became serious.
+
+"Then why are we the ones called in instead of him?"
+
+Dabello turned toward Padmé.
+
+"Senator Amidala, it is my understanding that you and Senator Clovis have been quite close in the past, correct?"
+
+Padmé hesitated only briefly.
+
+"Yes. We were."
+
+Dabello folded his hands.
+
+"We called you in because we want you to investigate Senator Clovis."
+
+Padmé listened carefully.
+
+"Spy on him. Figure out what he is actually up to, and whether he is collaborating with the Separatists."
+
+Anakin frowned.
+
+"Why us?"
+
+"I believe that Senator Amidala's personal past relationship with Senator Clovis will make it significantly easier for her to get close to him in order to uncover the truth."
+
+Padmé considered the request.
+
+Then she nodded.
+
+"Very well, Senator Dabello. We accept this mission."
+
+Dabello's expression remained stern.
+
+"Remember, Senator. The closer you can get to him, the better."
+
+Padmé nodded.
+
+"I understand. I will do whatever is necessary to succeed in my mission."
+
+Anakin immediately added,
+
+"Then I'll do whatever I have to do to protect her."
+
+Dabello gave them both a firm nod.
+
+"Thank you, Senator Amidala and General Skywalker. Good luck to both of you."
+
+The meeting ended shortly afterward.
+
+As Anakin and Padmé walked back toward their apartment, neither spoke for several minutes.
+
+Eventually Anakin broke the silence.
+
+"What exactly does Dabello mean by 'quite close in the past'?"
+
+Padmé slowed her pace.
+
+"Well..."
+
+She gave him an apologetic look.
+
+"You won't like hearing this, but... we were romantically involved with each other in the past."
+
+Anakin stopped walking.
+
+"You were?"
+
+"Yes."
+
+She continued before he could respond.
+
+"Later on, I decided I wanted to be strictly professional with him. He didn't take it very well."
+
+Anakin stared at her.
+
+"Are you serious?!"
+
+Padmé sighed.
+
+"Yes."
+
+"Why would Dabello assign this mission to us, then?"
+
+His voice became increasingly incredulous.
+
+"He thinks it's okay for me to just watch you try to get close to your ex-boyfriend again just for a mission?"
+
+Padmé shook her head.
+
+"Well, for one, Adrian doesn't know that we are married or in a relationship with each other."
+
+Anakin frowned.
+
+"How do you know?"
+
+"Think about who knows."
+
+She began counting on her fingers.
+
+"I know. You know. The droids know. Your mother knows. The Lars family knows. And now the Jedi Council also knows."
+
+She lowered her hand.
+
+"But the Jedi Council isn't exactly the type of institution to go gossiping around, so I doubt they told anyone. They probably kept it within the Jedi Order."
+
+Anakin slowly nodded.
+
+"That means the Senate doesn't know."
+
+"Correct."
+
+"The Republic doesn't know."
+
+"Correct."
+
+"The galaxy at large doesn't know."
+
+"Exactly."
+
+Anakin thought about that for a moment.
+
+"So if Dabello knew that we were married, then do you think he still would have assigned this mission to us?"
+
+"Probably not."
+
+Padmé gave him a troubled look.
+
+"Assigning such a mission to us while knowing we're married is probably unethical."
+
+She shrugged slightly.
+
+"But alas, he doesn't know, so..."
+
+Anakin frowned.
+
+"Then why did you accept the mission?"
+
+Padmé looked at him.
+
+"You could have just told Dabello that we're married and that the mission would be too uncomfortable for us."
+
+She remained silent.
+
+"It's not like they can do anything to us if they find out. I'm already no longer a Jedi."
+
+"I know."
+
+"Then why?"
+
+Padmé took a breath.
+
+"Because I actually genuinely agree with Dabello on one point."
+
+"Which is?"
+
+"That I am in the best possible position to get close to Clovis, gain his trust, and find out what he's really up to."
+
+She continued walking.
+
+"Nobody else has the personal history and closeness that I have with him."
+
+Anakin followed.
+
+"So you agreed because you think you'll be the most effective person to spy on him?"
+
+"More or less, yes."
+
+"But what about us?"
+
+He sounded genuinely troubled now.
+
+"What about this whole ex-boyfriend thing?"
+
+Padmé stopped and faced him.
+
+"Ani..."
+
+She took his hand.
+
+"Duty comes first."
+
+Her expression softened.
+
+"Especially during wartime."
+
+Anakin looked away.
+
+"I know."
+
+They continued toward their apartment.
+
+Later that evening, after they had returned home, Anakin sat across from Padmé.
+
+"So, are we going to talk about how this will all work?"
+
+Padmé looked at him.
+
+"Set some ground rules or something?"
+
+"Yes."
+
+She nodded.
+
+"I'm thinking this too."
+
+She stood.
+
+"Hang on. Give me a second. I will prepare something for you."
+
+A few minutes later, Padmé returned carrying a datapad.
+
+She handed it to Anakin.
+
+"Read this."
+
+Anakin activated the display.
+
+A document appeared.
+
+**What You Should Know**
+
+**1. I love you.**
+
+**2. Clovis and I had a romantic relationship many years ago.**
+
+**3. Clovis is still romantically interested in me.**
+
+**4. I am not romantically interested in him at all right now.**
+
+**5. Clovis does not know about us. He most likely thinks we are just mission partners.**
+
+Anakin continued reading.
+
+**What I Will Have To Do**
+
+**1. I will have to pretend to be interested in him or at least egg him on, in order to complete the mission.**
+
+**2. The point of the plan is to leverage my personal past ties and closeness to Clovis to uncover the truth.**
+
+**3. If we reveal that we are married then Clovis will realize I am just playing him instead of being sincere, and will immediately stop cooperating with our investigation.**
+
+**4. If the mission requires it, we may end up kissing or doing other things that suggest that we are romantically interested in each other. Again, it's all just for the mission, and they don't mean anything. You know where my true feelings lie, and I will be very clear about it right now.**
+
+Anakin's expression became increasingly uncomfortable.
+
+He continued.
+
+**What I Need From You**
+
+**1. If we do end up having to kiss or something else, do NOT intervene. Let everything play out to hold the pretense. Only if he truly does something absolutely unacceptable or crosses the line, such as something irreversible to me, then you may intervene.**
+
+**2. No matter what, don't get jealous. There is nothing for you to be jealous about. Everything I may have to do with Clovis during this mission, we have done ourselves in the past and will continue to do in the future, whether that's kissing, hugging, holding hands, etc.**
+
+**3. If you ever feel the need to reveal our marriage, make sure it's worth the damage to the mission it causes, otherwise I'm going to be mad at you for sabotaging our carefully planned investigation.**
+
+Anakin stared at the screen for several seconds before continuing.
+
+**What I Will Promise You**
+
+**1. Once the mission is over I promise we will go back to our old arrangements.**
+
+**2. I won't intentionally initiate anything proactive with Clovis. He will always have to make the first move. I may reciprocate if it helps the mission, but I won't initiate anything.**
+
+Anakin read the entire document once.
+
+Then again.
+
+Then a third time, slowly.
+
+When he finally lowered the datapad, he sighed deeply.
+
+"Fine."
+
+Padmé watched him.
+
+"I don't like this at all, but... I agree to this."
+
+"Good."
+
+She smiled faintly.
+
+"You're not supposed to like it."
+
+She stepped closer.
+
+"But it's for the good of the Republic."
+
+Anakin looked down at the datapad again.
+
+"Is this... supposed to be a contract?"
+
+"You can think of it as one."
+
+He raised an eyebrow.
+
+"Do I need to sign it?"
+
+"Yes."
+
+Anakin looked around.
+
+"Where's the pen?"
+
+Padmé smiled.
+
+"Not with ink."
+
+She stepped closer.
+
+"We sign this with a kiss."
+
+Anakin smiled despite himself.
+
+"That's an unusual contract."
+
+Padmé wrapped her arms around him.
+
+"It's a very important contract."
+
+They shared a passionate kiss, sealing their agreement without the need for ink or signatures.
+
+When they finally separated, Padmé smiled.
+
+"That's the last kiss you'll get until this is all over."
+
+Anakin stared at her.
+
+For several seconds, he said nothing.
+
+Then he slowly nodded.
+
+"Understood."
+
+Padmé picked up the datapad and set it aside.
+
+"The operation is ready to begin."
+
+Anakin took a deep breath.
+
+Somewhere in the Senate, Senator Rush Clovis was waiting, unaware that the Republic had begun investigating him and that the senator assigned to uncover the truth was someone with whom he shared a complicated personal history.
+
+The investigation was about to begin.
+
+---
+
+# Clovis Interlude: Part 2
+
+The next day, Padmé invited Senator Rush Clovis to a meal at a restaurant on Coruscant.
+
+She arrived first and took a table near the center of the restaurant. Clovis soon joined her.
+
+Neither Anakin nor R2-D2 was present.
+
+C-3PO, however, had accompanied Padmé and was positioned at a discreet distance, carefully observing the two senators while doing his best to appear as though he was simply another droid attending to his duties.
+
+Padmé smiled warmly at Clovis.
+
+"It's been good to see you again, Clovis."
+
+She lowered her voice.
+
+"I didn't realize how lonely it was until tonight."
+
+Clovis smiled.
+
+"Perhaps I can do more to ease your loneliness, once I return from Cato Neimoidia."
+
+Padmé raised an eyebrow.
+
+"Ah, you're taking a pleasure trip?"
+
+"Hardly."
+
+Clovis leaned back.
+
+"I'm going there to put the fear of Scipio in those overgrown Trade Federation grumps. You know how they are. They love to borrow money from the Banking Clan, but they hate to pay it back."
+
+Padmé gave a small laugh.
+
+"Maybe you can say a few words on my behalf. I'm on the Holonet with the Neimoidians every day, asking for trade concessions, but I can't ever seem to make progress."
+
+Clovis considered this.
+
+"I've got an idea."
+
+Padmé looked at him expectantly.
+
+"Come with me to Cato Neimoidia. Speak to them in person. I have leverage from the Banking Clan. You have diplomatic contacts. We can help each other."
+
+Padmé tilted her head.
+
+"Are you inviting me for political reasons, or..."
+
+She paused deliberately.
+
+"...because you want us to be 'friends' again?"
+
+Clovis smiled.
+
+"Both, of course."
+
+His expression became more personal.
+
+"Although I'm far more interested in your 'friendship' than your politics."
+
+Padmé allowed herself a small smile.
+
+"In that case, I'll be happy to go with you."
+
+She held his gaze.
+
+"It'll be like... old times."
+
+Clovis leaned closer.
+
+"On the contrary."
+
+His smile widened.
+
+"I hope it'll be much better than old times."
+
+Padmé returned his smile while keeping her thoughts carefully hidden.
+
+The invitation had been accepted.
+
+The first stage of the investigation was underway.
+
+Elsewhere in Coruscant, Anakin was preparing for his own part of the mission.
+
+The 479th Division was assembled near its temporary staging area when Anakin approached Clone Commander Seb.
+
+"Commander Seb, take good care of our division."
+
+Seb stood at attention.
+
+"Yes, my General."
+
+One of the clone troopers looked toward Anakin.
+
+"Are we not coming with you?"
+
+Anakin shook his head.
+
+"No. This is an intelligence operation, not an active war campaign."
+
+He looked across the assembled soldiers.
+
+"We don't want too many people. That would make the operation too suspicious."
+
+R2-D2 beeped from beside him.
+
+Anakin looked down.
+
+"Yes, R2. Of course you're coming with us."
+
+The astromech chirped again.
+
+"Threepio will come too, once he gets back from the restaurant."
+
+R2 gave another satisfied series of beeps.
+
+Anakin nodded.
+
+"Exactly."
+
+Several hours later, Anakin, Padmé, Clovis, R2-D2, and C-3PO gathered near their ship.
+
+Padmé and Clovis walked toward the boarding ramp together.
+
+They were holding hands.
+
+Anakin noticed.
+
+A faint feeling of unease stirred inside him.
+
+He remembered Padmé's document.
+
+Don't get jealous.
+
+There is nothing for you to be jealous about.
+
+Everything I may have to do with Clovis during this mission... it's all just for the mission.
+
+Anakin took a slow breath.
+
+Right.
+
+The contract.
+
+He would follow it.
+
+They boarded the ship.
+
+Anakin settled into the pilot's seat while R2-D2 took his usual position.
+
+Padmé and Clovis entered the passenger area.
+
+Just before the ship was ready for departure, Anakin happened to glance over his shoulder.
+
+Clovis leaned toward Padmé and kissed her on the cheek.
+
+Anakin's eyes widened.
+
+For a brief instant, anger flared inside him.
+
+His hands tightened around the controls.
+
+Then he closed his eyes and took a slow breath.
+
+He remembered the agreement.
+
+Do not intervene.
+
+Let everything play out.
+
+Padmé immediately noticed the tension in him.
+
+She looked toward the cockpit and gave Anakin a quick, grateful glance.
+
+Anakin saw it.
+
+He understood.
+
+She was thanking him for keeping his promise.
+
+He exhaled slowly.
+
+The ship lifted away from Coruscant.
+
+Once they were safely in the upper atmosphere, Anakin settled back into his seat.
+
+The others began preparing for the journey to Cato Neimoidia.
+
+For a while, everything remained quiet.
+
+Then Anakin began singing.
+
+Padmé looked up in surprise.
+
+It was a love song.
+
+In Huttese.
+
+Clovis glanced toward the cockpit.
+
+He clearly didn't understand a word.
+
+After listening for a moment, he shrugged and returned his attention to the journey.
+
+As far as Clovis was concerned, Anakin was simply entertaining himself.
+
+Padmé, however, knew exactly what was happening.
+
+She didn't understand Huttese either.
+
+But she had heard Anakin sing this exact song before.
+
+Many times.
+
+She immediately recognized it.
+
+She pressed her lips together, desperately suppressing a laugh.
+
+Anakin continued singing with exaggerated sincerity.
+
+Padmé glanced toward him again.
+
+He gave her the faintest possible smirk.
+
+She shook her head.
+
+He was being petty.
+
+But strangely enough, it was helping.
+
+Anakin realized that this might actually be the best possible way to survive the mission.
+
+He couldn't interfere.
+
+He couldn't reveal their marriage.
+
+He couldn't sabotage Padmé's investigation.
+
+And he certainly couldn't complain every time Clovis showed her affection.
+
+But nobody had said he couldn't sit in the cockpit and sing an outrageously romantic love song in a language Clovis couldn't understand.
+
+So Anakin continued singing.
+
+Padmé quietly smiled to herself.
+
+The ship sped through hyperspace toward Cato Neimoidia, carrying a senator investigating a possible Separatist conspiracy, a Republic General tasked with protecting her, and two droids who knew far more about the true nature of their relationship than the senator they were traveling with.
+
+The operation had begun in earnest.
+
+---
+
+# Clovis Interlude: Part 3
+
+The ship dropped out of hyperspace above Cato Neimoidia, revealing the spectacular bridge cities of the Neimoidian world suspended high above the clouds.
+
+Waiting to receive them was Senator Lott Dod.
+
+"Senator Amidala. Senator Clovis. Welcome to Cato Neimoidia."
+
+Padmé returned the greeting politely.
+
+"Senator Dod."
+
+Clovis stepped forward.
+
+"Thank you for receiving us."
+
+Dod smiled thinly.
+
+"I believe we have much to discuss."
+
+Padmé was escorted toward the quarters prepared for her while Clovis accompanied Dod elsewhere in the palace.
+
+Once Padmé was out of sight, Dod's pleasant expression disappeared.
+
+Inside a private conference chamber, a hologram of Poggle the Lesser appeared.
+
+Clovis stood opposite Dod.
+
+"The Banking Clan has already extended considerable credit," Clovis said. "You are asking for even more."
+
+Poggle's insectoid face remained expressionless.
+
+"The new droid foundry requires additional funding."
+
+Dod nodded.
+
+"The amount of credits required is substantial."
+
+Clovis shook his head.
+
+"No."
+
+Dod's eyes narrowed.
+
+"You refuse?"
+
+"I refuse to lend the Banking Clan's resources to finance another massive expansion of the Separatist war machine."
+
+Poggle leaned closer to the hologram.
+
+"You misunderstand your position."
+
+"No," Clovis replied. "I understand it perfectly."
+
+He turned away.
+
+"You will not receive another credit from me."
+
+Elsewhere in the palace, Padmé changed into an elegant dress for the evening's dinner.
+
+She waited until she had an opportunity to leave her quarters.
+
+"I think I'll take a walk."
+
+Her guards did not object.
+
+Padmé carefully made her way through the palace corridors, eventually reaching a location from which she could discreetly observe the conference chamber.
+
+The door was partially open.
+
+Inside, Dod, Clovis, and Poggle were examining holographic blueprints.
+
+Padmé watched carefully.
+
+Then the blueprints vanished.
+
+The holographic display shut down.
+
+Padmé frowned.
+
+"They know someone is watching."
+
+She quickly moved away.
+
+By the time Clovis emerged from the chamber, Padmé was already walking back toward her quarters.
+
+Dod watched the two of them disappear down the corridor.
+
+Poggle's hologram remained active.
+
+"She is Clovis' weakness."
+
+Dod nodded slowly.
+
+"Yes."
+
+Poggle's expression hardened.
+
+"Then we shall use her."
+
+Dod smiled.
+
+"A poison should be sufficient."
+
+Later that evening, Padmé joined the other senators for dinner.
+
+Lott Dod approached her with a drink.
+
+"Senator Amidala."
+
+"Senator Dod."
+
+He raised his glass.
+
+"To cooperation."
+
+Padmé accepted the gesture.
+
+Dod discreetly smeared a small quantity of poison around the rim of his own glass before handing it to her.
+
+"Please."
+
+Padmé took a drink.
+
+She noticed nothing unusual.
+
+Dinner continued.
+
+When it was over, Clovis offered to show Padmé more of the palace.
+
+"There's something I'd like you to see."
+
+Padmé smiled.
+
+"I'd be happy to."
+
+They walked through the grand corridors together.
+
+Neither of them noticed the early symptoms of the poison.
+
+Padmé began to feel increasingly thirsty.
+
+A dull throbbing developed inside her head.
+
+She dismissed it as fatigue.
+
+Clovis stopped.
+
+"I'll get you something to drink."
+
+"Thank you."
+
+While he went to find refreshments, Padmé slipped into a nearby chamber containing the palace's computer terminal.
+
+She began searching through the system.
+
+A security prompt appeared.
+
+**Computer:** Passcode required.
+
+Padmé thought for a moment.
+
+"Clovis?"
+
+**Computer:** Access denied.
+
+She tried again.
+
+"Rush Clovis?"
+
+**Computer:** Access denied.
+
+"Banking Clan?"
+
+**Computer:** Access denied.
+
+Padmé paused.
+
+Then an idea occurred to her.
+
+"Padmé?"
+
+The terminal chimed.
+
+**Computer:** Access granted.
+
+Padmé stared at the screen.
+
+"You've got to be kidding me."
+
+She quickly accessed the files.
+
+A holographic diagram appeared.
+
+Her expression changed immediately.
+
+It was the design of Dooku's new droid foundry.
+
+Padmé activated her concealed transmitter.
+
+She sent Anakin the signal.
+
+Outside the palace, Anakin and R2-D2 were waiting for her instructions.
+
+R2 chirped.
+
+Anakin immediately understood.
+
+"That's our signal."
+
+He moved toward the palace.
+
+Padmé retrieved the hologram disc containing the plans.
+
+Then she returned to her quarters.
+
+Anakin quietly entered through a concealed route and waited in the shadows.
+
+Just then, the door opened.
+
+Clovis entered.
+
+"Padmé."
+
+She quickly concealed the disc.
+
+Clovis smiled.
+
+"I've been looking for you."
+
+He approached.
+
+"May I hold your hand?"
+
+Padmé immediately understood that refusing could raise suspicion.
+
+Instead, she stepped forward and embraced him tightly.
+
+Clovis was surprised, but quickly returned the embrace.
+
+Padmé glanced over Clovis' shoulder.
+
+Anakin was standing in the shadows.
+
+Their eyes met.
+
+Anakin froze.
+
+He saw Padmé and Clovis locked in a tight embrace.
+
+His emotions flared.
+
+His jaw tightened.
+
+For one terrible moment, he nearly exploded.
+
+Then he remembered the contract.
+
+Do not intervene.
+
+Do not get jealous.
+
+Let everything play out.
+
+Anakin forced himself to remain still.
+
+Padmé subtly reached toward her clothing and produced the hologram disc.
+
+The sight immediately calmed him.
+
+She had succeeded.
+
+She discreetly passed the disc toward him.
+
+Anakin took it.
+
+He began slipping back toward the shadows.
+
+Padmé suddenly swayed.
+
+The room spun around her.
+
+She tried to steady herself.
+
+"Padmé?"
+
+She collapsed.
+
+Anakin had already disappeared into the corridor.
+
+He did not see her fall.
+
+He did not know that she had been poisoned.
+
+Clovis caught her before she struck the floor.
+
+"Padmé!"
+
+He lowered her carefully.
+
+"Medical droid!"
+
+A medical droid rushed into the room.
+
+Clovis turned toward the doorway.
+
+"Senator Dod!"
+
+Dod soon arrived.
+
+Clovis demanded an explanation.
+
+"What's happening to her?"
+
+Dod's expression remained cold.
+
+"She is a spy."
+
+Clovis stared at him.
+
+"No."
+
+"Search the room."
+
+Clovis looked around.
+
+Then he noticed something.
+
+"The disc."
+
+The holographic plans were gone.
+
+His face changed.
+
+"You..."
+
+He looked down at Padmé.
+
+"You were spying on me."
+
+Padmé was unconscious and unable to respond.
+
+Clovis shook his head.
+
+"No. This isn't possible."
+
+He tried to wake her.
+
+"Padmé!"
+
+Nothing.
+
+"You betrayed me."
+
+Still nothing.
+
+Clovis's voice broke.
+
+"Why?"
+
+There was no answer.
+
+At that moment, Anakin returned.
+
+He immediately saw Padmé lying unconscious.
+
+His expression hardened.
+
+He looked at Clovis.
+
+"What have you done to her?"
+
+Clovis turned toward him.
+
+"I..."
+
+He shook his head.
+
+"I didn't do anything to her. I promise."
+
+Anakin stepped closer.
+
+Clovis raised his hands.
+
+"I love her. I would never hurt her."
+
+Anakin stared at him.
+
+Clovis appeared sincere.
+
+Anakin reached out through the Force.
+
+He sensed no deception in Clovis' words.
+
+The Force confirmed what Clovis was saying.
+
+Anakin's expression changed.
+
+Despite all the distrust and rivalry between them, they now had something far more important in common.
+
+Padmé.
+
+They both wanted her alive.
+
+Anakin looked down at her.
+
+"Then we need to save her."
+
+Clovis nodded.
+
+"Agreed."
+
+Together, they lifted Padmé.
+
+They carried her through the palace corridors toward the ship.
+
+R2-D2 and C-3PO were already waiting.
+
+But before they could reach the boarding ramp, Lott Dod and several aides blocked their path.
+
+Dod stepped forward.
+
+"You're not leaving."
+
+Clovis stopped.
+
+"Move aside."
+
+"You will remain here."
+
+Clovis reached beneath his robes and drew a blaster.
+
+Dod froze.
+
+"Senator..."
+
+"Give us the antidote."
+
+Dod hesitated.
+
+Clovis raised the weapon.
+
+"Now."
+
+Dod reluctantly handed over a small container.
+
+"That's the antidote."
+
+Anakin immediately took it.
+
+He injected Padmé.
+
+"Come on, Padmé."
+
+He looked at Clovis.
+
+"Help me get her aboard."
+
+Together they carried her onto the ship.
+
+R2-D2 immediately activated the engines while C-3PO hurried after them.
+
+The ship lifted away from Cato Neimoidia.
+
+Within moments, the palace disappeared behind them.
+
+Padmé remained unconscious.
+
+Anakin watched her anxiously.
+
+Then, after some time, the antidote finally began to take effect.
+
+Padmé's breathing steadied.
+
+Her eyes slowly opened.
+
+"Ani..."
+
+Anakin rushed to her side.
+
+"Padmé."
+
+She looked around.
+
+"What happened?"
+
+"You were poisoned."
+
+Her eyes widened.
+
+Clovis stood nearby.
+
+Padmé looked at him.
+
+He stared back at her with anger and disbelief.
+
+"You betrayed me."
+
+Padmé sat upright.
+
+"Clovis..."
+
+"You pretended to want to reconnect with me."
+
+He pointed toward her.
+
+"All those smiles. Everything you said. The way you acted."
+
+Padmé remained silent.
+
+"You were pretending."
+
+"Yes."
+
+Clovis stared at her.
+
+Padmé did not soften the answer.
+
+"I was tasked by the Republic to investigate you and determine whether you were collaborating with the Separatists."
+
+Clovis' expression twisted with anger.
+
+"So it was all a lie."
+
+"Yes."
+
+"You never wanted to be with me again."
+
+"No."
+
+"You never wanted us to reconnect."
+
+"No."
+
+She looked directly into his eyes.
+
+"I do not love you."
+
+Clovis went still.
+
+"I have no desire to reconnect with you emotionally or personally."
+
+The words struck him harder than any physical blow.
+
+"You..."
+
+His anger overwhelmed him.
+
+He lunged toward her.
+
+Anakin sensed his intention before Clovis could strike.
+
+The Force exploded outward.
+
+Clovis was hurled backward and slammed against the far wall.
+
+"Enough!"
+
+Clovis collapsed onto the floor.
+
+Anakin looked down at him.
+
+"Thank you for helping save Padmé's life."
+
+He paused.
+
+"But you're still Separatist scum."
+
+Anakin turned toward R2-D2.
+
+"R2."
+
+The astromech rolled toward Clovis.
+
+"Zap him."
+
+R2-D2 emitted an enthusiastic whistle.
+
+Electricity crackled from the droid's interface.
+
+Clovis convulsed as the shock passed through him.
+
+He collapsed unconscious.
+
+C-3PO looked horrified.
+
+"Oh, dear."
+
+Anakin nodded toward R2.
+
+"Good work."
+
+R2 chirped proudly.
+
+Clovis remained unconscious for the rest of the journey back to Coruscant.
+
+When the ship arrived, Anakin and Padmé handed Clovis over to Republic authorities.
+
+He was taken for medical treatment before being placed into detention pending trial.
+
+Anakin and Padmé then returned to the Senate Intelligence Oversight Committee.
+
+Senator Adrian Dabello listened carefully as Padmé explained everything that had happened on Cato Neimoidia.
+
+"Senator Clovis was indeed collaborating with the Separatists," she said.
+
+She described the meetings with Lott Dod and Poggle the Lesser, the discussion surrounding the droid foundry, the poisoning attempt, and Clovis' eventual cooperation in helping rescue her.
+
+Anakin then placed the hologram disc on the committee's table.
+
+"We recovered this from the palace."
+
+Dabello examined it.
+
+"These are the plans for a new droid foundry."
+
+Padmé nodded.
+
+"Yes."
+
+Dabello looked at both of them.
+
+"You've done excellent work."
+
+Anakin gave a tired smile.
+
+"It wasn't exactly a pleasant assignment."
+
+Padmé glanced at him.
+
+"No."
+
+She smiled faintly.
+
+"But it was successful."
+
+Later that evening, Anakin and Padmé finally returned to their apartment.
+
+The door closed behind them.
+
+For several seconds, neither spoke.
+
+Then Padmé smiled.
+
+"So..."
+
+Anakin raised an eyebrow.
+
+"The mission is over."
+
+"The mission is over."
+
+Padmé stepped toward him.
+
+"And the contract?"
+
+Anakin smiled.
+
+"Also over."
+
+They embraced.
+
+Their final agreement had been that once the mission ended, they would return to their normal relationship.
+
+There was no longer any reason to pretend.
+
+They shared another passionate kiss, formally dissolving the agreement that had governed their conduct throughout the investigation.
+
+When they finally separated, Anakin smiled.
+
+"Never again."
+
+Padmé laughed softly.
+
+"I'll second that."
+
+Meanwhile, in a Republic detention cell, Rush Clovis sat alone.
+
+He now understood the truth.
+
+Padmé's affection toward him had been a ruse.
+
+She had been investigating him from the beginning.
+
+She had betrayed him.
+
+But there was still one thing Clovis did not know.
+
+Despite everything that had happened, he had never discovered that Anakin Skywalker and Padmé Amidala were married.
+
+He did not know that they were in a relationship with each other.
+
+And he certainly did not know where Padmé's heart truly belonged.
+
+The mission had been successful precisely because Padmé had maintained her deception so convincingly, while Anakin had followed their agreement even when doing so had tested his patience to its limits.
+
+Clovis was left believing only that Padmé had deceived him for the sake of a Republic investigation.
+
+He remained completely unaware of the marriage and the love that existed between Padmé and the Republic General who had helped bring him down.
+
+---
+
 # Part 4
 
 As the war between the Galactic Republic and the Confederacy of Independent Systems intensified, Republic General Anakin Skywalker's reputation grew at an astonishing pace.
