@@ -4298,7 +4298,7 @@ For now, however, that day remained beyond anyone's sight.
 
 ---
 
-# Part 9
+# Branch A: Part 9
 
 A few months passed.
 
@@ -4750,7 +4750,7 @@ None of them had the slightest idea that their two families had met, become clos
 
 ---
 
-# Part 10
+# Branch A: Part 10
 
 Some time later, Republic General Anakin Skywalker and Senator Padmé Amidala found themselves enjoying a rare break from the war.
 
@@ -5182,7 +5182,7 @@ He returned to his command and immediately began preparing the 479th Division fo
 
 ---
 
-# Part 11
+# Branch A: Part 11
 
 The Senate's authorization gave Republic General Anakin Skywalker and the 479th Division a single objective.
 
@@ -5546,7 +5546,7 @@ The surviving leaders of the Confederacy began preparing a formal request for pe
 
 ---
 
-# Part 12
+# Branch A: Part 12
 
 The death of Count Dooku dramatically changed the course of the war.
 
@@ -5939,3 +5939,2991 @@ Though disagreements between the two governments remained, both remembered the t
 Surrounded by family, friends, and the quiet beauty of Naboo, the Skywalkers built the life they had long hoped for.
 
 And for the first time in many years, the galaxy looked toward the future with hope.
+
+---
+
+# Branch B: Part 9
+
+The Clone Wars continued for a long time.
+
+Neither the Galactic Republic nor the Confederacy of Independent Systems proved capable of forcing a decisive end to the conflict. After years of campaigns, offensives, counteroffensives, and costly territorial exchanges, the front lines gradually began to harden.
+
+Both sides fortified the worlds they already controlled.
+
+Defensive fleets increased.
+
+Planetary shield networks expanded.
+
+Supply lines were reinforced.
+
+More resources went into holding territory than capturing it.
+
+The war did not become a cold war. Battles still happened, ships were still lost, and soldiers still died.
+
+But it became something closer to a lukewarm war.
+
+The front lines moved less often.
+
+Campaigns became slower.
+
+And for the first time in years, there were periods when Anakin Skywalker and Padmé Amidala could spend days aboard the flagship of the 479th Division without immediately being thrown into another desperate assault.
+
+It was during this period that Padmé discovered she was pregnant.
+
+At first, neither she nor Anakin knew how to feel.
+
+They were happy.
+
+They were also frightened.
+
+One evening, Padmé sat beside Anakin in their private quarters aboard the flagship.
+
+"Ani..."
+
+He looked over.
+
+"We're going to have a child."
+
+He smiled.
+
+"I know."
+
+She looked down at her hands.
+
+"But during a war."
+
+His smile faded slightly.
+
+"Yeah."
+
+For a while they sat quietly together.
+
+Neither wanted their child raised amid constant danger.
+
+At the same time, neither of them could simply abandon their responsibilities.
+
+Eventually, however, the increasingly static nature of the conflict made the situation feel more manageable.
+
+The flagship remained heavily protected.
+
+The 479th Division's latest deployments were increasingly defensive rather than reckless offensives.
+
+And there was still no end to the war in sight.
+
+Then came another surprise.
+
+They were not having 1 child.
+
+They were having twins.
+
+Anakin stared at the medical display.
+
+"Twins?"
+
+Padmé smiled.
+
+"Twins."
+
+He laughed.
+
+"Okay."
+
+She looked amused.
+
+"That's all you have to say?"
+
+"I wasn't prepared for the first one."
+
+He pointed at the display.
+
+"Now there are 2."
+
+Padmé laughed and leaned against him.
+
+Eventually, the twins were born.
+
+A boy and a girl.
+
+They named the boy Luke.
+
+They named the girl Leia.
+
+Anakin and Padmé briefly considered whether the children should be raised somewhere far from the war.
+
+But neither liked the idea of giving Luke and Leia to someone else to raise for years while the conflict dragged on indefinitely.
+
+So they made a different decision.
+
+They would raise the twins themselves aboard the flagship.
+
+The ship was secure.
+
+The latest campaigns were increasingly less dangerous.
+
+And most importantly, Luke and Leia would grow up with their parents.
+
+Three years passed.
+
+Luke and Leia grew from infants into energetic 3-year-olds who seemed to consider the flagship their personal playground.
+
+The Clone Wars, meanwhile, still had not ended.
+
+One day, during another campaign, Padmé received a message.
+
+She opened it and immediately frowned.
+
+Anakin noticed.
+
+"What is it?"
+
+"It's from Rush Clovis."
+
+Anakin's expression changed.
+
+"Oh."
+
+Padmé looked at him.
+
+"That tone."
+
+"I don't like him."
+
+"I know."
+
+"Very much."
+
+"I also know."
+
+She opened the message.
+
+Clovis explained that the Separatists under Count Dooku were attempting to completely take over the InterGalactic Banking Clan.
+
+By this point, Clovis had become one of the Banking Clan's senior representatives.
+
+He wanted to resist the takeover.
+
+His objective was straightforward.
+
+The InterGalactic Banking Clan had to remain neutral and independent rather than become a financial puppet of the Separatists.
+
+Padmé finished reading.
+
+"He's asking for our help."
+
+Anakin folded his arms.
+
+"Our help."
+
+"Yes."
+
+"Rush Clovis."
+
+"Yes."
+
+"The same Rush Clovis."
+
+Padmé gave him a look.
+
+"Ani."
+
+He sighed.
+
+"I know."
+
+They argued over it for some time.
+
+Anakin distrusted Clovis for political reasons.
+
+He distrusted him for personal reasons.
+
+And he had not forgotten their previous encounter.
+
+But Padmé kept returning to the same point.
+
+"If Dooku takes direct control of the Banking Clan, the Separatists gain enormous financial leverage."
+
+Anakin frowned.
+
+"I understand that."
+
+"Then we can't ignore this."
+
+"I didn't say we should ignore it."
+
+"You've spent the last 20 minutes explaining why you don't want to work with him."
+
+"That's different."
+
+Padmé smiled.
+
+"Is it?"
+
+Anakin sighed again.
+
+Eventually, he relented.
+
+"Fine."
+
+Padmé nodded.
+
+"We help him."
+
+"But I'm not pretending to like him."
+
+"I wasn't going to ask you to."
+
+So Anakin, Padmé, and Clovis began working together to reassert the Banking Clan's independence and prevent Dooku from bringing the institution completely under Separatist control.
+
+At one point during the mission, Anakin, Clovis, and C-3PO were alone together in a room aboard the flagship.
+
+Padmé had stepped out briefly to read through a stack of financial documents.
+
+Clovis watched the doorway close behind her.
+
+Then he turned toward Anakin.
+
+"General Skywalker, there is something I need to tell you."
+
+Anakin looked suspicious immediately.
+
+"...Okay?"
+
+"I would like to ask for your help."
+
+That made Anakin even more suspicious.
+
+"My help."
+
+"Yes."
+
+Threepio turned toward them.
+
+"Oh dear."
+
+Clovis continued.
+
+"You see, Senator Amidala and I used to be very close once."
+
+Anakin's expression remained completely still.
+
+"We dated for a while before she decided she didn't want to be with me anymore."
+
+Anakin slowly leaned back.
+
+Clovis continued.
+
+"I could not stop thinking about her after that."
+
+Threepio shifted uncomfortably.
+
+"I believe there is still a chance for me if I play my cards right."
+
+Anakin stared at him.
+
+"Why are you telling me this?"
+
+Clovis gestured toward him.
+
+"As I understand, the Republic has assigned you to work with her for many years now, right?"
+
+"Yes."
+
+"So I assume you and her must know each other quite well."
+
+Anakin blinked.
+
+"You could say that."
+
+"I was wondering..."
+
+Clovis leaned forward slightly.
+
+"...if you could help me regain her love."
+
+Anakin said nothing.
+
+Clovis continued eagerly.
+
+"Since you have worked so closely with her for so long, maybe you know what she likes to eat, what she enjoys doing, what makes her laugh, things like that."
+
+Anakin looked toward Threepio.
+
+Threepio looked back.
+
+Anakin looked toward Clovis again.
+
+"Uh..."
+
+Threepio raised one hand.
+
+"Sir, I am afraid that Master Anakin may not be the right person to ask for this type of assistance."
+
+Clovis frowned.
+
+"Why not?"
+
+Threepio froze.
+
+"Because..."
+
+He glanced at Anakin.
+
+"...uh..."
+
+He glanced toward the door.
+
+"Oh dear."
+
+Anakin stood.
+
+"All right, listen here, Clovis."
+
+Clovis looked at him.
+
+"My advice to you is that you should probably just forget about Padmé."
+
+Clovis frowned immediately.
+
+"You are not going to be able to get back with her."
+
+Anakin folded his arms.
+
+"The sooner you get her out of your mind, the sooner you will find happiness."
+
+Clovis stared at him.
+
+Then he gave Anakin a skeptical look.
+
+"Let me guess."
+
+"What?"
+
+"You don't have a girlfriend."
+
+Anakin paused.
+
+Clovis nodded knowingly.
+
+"If you had one, you would understand how I feel, and why it's not that easy to just 'forget' about someone who you once loved really deeply."
+
+Anakin rubbed his forehead.
+
+"You are correct that I don't have a girlfriend, but..."
+
+Clovis interrupted.
+
+"Then I don't want that advice!"
+
+Threepio took a small step backward.
+
+"If you don't even have a girlfriend, then you are not qualified to tell me to just forget about her!"
+
+Anakin closed his eyes.
+
+He sighed.
+
+At that exact moment, the door burst open.
+
+Luke and Leia ran into the room.
+
+"Daddy!"
+
+Anakin's eyes opened.
+
+Luke ran straight toward him.
+
+"Mommy said we can't have any more cookies!"
+
+Leia clasped her hands together.
+
+"Can you let us have a few more?"
+
+Luke nodded rapidly.
+
+"Please?"
+
+Leia leaned forward.
+
+"Pleeeeeeeease?"
+
+Silence.
+
+Anakin stared at them.
+
+Clovis stared at them.
+
+Threepio slowly raised both hands toward his head.
+
+"Oh dear."
+
+Anakin opened his mouth.
+
+"Uh..."
+
+From somewhere farther down the hallway came Padmé's voice.
+
+"DON'T GIVE THEM ANY MORE COOKIES!"
+
+Clovis' eyes widened.
+
+He looked at Luke.
+
+Then Leia.
+
+Then Anakin.
+
+Then toward the hallway.
+
+Then back at Anakin.
+
+His face went pale.
+
+He collapsed.
+
+Threepio looked down.
+
+"Oh dear."
+
+Anakin stared at Clovis on the floor.
+
+Then he looked toward the hallway.
+
+"Padmé!"
+
+Footsteps approached quickly.
+
+"Come over here, quick!"
+
+Padmé rushed into the room.
+
+"What's going on, Ani?"
+
+She saw Clovis on the floor.
+
+"Why is Clovis on the ground?"
+
+Anakin raised both hands.
+
+"I, uh..."
+
+Padmé narrowed her eyes.
+
+"You didn't attack him, did you?"
+
+"No!"
+
+Anakin immediately shook his head.
+
+"No, no, I didn't. I promise."
+
+Leia pointed toward Clovis.
+
+"He just fainted."
+
+Padmé looked down at her.
+
+"I was here. I saw it happen."
+
+Leia pointed at Anakin.
+
+"Daddy didn't attack him."
+
+Luke stepped into the middle of the room.
+
+"He was just like..."
+
+Luke dramatically threw his arms outward, rolled his eyes back, and collapsed onto the floor in an exaggerated imitation of Clovis.
+
+Padmé stared at him.
+
+Luke remained motionless for 2 seconds before peeking up.
+
+"...this."
+
+Padmé covered her mouth for a moment.
+
+Then she looked back at Anakin.
+
+"Ani, can you explain what happened?"
+
+Anakin sighed.
+
+"He asked me for romantic advice."
+
+Padmé blinked.
+
+"What?"
+
+"He told me he still thinks he can get back together with you."
+
+Padmé's expression changed.
+
+Anakin continued.
+
+"He asked me to help him figure out what you like, what makes you laugh, all of that."
+
+Threepio nodded.
+
+"That is correct, Senator."
+
+"I told him he should move on."
+
+Anakin sighed.
+
+"Then he told me I wasn't qualified to give him relationship advice because I don't have a girlfriend."
+
+Padmé stared at him.
+
+Anakin pointed toward Luke and Leia.
+
+"Then these 2 came in calling me 'Daddy.'"
+
+Padmé closed her eyes.
+
+"Oh stars."
+
+She looked down at Clovis.
+
+"All right. Let's get Clovis some medical help."
+
+She glanced at Anakin.
+
+"Then I think I will deal with this."
+
+She pointed toward the hallway.
+
+"You and the kids stay outside."
+
+Anakin nodded.
+
+"I think I know what to say to him once he's awake."
+
+Clovis was carried into one of the flagship's medical rooms.
+
+A medical droid examined him while Padmé found a seat nearby.
+
+Anakin waited outside with Luke and Leia.
+
+The droid completed its examination.
+
+"He's all right."
+
+Padmé looked toward Clovis.
+
+"He should regain consciousness soon."
+
+A few minutes later, Clovis stirred.
+
+His eyes slowly opened.
+
+Padmé leaned forward.
+
+"Hello, Clovis."
+
+He blinked several times.
+
+"Padmé...?"
+
+"I'm here."
+
+His memories returned.
+
+His expression immediately became pained.
+
+"Why didn't you tell me?"
+
+Padmé already knew what he meant.
+
+"About the fact that I'm married to Anakin?"
+
+Clovis groaned.
+
+"Exactly."
+
+"Operational reasons."
+
+He stared at the ceiling.
+
+"Ugh..."
+
+Then he sighed.
+
+"Fine."
+
+He looked toward her.
+
+"At least that explains last time."
+
+Padmé said nothing.
+
+"But this time?"
+
+"We haven't gotten around to it yet."
+
+She leaned back.
+
+"Besides, you are not entitled to knowledge about our private life."
+
+Clovis looked hurt.
+
+"You know I was still hoping that you would come back to me one day, right?"
+
+Padmé's expression remained calm.
+
+"If you told me, maybe I could stop hoping earlier."
+
+"I already told you that I no longer see you romantically."
+
+Clovis looked away.
+
+"I already said that we should maintain a strictly professional relationship with each other."
+
+She leaned forward.
+
+"Do I really need to tell you that I found a new partner for you to understand that I don't want to date you anymore?"
+
+Clovis frowned.
+
+"I thought maybe we could still have a chance."
+
+"Clovis, no."
+
+Her answer was immediate.
+
+"Regardless of whether I found a new partner or whether I remained single, you don't have a chance anymore."
+
+Clovis looked at her.
+
+"This is the part that I think you fail to understand."
+
+He was silent for several moments.
+
+Finally he sighed.
+
+"Well, I suppose it doesn't matter now."
+
+Padmé softened slightly.
+
+"What Anakin said to you is probably for your best."
+
+Clovis looked displeased.
+
+"I know you can't do it instantly."
+
+She continued gently.
+
+"But you should definitely try to move on."
+
+Clovis remained quiet.
+
+"Once you stop thinking about only me, maybe you will discover that the galaxy is full of wonderful women out there."
+
+She smiled faintly.
+
+"And maybe you can find your happiness one day."
+
+Clovis shook his head.
+
+"I really don't like hearing this."
+
+"I know."
+
+Padmé's voice remained patient.
+
+"But your life is not doomed."
+
+She gestured toward him.
+
+"You just have to see past your present situation."
+
+Clovis stared at the wall.
+
+Then, reluctantly, he nodded.
+
+"...Fine."
+
+Padmé waited.
+
+"I will try my best."
+
+"Thank you."
+
+She smiled.
+
+"I truly wish you the best in life, Clovis."
+
+He looked toward her again.
+
+"Look, despite what you did with the Separatists, at least we are still willing to work with you."
+
+She paused.
+
+"That should say something."
+
+Clovis thought about it.
+
+"That you still trust me?"
+
+"Exactly."
+
+Padmé's expression became serious again.
+
+"And if you want us to maintain that trust, then please don't try to pursue me romantically anymore."
+
+Clovis nodded.
+
+"I won't."
+
+He paused.
+
+"I promise."
+
+Padmé stood and walked to the door.
+
+She opened it.
+
+"Ani?"
+
+Anakin looked inside.
+
+"Everything is figured out?"
+
+"Yes."
+
+Padmé smiled.
+
+"It went much better than I expected."
+
+Luke and Leia immediately ran into the room.
+
+Anakin followed more cautiously.
+
+"Good."
+
+He looked toward Clovis.
+
+"I hope we don't have any more incidents like this."
+
+Clovis slowly sat upright.
+
+For a moment, he and Anakin simply looked at one another.
+
+Then Clovis extended his hand.
+
+"General Skywalker."
+
+Anakin looked at the offered hand in surprise.
+
+"It is a pleasure to work with you."
+
+Anakin hesitated.
+
+Then he reached forward and shook it.
+
+Padmé watched them and smiled.
+
+"All right."
+
+She picked up the documents she had brought with her.
+
+"Let's get back to Banking Clan business."
+
+Her expression became serious.
+
+"We still have a LOT of work to do..."
+
+---
+
+# Branch B: Part 10
+
+Padmé spread several Banking Clan reports across the conference table aboard the flagship of the 479th Division.
+
+With the earlier misunderstanding between Anakin and Clovis finally resolved, the three of them could return their attention to the reason Clovis had sought their help in the first place: Count Dooku's attempt to bring the InterGalactic Banking Clan completely under Separatist control.
+
+Padmé looked across the table at Clovis.
+
+"So, why do you want the Banking Clan to be neutral?"
+
+Clovis answered without hesitation.
+
+"I believe that the purpose of the Banking Clan is to provide financial services to all individuals and institutions that require such services."
+
+He gestured toward the reports.
+
+"I believe the Banking Clan should not become political, and should not take sides in political matters."
+
+Anakin leaned forward.
+
+"Okay, that's the Banking Clan."
+
+He pointed toward Clovis.
+
+"What about you? Do you really believe in neutrality?"
+
+Clovis considered the question.
+
+"Well, you see, I do think both the Republic and the Separatists have legitimate causes and goals in this war."
+
+Anakin nodded slowly.
+
+"You say the Separatists have legitimate causes and goals. I would have to agree."
+
+Clovis seemed mildly surprised.
+
+"However..."
+
+Anakin's expression hardened.
+
+"Dooku is evil. Period."
+
+Clovis frowned.
+
+"And why do you think that?"
+
+"Because he is a Sith Lord."
+
+Clovis stared blankly at him.
+
+"What is a Sith Lord?"
+
+Anakin leaned back.
+
+"Oh boy..."
+
+He rubbed his forehead.
+
+"This is going to take a while."
+
+Padmé smiled faintly.
+
+"I agree with Anakin. We understand why the Separatists want to secede from the Republic. We cannot tolerate them being led by a Sith Lord, though."
+
+She gestured toward Anakin.
+
+"I think after you hear Anakin explain this, you will understand."
+
+Clovis settled into his chair.
+
+"Okay then."
+
+He looked toward Anakin.
+
+"Go ahead. Enlighten me."
+
+Anakin thought for a moment about where to begin.
+
+"First of all, do you know what the Force is?"
+
+"I've definitely heard about it."
+
+Clovis gave him a pointed look.
+
+"And remember you pushed me with the Force last time?"
+
+A slightly smug smile appeared on Anakin's face.
+
+"Oh yeah."
+
+He leaned back.
+
+"You tried to attack Padmé that time, so it was totally justified."
+
+"Anakin."
+
+Padmé's voice was enough.
+
+Anakin stopped.
+
+Clovis continued.
+
+"But in any case... I don't really understand what the Force is, no."
+
+"All right."
+
+Anakin gestured around them.
+
+"The Force is a component of the universe which interacts with all living beings through the midi-chlorians."
+
+Clovis opened his mouth.
+
+"But you don't need to know all this theory."
+
+Clovis closed his mouth again.
+
+Anakin continued.
+
+"The important part is that those trained in connecting with and using the Force can do some very powerful things with it."
+
+"Such as?"
+
+"Moving objects without touching them. That's called telekinesis."
+
+Anakin glanced around the room.
+
+"Here's an example."
+
+A plastic cup sat on a table across the room.
+
+Anakin extended one hand.
+
+The cup gently rose into the air.
+
+Clovis watched as it floated smoothly across the conference room, passed over the table between them, and descended perfectly into Padmé's waiting hands.
+
+Clovis looked at Anakin.
+
+"Show-off."
+
+Padmé laughed.
+
+"Yeah, Anakin can be quite a show-off sometimes."
+
+Anakin looked toward her.
+
+"Padmé."
+
+She ignored him.
+
+"Did you know that when we first started dating, he levitated a fruit from my plate to his plate, only to slice it up, then float it back to my plate?"
+
+Clovis slowly turned toward Anakin.
+
+"...Definitely a show-off."
+
+"Enough, you two."
+
+A small voice suddenly came from nearby.
+
+"Hey, I know telekinesis too!"
+
+Anakin's head snapped around.
+
+Luke was staring at another plastic cup.
+
+Anakin immediately panicked.
+
+"Luke, no!"
+
+Too late.
+
+3-year-old Luke extended his hand.
+
+The plastic cup shook.
+
+Then it rose.
+
+For a fraction of a second, Anakin looked almost impressed.
+
+Then the cup shot across the room at full speed.
+
+It slammed directly into Clovis' chest.
+
+Clovis recoiled.
+
+Luke's eyes widened.
+
+"Sorry."
+
+Anakin closed his eyes and sighed.
+
+"My apologies for that, Clovis."
+
+Clovis rubbed his chest.
+
+Anakin pointed toward the fallen cup.
+
+"As you can see, telekinesis is not at all easy. Without sufficient training, it can often be unreliable."
+
+Padmé looked toward the twins.
+
+"I think we should put the kids to sleep now."
+
+Luke and Leia immediately became suspicious.
+
+"Luke, Leia, time to go to bed."
+
+Both children answered simultaneously.
+
+"No."
+
+Padmé sighed.
+
+Anakin looked at Luke.
+
+Then an idea occurred to him.
+
+He extended one hand slightly.
+
+"Luke, you want to go to sleep."
+
+Luke's expression relaxed.
+
+"I want to go to sleep."
+
+Padmé's head slowly turned.
+
+"Anakin."
+
+Anakin looked at Leia.
+
+"Leia, you also want to go to sleep."
+
+Leia immediately nodded.
+
+"I also want to go to sleep."
+
+"ANAKIN!"
+
+Anakin turned toward Padmé with an expression of complete innocence.
+
+"What?"
+
+"You know exactly what."
+
+"We have more important things to do now."
+
+He gestured toward Clovis and the Banking Clan documents.
+
+"I don't have time to argue about sleep with those two for half an hour."
+
+Padmé stared at him.
+
+Anakin stared back.
+
+Luke yawned.
+
+Leia's eyelids were already beginning to droop.
+
+Padmé finally sighed.
+
+"...Fine."
+
+She shook her head.
+
+"I suppose today can be considered a special case."
+
+Leia wandered toward Anakin and collapsed sleepily into his arms.
+
+Luke did the same with Padmé.
+
+Within moments, both children were asleep.
+
+Anakin carefully adjusted Leia in his arms.
+
+"Okay, where was I?"
+
+Clovis pointed toward him.
+
+"The Force."
+
+"Right. The Force."
+
+Anakin continued.
+
+"So, there are two sides of the Force. The light side and the dark side."
+
+Clovis listened.
+
+"Practitioners of the light side are fueled by compassion, selflessness, and a desire to help others."
+
+Anakin paused.
+
+"The Jedi Order has traditionally embraced the light side, although I personally believe the Jedi Order should not be allowed to monopolize the light side."
+
+Padmé raised an eyebrow.
+
+Anakin shrugged.
+
+"But that's besides the point."
+
+Clovis nodded.
+
+"And the dark side?"
+
+Anakin's expression became more serious.
+
+"Practitioners of the dark side are fueled by hatred, anger, vengeance, coercion, and a desire to seek greater power."
+
+He looked directly at Clovis.
+
+"The Sith Order is the most prominent example of an institution that embraces the dark side."
+
+Clovis listened closely.
+
+"As a result, all Sith Lords are evil, corrupt, and power-hungry. There is no grey area when dealing with Sith Lords."
+
+Anakin leaned forward.
+
+"And as you can see, letting a Sith Lord rule a third of the galaxy is absolutely unacceptable."
+
+Padmé looked toward Clovis.
+
+"Clovis, you trust us, right?"
+
+Clovis glanced at Anakin.
+
+Then at Padmé.
+
+"Well..."
+
+He smiled faintly.
+
+"I definitely trust you, Padmé."
+
+Anakin rolled his eyes.
+
+Padmé continued.
+
+"Then hear us out."
+
+Her voice became serious.
+
+"We believe the war cannot be ended as long as Dooku remains at large."
+
+Clovis said nothing.
+
+"He must be terminated if we want peace to return to the galaxy."
+
+Padmé shifted the sleeping Luke slightly in her arms.
+
+"Now, that doesn't necessarily have to mean the Separatists are wiped out, or that all Separatist worlds are forced to rejoin the Republic."
+
+She shook her head.
+
+"But it does mean Dooku is killed."
+
+Clovis leaned back.
+
+"Hmm..."
+
+"Do you want the war to end?"
+
+Clovis thought for a moment.
+
+"Well, the Banking Clan is making a lot of money off providing loans to both sides in this war."
+
+Padmé's expression immediately soured.
+
+"So I don't think the Banking Clan wants the war to end."
+
+"That's classic war profiteering, Clovis."
+
+Clovis shrugged slightly.
+
+Padmé leaned forward.
+
+"I did not ask whether the Banking Clan wants the war to end."
+
+She pointed toward him.
+
+"I asked whether *you* want the war to end."
+
+Clovis fell silent.
+
+He genuinely considered the distinction.
+
+After several moments, he answered.
+
+"I suppose..."
+
+He paused.
+
+"...I do."
+
+Padmé waited.
+
+"Peace is kind of nice, you know."
+
+"Well then."
+
+Padmé smiled faintly.
+
+"If you want the war to end, you shouldn't be neutral about Dooku."
+
+Clovis looked toward her.
+
+"You can be neutral about the Republic and the Separatists, but you should understand that getting rid of Dooku is for the good of all of us."
+
+Clovis remained quiet for a while.
+
+Finally he nodded.
+
+"Fine."
+
+He looked down at the documents.
+
+"I suppose you have a point."
+
+Padmé smiled.
+
+"Good."
+
+"But let me think about this for a bit."
+
+"Sure."
+
+She stood carefully with Luke still asleep in her arms.
+
+"Take your time. We will talk again tomorrow."
+
+Anakin rose as well, carrying Leia.
+
+Clovis departed for his guest quarters while Anakin and Padmé carried their sleeping children back to their own quarters.
+
+The following morning, Anakin, Padmé, and Clovis reconvened in one of the flagship's meeting rooms.
+
+This time, Luke and Leia were nowhere nearby.
+
+Clovis was already waiting when Anakin and Padmé arrived.
+
+He stood.
+
+"I have made up my mind."
+
+Padmé took her seat.
+
+"And?"
+
+Clovis looked between them.
+
+"I agree that Dooku should be removed."
+
+Padmé nodded.
+
+"Good."
+
+She leaned forward.
+
+"Then help us remove him."
+
+Clovis frowned.
+
+"What do you have in mind?"
+
+Padmé brought up a holographic image of Scipio.
+
+"You said Dooku wants to take over the Banking Clan, right?"
+
+"Yes."
+
+"Then offer him a deal."
+
+Clovis listened carefully.
+
+"Agree to the takeover."
+
+His eyes widened.
+
+"You want me to what?"
+
+"Agree to it."
+
+Padmé remained calm.
+
+"But make one condition."
+
+Clovis waited.
+
+"Tell Dooku that a transfer of this magnitude requires him to come in person to Scipio to sign the contract that hands control of the Banking Clan to the Confederacy of Independent Systems."
+
+Clovis slowly began to understand.
+
+"But that shall be a trap," Padmé finished.
+
+Anakin smiled.
+
+"I think I see where this is going."
+
+Padmé looked toward him.
+
+"Exactly."
+
+She enlarged the hologram.
+
+"Once Dooku arrives on Scipio, Anakin will ambush him and try to kill him."
+
+Clovis stared at her.
+
+Padmé continued without hesitation.
+
+"Best-case scenario, Dooku is caught off guard and dies right away."
+
+"And worst-case scenario?" Clovis asked.
+
+"It becomes a duel."
+
+Anakin folded his arms.
+
+Padmé glanced toward him.
+
+"In that case, hopefully Anakin can win the duel and still get Dooku killed."
+
+Clovis stared at both of them.
+
+"I don't know about this."
+
+Anakin raised an eyebrow.
+
+"Why?"
+
+"Because it sounds risky."
+
+Clovis gestured toward the hologram of Scipio.
+
+"If your plan fails, then I literally just handed control of the entire Banking Clan over to the Separatists."
+
+Anakin answered immediately.
+
+"It's not going to fail."
+
+Clovis looked at him.
+
+"How do you know?"
+
+"Just trust me."
+
+"Don't be so overconfident."
+
+"I'm not being overconfident."
+
+Anakin smiled.
+
+"I'm being optimistic."
+
+Clovis stared at him.
+
+Then he looked toward Padmé.
+
+She gave him an encouraging smile.
+
+Clovis sighed.
+
+"...Fine."
+
+He pointed at both of them.
+
+"But if this doesn't work out, I'm never listening to either of you ever again."
+
+Anakin stood.
+
+"Then we'd better make sure it works."
+
+The three began preparing immediately.
+
+Clovis would contact Count Dooku and present the proposed transfer of control as a capitulation by the Banking Clan.
+
+Padmé would help arrange the political and financial details necessary to make the offer convincing.
+
+Anakin would prepare for the ambush.
+
+Soon afterward, Anakin entered the bridge of the flagship.
+
+Commander Seb stood from his station.
+
+"General."
+
+Anakin walked toward the command platform.
+
+"Commander, change of plans."
+
+Seb waited for his orders.
+
+Anakin looked toward the navigation officers.
+
+"Set course for Scipio immediately."
+
+"Yes, General."
+
+Coordinates were entered.
+
+Across the flagship, preparations began for the newest mission.
+
+Anakin watched as the stars stretched into brilliant lines beyond the bridge windows.
+
+The flagship entered hyperspace.
+
+Their destination was Scipio.
+
+Their target was Count Dooku.
+
+---
+
+# Branch B: Part 11
+
+As the flagship of the 479th Division sped toward Scipio, Rush Clovis wasted no time putting Padmé's plan into motion.
+
+He established a secure connection with San Hill, chairman of the InterGalactic Banking Clan.
+
+Hill's hologram appeared before him.
+
+"Clovis."
+
+"Chairman."
+
+"What is it?"
+
+Clovis maintained a perfectly professional expression.
+
+"I have been reconsidering the Separatist proposal."
+
+Hill immediately became interested.
+
+"Go on."
+
+"I believe it is in the Banking Clan's best interests to allow the Separatists to take control of the organization."
+
+Hill stared at him.
+
+"You've changed your position."
+
+"I have."
+
+Clovis spoke confidently.
+
+"The war has continued for years with no resolution. Count Dooku has made it clear that he intends to consolidate the Confederacy's financial position. Continuing to resist him may ultimately prove more damaging to us than accepting his terms."
+
+Hill considered the argument.
+
+"What do you propose?"
+
+"Invite Count Dooku to Scipio."
+
+Clovis continued before Hill could respond.
+
+"A transfer of this magnitude should be finalized formally. Have Dooku come personally to sign the contract transferring control of the Banking Clan to the Confederacy of Independent Systems."
+
+Clovis said nothing about Anakin.
+
+Nothing about Padmé.
+
+And certainly nothing about the trap waiting on Scipio.
+
+Hill thought carefully.
+
+As a member of the Separatist Council himself, contacting Dooku presented no difficulty whatsoever.
+
+Eventually, he nodded.
+
+"Very well."
+
+"I'll contact Count Dooku."
+
+The transmission ended.
+
+Not long afterward, Hill personally contacted the Separatist leader.
+
+Dooku was ecstatic.
+
+After years of seeking greater influence over the financial institutions supporting the galaxy's economies, the prospect of gaining direct control of the Banking Clan was too valuable to ignore.
+
+He suspected nothing.
+
+Within a short time, Count Dooku boarded his ship and set course for Scipio.
+
+Meanwhile, the flagship of the 479th Division arrived first.
+
+Anakin immediately began preparing his forces.
+
+Commander Seb stood before him as clone officers gathered around a tactical display.
+
+"Dooku cannot be allowed to escape."
+
+Seb nodded.
+
+"Understood, General."
+
+"I'll be inside the Banking Clan building."
+
+Anakin indicated several routes surrounding the structure.
+
+"Keep the 479th on alert. The moment I give the signal, seal off every possible escape route."
+
+"What if Dooku brings an escort?"
+
+"Expect one."
+
+Anakin looked around at the assembled clones.
+
+"And be prepared for more than whatever we initially see."
+
+"Yes, General."
+
+Elsewhere, Clovis joined San Hill and the other senior Banking Clan officials to prepare for Dooku's arrival and the upcoming signing ceremony.
+
+Padmé considered joining them.
+
+After some deliberation, she decided against it.
+
+Her presence would raise too many questions.
+
+She was a loyal, active senator of the Galactic Republic. There was no plausible reason for her to attend a ceremony formally transferring the InterGalactic Banking Clan into Separatist control.
+
+So Padmé remained aboard the flagship with Luke and Leia.
+
+Anakin, meanwhile, entered the Banking Clan building through a discreet route arranged by Clovis.
+
+Clovis had carefully selected a hiding place close to the path Dooku would take on his way toward the signing chamber.
+
+Anakin settled into position.
+
+Then he waited.
+
+Eventually, Count Dooku's ship landed on Scipio.
+
+Dooku emerged with several MagnaGuards protecting him.
+
+He entered the Banking Clan building.
+
+Everything initially proceeded according to plan.
+
+San Hill's representatives welcomed him.
+
+Dooku walked deeper into the structure.
+
+Hidden nearby, Anakin closed his eyes.
+
+He could sense Dooku through the Force.
+
+Closer.
+
+Closer.
+
+Closer.
+
+Anakin slowly reached toward his lightsaber.
+
+Then Dooku abruptly stopped.
+
+His expression changed.
+
+"Wait a minute."
+
+The MagnaGuards stopped with him.
+
+Dooku's eyes narrowed.
+
+"I sense a familiar presence in the Force."
+
+He remained motionless for several seconds.
+
+"This is not good."
+
+One MagnaGuard turned toward him.
+
+"What are your orders?"
+
+Dooku immediately turned around.
+
+"We should turn back."
+
+He began retreating.
+
+"I sense a trap."
+
+The MagnaGuards followed.
+
+From his hiding place, Anakin sensed Dooku's presence moving away.
+
+His eyes opened.
+
+"He knows."
+
+Dooku had sensed him just as clearly as Anakin had sensed Dooku.
+
+Fortunately, Anakin had prepared for exactly this possibility.
+
+He activated his comlink.
+
+"Seb."
+
+On the other end, Commander Seb immediately responded.
+
+"General."
+
+"Now."
+
+The 479th Division exploded into motion.
+
+Clone troopers emerged from concealed positions throughout the surrounding area.
+
+Squads rushed into corridors.
+
+Others sealed exits.
+
+Additional units moved between Dooku and his ship.
+
+Dooku emerged from the building with his MagnaGuards and stopped.
+
+Clone troopers surrounded him from multiple directions.
+
+"Open fire!"
+
+Blaster bolts filled the air.
+
+The MagnaGuards charged.
+
+Their electrostaffs flashed as they met the first ranks of clones.
+
+But the 479th had prepared specifically to prevent Dooku's escape.
+
+The MagnaGuards fell one after another under concentrated fire.
+
+Dooku drew his lightsaber.
+
+Its crimson blade ignited.
+
+He deflected incoming bolts while retreating toward his ship.
+
+But the path between him and the ship was still blocked by countless clones.
+
+Then the ship's boarding ramp opened.
+
+An army of battle droids poured out.
+
+Dooku had brought reinforcements.
+
+B1 battle droids marched down the ramp in large formations.
+
+B2 super battle droids followed.
+
+Droidekas rolled onto the battlefield and unfolded behind shimmering deflector shields.
+
+More MagnaGuards joined them.
+
+Commander Seb immediately redirected his troops.
+
+"Defensive positions!"
+
+The battle intensified.
+
+Blaster fire tore through the grounds surrounding the Banking Clan building.
+
+Droidekas hammered clone positions with sustained fire.
+
+B2 units advanced relentlessly while B1 formations poured into the gaps.
+
+The 479th answered with disciplined volleys.
+
+Clone troopers concentrated fire on individual targets, steadily wearing down the Separatist force.
+
+Casualties mounted.
+
+But neither side yielded.
+
+Then a blue lightsaber ignited inside the Banking Clan building.
+
+Dooku turned.
+
+Anakin emerged.
+
+"Count Dooku."
+
+Dooku raised his crimson blade.
+
+"Skywalker."
+
+Anakin approached.
+
+"You're not leaving Scipio."
+
+Dooku smiled coldly.
+
+"We shall see."
+
+Their blades collided.
+
+Blue and red light flashed through the building.
+
+Dooku attacked with the precision of decades of experience.
+
+Anakin answered with relentless power.
+
+Their blades met again.
+
+And again.
+
+And again.
+
+Anakin drove Dooku backward through the structure.
+
+Dooku suddenly extended one hand.
+
+A large section of furniture ripped free from the floor and flew toward Anakin.
+
+Anakin threw it aside with the Force.
+
+He retaliated by tearing a heavy structural panel from the wall and hurling it at Dooku.
+
+Dooku redirected it.
+
+It smashed into a nearby support.
+
+The building shook.
+
+Outside, the battle between clones and droids continued.
+
+Inside, the duel became increasingly destructive.
+
+Dooku hurled pieces of the building toward Anakin.
+
+Anakin answered in kind.
+
+Walls cracked.
+
+Supports collapsed.
+
+Sections of ceiling came crashing down as both men attempted to bury the other beneath the structure itself.
+
+Then Dooku thrust out his hand.
+
+Force lightning erupted from his fingertips.
+
+Anakin raised his lightsaber.
+
+The electricity struck the blue blade and scattered around him.
+
+Dooku intensified the attack.
+
+Anakin gritted his teeth.
+
+Then he swept the blade aside, redirecting the lightning into a wall.
+
+Dooku attacked again.
+
+Another wave of lightning.
+
+Anakin caught it.
+
+Again.
+
+Anakin deflected it.
+
+The duel continued.
+
+But gradually, the balance shifted.
+
+Dooku possessed experience.
+
+Anakin possessed energy.
+
+And Anakin refused to slow down.
+
+He attacked relentlessly.
+
+Dooku's movements became increasingly strained.
+
+Anakin pressed harder.
+
+Dooku gave ground.
+
+Their blades locked.
+
+Anakin forced Dooku backward.
+
+Dooku broke away and attempted another attack.
+
+Anakin blocked it.
+
+Then another.
+
+Blocked.
+
+Another.
+
+Blocked.
+
+Dooku's age was finally betraying him.
+
+He could no longer maintain the pace.
+
+Anakin saw the opening.
+
+He struck.
+
+Dooku stumbled.
+
+Anakin followed immediately.
+
+A final blow ended the duel.
+
+Count Dooku fell.
+
+He did not rise again.
+
+Anakin stood over him, breathing heavily.
+
+The leader of the Confederacy of Independent Systems was dead.
+
+Outside, the Separatist droid force was collapsing as well.
+
+The 479th Division had suffered substantial casualties, but Commander Seb and the surviving clones continued pressing forward.
+
+The remaining B1 units were destroyed.
+
+The B2s fell.
+
+Clone fire overwhelmed the droidekas.
+
+The last MagnaGuards were eliminated.
+
+Eventually, the battlefield fell silent.
+
+Every battle droid Dooku had brought to Scipio had been destroyed.
+
+But the victory had come at a price.
+
+The Banking Clan's main building had been devastated.
+
+Large sections had collapsed.
+
+Walls had been blown apart.
+
+Smoke drifted through shattered corridors.
+
+The once-pristine financial complex had become a ruin.
+
+San Hill needed little time to understand what had happened.
+
+He found Clovis among the surviving Banking Clan officials.
+
+"Clovis."
+
+Clovis turned.
+
+Hill approached furiously.
+
+"You betrayed the Banking Clan."
+
+Clovis stood his ground.
+
+"You betrayed me."
+
+"I did what I had to do to ensure the Banking Clan remains neutral and not controlled by the Separatists."
+
+Hill stared at him.
+
+"You deceived me, Count Dooku, and the entire Separatist Council."
+
+His voice rose.
+
+"What you did is treason toward the Banking Clan."
+
+"My allegiance is not to the Separatists."
+
+Clovis stepped forward.
+
+"My allegiance is only to the good of the Banking Clan."
+
+He gestured toward the battlefield.
+
+"My actions have preserved the independence of the Banking Clan and prevented the Separatists from taking over us."
+
+He held Hill's gaze.
+
+"I repeat that I did nothing wrong."
+
+Hill gestured furiously toward the ruined building.
+
+"The good of the Banking Clan?"
+
+He pointed toward a collapsed section.
+
+"You call destroying half of our main Scipio building good for the Banking Clan?"
+
+"No, of course not."
+
+Clovis looked around at the damage.
+
+"The destruction of our building is indeed unfortunate."
+
+He shook his head.
+
+"This was not an intended consequence of my plan."
+
+"And I did not cause the destruction directly either."
+
+Hill stepped closer.
+
+"But you are still responsible for it."
+
+Clovis frowned.
+
+"Without your actions and your decisions, the building would have been perfectly fine."
+
+"But still."
+
+Clovis gestured toward Dooku's fallen forces.
+
+"The threat of the Separatists seizing us has been permanently ended."
+
+He looked at Hill.
+
+"At least you have to give me credit for that, right?"
+
+"No, Clovis."
+
+Hill's expression hardened.
+
+"You are a traitor."
+
+He turned toward the Banking Clan guards.
+
+"Arrest him now!"
+
+The guards moved toward Clovis.
+
+Then another voice interrupted them.
+
+"No."
+
+Everyone turned.
+
+Anakin had arrived moments earlier.
+
+He walked forward.
+
+"You will not arrest Clovis."
+
+Hill glared at him.
+
+"Who are you to tell me what to do?"
+
+His lip curled.
+
+"You Republic scum."
+
+Anakin's lightsaber ignited.
+
+The blue blade illuminated his face.
+
+"Let him go."
+
+He took one step forward.
+
+"Now."
+
+Hill stared at him.
+
+"Oh, you think your little threats will work against me, huh?"
+
+Anakin took another step.
+
+He raised his lightsaber.
+
+"I'm serious."
+
+This time, Hill stopped.
+
+Fear entered his eyes.
+
+He looked at the guards.
+
+Then at Anakin.
+
+Hill knew perfectly well that his security personnel could not realistically stop someone as personally powerful as Anakin Skywalker.
+
+He changed tactics.
+
+"Your actions here have hurt the relationship between the Banking Clan and the Galactic Republic."
+
+Anakin remained silent.
+
+"If you continue to oppose us, the Republic will surely blame you when we no longer do business with the Republic."
+
+Hill pointed toward him.
+
+"And that will hurt your reputation."
+
+Anakin stared at Hill for a moment.
+
+Then he almost smiled.
+
+"I just killed the leader of the Confederacy of Independent Systems."
+
+Hill's expression tightened.
+
+"I am sure the Republic will see much greater value in that than any friction caused with the Banking Clan."
+
+Anakin lowered his blade slightly.
+
+"So no. I think my reputation is not on the line."
+
+Hill groaned.
+
+"Besides..."
+
+Anakin continued.
+
+"If you choose to no longer do business with the Republic because of what we did, then it's your loss."
+
+Hill said nothing.
+
+"The Banking Clan will lose money by no longer offering loans to the Republic."
+
+Anakin shrugged.
+
+"So trying to punish me by boycotting the Republic will only hurt you and the Banking Clan, not me."
+
+Hill looked down.
+
+He knew Anakin was right.
+
+His pride prevented him from admitting it.
+
+Finally, he turned toward Clovis.
+
+"Fine."
+
+His voice was bitter.
+
+"Clovis, you are fired from the Banking Clan."
+
+Clovis stared back at him.
+
+"Go have fun with your new Republic buddies."
+
+Clovis smiled.
+
+"Oh, I will."
+
+Hill permitted him to leave.
+
+Not long afterward, Clovis joined Anakin aboard the flagship, where Padmé and the twins had been waiting for their return.
+
+Once the immediate reports from the battle had been handled, Clovis approached Anakin.
+
+"I cannot believe that you saved me there."
+
+Anakin looked at him.
+
+"After all that you have done, I owe you that one."
+
+Clovis shook his head.
+
+"You have every reason to hate me."
+
+"Because of Padmé?"
+
+Anakin shrugged.
+
+"Clovis, the past is the past."
+
+He held out his hand slightly.
+
+"We can move on from that now."
+
+Clovis looked genuinely touched.
+
+"I'm genuinely grateful for your help, Anakin."
+
+"Without your help, we couldn't have defeated Dooku."
+
+Clovis nodded.
+
+"And without your help, Chairman Hill would have dumped me into a prison or even executed me."
+
+Padmé smiled at both of them.
+
+"And this is why cooperation leads to great results."
+
+Anakin looked toward Clovis.
+
+Clovis extended his hand.
+
+This time there was no hesitation.
+
+Anakin shook it.
+
+Later, once the excitement of the battle had subsided, Clovis sat quietly aboard the flagship.
+
+The reality of what had happened was beginning to settle over him.
+
+"I spent my entire life working for the good of the Banking Clan."
+
+Padmé sat across from him.
+
+"And they just kicked me out like this."
+
+Clovis looked down at his hands.
+
+"I don't even know what I can do anymore."
+
+Padmé listened quietly.
+
+Then she said,
+
+"You treated the Banking Clan like your home."
+
+Clovis looked up.
+
+"They treated you like a disposable pawn."
+
+She leaned forward.
+
+"The instant you did something that they did not approve of, they threw you away."
+
+Clovis was silent.
+
+After a moment he nodded.
+
+"...You are right, Padmé."
+
+"Remember what we told you about learning to move on from me after I rejected you romantically?"
+
+Clovis gave her a tired look.
+
+"Yes."
+
+"I think that lesson applies here too."
+
+She gestured toward him.
+
+"Learning to move on from the Banking Clan after they rejected you professionally would also be good for you."
+
+Clovis thought about that.
+
+Then he nodded.
+
+"So how exactly should I move on?"
+
+"Well..."
+
+Padmé smiled.
+
+"Get a new job."
+
+Clovis stared at her.
+
+"That's your advice?"
+
+"It's a start."
+
+She continued.
+
+"You could always work for the Republic."
+
+Clovis grimaced.
+
+Padmé ignored the reaction.
+
+"Soon the galaxy will learn that you were instrumental in causing the downfall of Dooku."
+
+She smiled.
+
+"The Republic will see you as a hero."
+
+Clovis considered that.
+
+"I'm sure we can find whatever job you want for you."
+
+Padmé thought for a moment.
+
+"Maybe you could work for the Ministry of Finance. Your extensive experience working with the Banking Clan would be of great value to the Republic."
+
+Clovis leaned back.
+
+"Ugh..."
+
+He sighed.
+
+"I don't exactly like the Republic."
+
+"I know."
+
+He stared toward the viewport for several seconds.
+
+Then his shoulders dropped.
+
+"...But I admit that this is probably the best choice for me now."
+
+Padmé nodded.
+
+"I will give you a personal recommendation to the Ministry of Finance."
+
+Clovis looked toward her.
+
+"Thank you."
+
+Anakin, who had been listening nearby, stepped forward.
+
+"I will as well."
+
+Clovis looked surprised.
+
+"Oh, Anakin, you don't have to..."
+
+"Don't worry about it."
+
+Anakin smiled.
+
+"It is my pleasure to help you..."
+
+He paused.
+
+"...as a friend."
+
+Clovis stared at him for a moment.
+
+Years of jealousy, distrust, deception, rivalry, and resentment had once defined almost every interaction between them.
+
+Now Dooku was dead.
+
+The Banking Clan remained independent.
+
+Clovis had sacrificed the career around which he had built his life to make that victory possible.
+
+And when his former colleagues had turned against him, Anakin had been the one who stepped forward to protect him.
+
+Clovis smiled.
+
+"Thank you, my friend."
+
+---
+
+# Branch B: Part 12
+
+Soon after the death of Count Dooku on Scipio, the surviving leadership of the Confederacy of Independent Systems convened at its headquarters on Utapau.
+
+Dooku's death had fundamentally changed their position.
+
+The Republic was growing stronger. The Confederacy had lost the Sith Lord who had led it throughout the war, and the Separatist Council could no longer ignore the possibility that continued fighting might end with their own deaths or imprisonment.
+
+Nute Gunray met privately with General Grievous to discuss what came next.
+
+"The Republic is getting stronger," Nute said. "I fear that if this war continues, we will face the same fate as Count Dooku."
+
+Grievous stared at him.
+
+"And so what do you recommend?"
+
+"Perhaps we can negotiate an end to this war."
+
+Nute leaned forward.
+
+"That way, we can all make it out of the war alive."
+
+"Will the Republic be reasonable?"
+
+"We should emphasize that Count Dooku was a Sith Lord, and so now that he has been defeated, the Republic has nothing to worry about from us."
+
+Grievous narrowed his eyes.
+
+"What are you suggesting?"
+
+"We should paint ourselves as victims."
+
+Grievous stared at him.
+
+Nute continued.
+
+"We say that the Confederacy started as a good cause because we didn't want to be ruled by the corrupt Republic."
+
+He gestured broadly.
+
+"And then our movement was hijacked by Dooku, a Sith Lord, against our wills."
+
+Grievous remained silent.
+
+"And now that Dooku has been eliminated, we emphasize the legitimate side of the Confederacy and say that we are relieved that we are finally no longer manipulated by the Sith."
+
+Grievous recoiled.
+
+"You want us to betray our former leader?"
+
+His mechanical voice rose.
+
+"He was our master!"
+
+"I'm just being practical and pragmatic."
+
+Nute pointed toward him.
+
+"General, if you want the Confederacy to remain independent, and if you want all of us to stay alive and stay out of prison, you should do what I say."
+
+Grievous considered the proposal.
+
+"So we throw Dooku under the bus in order to ensure that we receive better treatment?"
+
+"Exactly."
+
+Nute shrugged.
+
+"Dooku is dead already anyway. What harm would come of this strategy?"
+
+Grievous remained silent.
+
+Then he slowly nodded.
+
+"...Good point."
+
+He turned toward the other Separatist leaders.
+
+"Very well, then."
+
+He looked back at Nute.
+
+"We shall follow your lead."
+
+The Separatist leadership began preparing a formal request for peace negotiations with the Galactic Republic.
+
+On Coruscant, the request soon reached the Galactic Senate.
+
+Supreme Chancellor Bail Organa stood before the chamber and summarized the Confederacy's proposal.
+
+"They say that they legitimately want to rule themselves independently from the Republic."
+
+Senators listened intently.
+
+"They seek only independence, not conquest."
+
+Bail continued.
+
+"They say they never wanted to attack Republic territory, but that the Sith Lord Count Dooku hijacked their movement and forced them to change their strategy from independence to conquest, which is why they had been attacking Republic territory over the past few years."
+
+Murmurs spread through the chamber.
+
+"And they say that now that Count Dooku is dead, the Confederacy would like a chance to return to its original goal of independence."
+
+Bail paused.
+
+"They have promised never to attack the Republic again if the Republic agrees to end the war and formally grant independence to the Confederacy."
+
+The Senate erupted into debate.
+
+Some senators were deeply skeptical.
+
+"The Separatist leadership supported Dooku for years," one senator argued. "Now that he is dead, they suddenly expect us to believe they were unwilling participants?"
+
+Another demanded harsher terms.
+
+"They invaded Republic worlds. They destroyed cities. They killed Republic citizens. There must be consequences."
+
+But others were exhausted by years of war.
+
+"If they genuinely offer peace, we would be irresponsible not to explore it."
+
+Another senator agreed.
+
+"How many more clones must die before we decide enough is enough?"
+
+Some questioned the Separatists' newfound hostility toward their fallen leader.
+
+Others believed there was truth behind their claims.
+
+The Confederacy had originally attracted worlds with genuine grievances against the Republic. Corruption, ineffective governance, political neglect, and resentment toward Coruscant had all contributed to the Separatist movement long before the full scale of the war became apparent.
+
+Perhaps, some senators argued, Dooku truly had manipulated an otherwise legitimate movement for his own purposes.
+
+The debate continued.
+
+Eventually, the Senate voted.
+
+The Separatist request was approved.
+
+Formal peace negotiations began.
+
+The process was difficult.
+
+Neither side trusted the other.
+
+The Confederacy refused to surrender its independence.
+
+The Republic refused to recognize an unrestricted Separatist military state without guarantees against another war.
+
+Territorial disputes consumed weeks of negotiations.
+
+Disarmament requirements produced further arguments.
+
+Political recognition proved equally contentious.
+
+But neither side abandoned the talks.
+
+After a few months, an agreement was finally reached.
+
+Delegations from the Galactic Republic and the Confederacy of Independent Systems traveled to the neutral world of Corellia.
+
+There, representatives of both governments gathered for the signing of the peace treaty.
+
+The terms were historic.
+
+The Galactic Republic formally acknowledged and recognized the Confederacy of Independent Systems as an independent, sovereign, legitimate political entity.
+
+The Confederacy received legal jurisdiction over the worlds it controlled at the exact moment the treaty was signed.
+
+In return, the Confederacy accepted substantial military disarmament.
+
+Four representatives approached the treaty.
+
+Supreme Chancellor Bail Organa signed first as the political leader of the Galactic Republic.
+
+Jedi General Yoda signed as one of the Republic's foremost military leaders.
+
+Viceroy Nute Gunray signed on behalf of the political leadership of the Confederacy.
+
+General Grievous signed on behalf of its military leadership.
+
+The completed treaty was presented to both delegations.
+
+For a moment, the room was silent.
+
+Then Bail extended his hand toward Nute.
+
+"The war is over."
+
+Nute looked at the offered hand.
+
+After a moment, he accepted it.
+
+"Yes."
+
+Yoda looked toward Grievous.
+
+"Lasting, may this peace be."
+
+Grievous regarded him carefully.
+
+"We shall see, Jedi."
+
+With the completion of the signing ceremony, the Clone Wars were finally over.
+
+Across countless worlds, the news spread almost instantly.
+
+Clone troopers received orders to cease offensive operations.
+
+Battle droid armies were instructed to stand down.
+
+Republic and Separatist fleets that had spent years preparing to destroy one another began withdrawing from contested regions.
+
+After so many years of fighting, the galaxy was finally at peace.
+
+The end of the war also brought fundamental changes to the Grand Army of the Republic.
+
+Eventually, the cloning facilities on Kamino were shut down.
+
+The Republic formally recognized the rights of the clones who had fought on its behalf.
+
+Every surviving clone trooper received legal personhood and Republic citizenship.
+
+The men who had once been created specifically to serve as soldiers were finally recognized as citizens with the right to determine the course of their own lives.
+
+The Confederacy began implementing its own obligations under the peace treaty.
+
+Battle droid production was substantially reduced.
+
+Many enormous factories that had once manufactured B1 battle droids, B2 super battle droids, and other military machines transitioned toward civilian production.
+
+Industrial droids, construction units, agricultural machines, and other civilian models began rolling from assembly lines that had once existed primarily to supply armies.
+
+The galaxy entered a new political era.
+
+Two great powers now faced one another.
+
+The Galactic Republic.
+
+And the Confederacy of Independent Systems.
+
+Their peace was fragile.
+
+Neither trusted the other completely.
+
+Both remained aware that another war was possible.
+
+But after years of intense fighting, almost nobody wanted to see one begin anytime soon.
+
+For the moment, that shared exhaustion gave the peace a chance to endure.
+
+A few months later, Padmé Amidala and Anakin Skywalker sat together in their apartment on Coruscant.
+
+The apartment was quieter than it had been during the war. Luke and Leia were asleep in the next room, while R2-D2 and C-3PO remained nearby, keeping watch over the children.
+
+Padmé sat beside Anakin on the couch.
+
+"I think I'm going to resign from the Senate."
+
+Anakin looked at her.
+
+"You're sure?"
+
+Padmé nodded.
+
+"The war is over."
+
+She glanced toward the apartment's window, beyond which the lights of Coruscant stretched endlessly into the distance.
+
+"The galaxy has returned to something resembling stability, and the Republic is in good hands under Chancellor Organa."
+
+She smiled faintly.
+
+"I don't think I'm as indispensable as I once was."
+
+Anakin listened.
+
+"And..."
+
+She sighed.
+
+"I'm tired, Ani."
+
+He took her hand.
+
+"I've spent years dealing with the Senate, intelligence operations, military campaigns, political crises, and everything else this war threw at us."
+
+She leaned against him.
+
+"I'd like a break from everything."
+
+Anakin smiled.
+
+"Then take one."
+
+Padmé looked at him.
+
+"You support this?"
+
+"Of course."
+
+His own commission as Republic General had ended with the conclusion of the war. For the first time in years, neither of them had military campaigns demanding their presence.
+
+"We're finally free," Anakin said.
+
+Padmé smiled.
+
+"Then let's use that freedom."
+
+They decided to focus on raising Luke and Leia together on Naboo.
+
+Soon afterward, Anakin, Padmé, Luke, Leia, R2-D2, and C-3PO traveled to Varykino Villa.
+
+When they arrived, however, something seemed wrong.
+
+Anakin walked through the entrance.
+
+"Mom?"
+
+No answer.
+
+Padmé checked another room.
+
+"Shmi?"
+
+Nothing.
+
+Luke looked around.
+
+"Where is everyone?"
+
+Leia peered into another room.
+
+"They're gone."
+
+Anakin frowned.
+
+The villa was empty.
+
+"Where did they go?"
+
+He entered the living room.
+
+A single note sat on the table.
+
+Anakin picked it up.
+
+It read:
+
+"We have moved to a new home in Theed. Our address is 284 Garden Plaza. Come visit us when you're free! Love, Shmi"
+
+Anakin stared at the note.
+
+"Huh?"
+
+He looked at Padmé.
+
+"Why did they move?"
+
+Padmé's eyebrows rose.
+
+"284 Garden Plaza?"
+
+"Yeah."
+
+She smiled knowingly.
+
+"That address is in the same neighbourhood as my family."
+
+Anakin looked at her.
+
+"I suspect my family had something to do with this."
+
+"Well..."
+
+He folded the note.
+
+"Let's go check it out."
+
+They traveled to Theed and soon arrived at 284 Garden Plaza.
+
+The home was considerably different from the moisture farm the Lars family had once occupied on Tatooine.
+
+Anakin approached the door.
+
+Before long, they were inside.
+
+Then both Anakin and Padmé stopped.
+
+Shmi was there.
+
+Cliegg was there.
+
+Owen and Beru were there.
+
+But so were Ruwee, Jobal, Sola, Ryoo, and Pooja Naberrie.
+
+Sola immediately stood.
+
+"Padmé!"
+
+She crossed the room and embraced her sister.
+
+"It's so good to see you."
+
+Padmé returned the hug.
+
+"What are you doing here?"
+
+"Visiting the Larses."
+
+Padmé blinked.
+
+Anakin looked around the room.
+
+"The Larses."
+
+"Yes."
+
+Anakin looked at Padmé.
+
+Padmé looked at Anakin.
+
+They were both thoroughly confused.
+
+Once everyone had settled down, Shmi smiled.
+
+"I suppose we should explain."
+
+"Please do," Anakin said.
+
+Shmi began.
+
+"So, we were all living normally in the villa."
+
+Sola immediately interrupted.
+
+"Then one day, a stranger arrived and let herself in."
+
+Padmé looked at her.
+
+Sola pointed toward herself.
+
+"That 'stranger' was me."
+
+Anakin laughed.
+
+"I let myself in because I knew the security code on the keypad."
+
+Padmé suddenly remembered.
+
+"Oh..."
+
+She put a hand against her forehead.
+
+"Right. I gave you the security code so you can visit the villa and use it as a vacation home anytime you like."
+
+Jobal nodded.
+
+"Which is exactly why we went there."
+
+She smiled.
+
+"We thought it would be just another ordinary vacation by the lakeside."
+
+Her smile widened.
+
+"Instead..."
+
+Owen continued.
+
+"Sola walked in and found me."
+
+Sola laughed.
+
+"We were both shocked at each other."
+
+Owen nodded.
+
+"But we introduced ourselves."
+
+"And then," Sola said, "Shmi dropped the bomb."
+
+Shmi smiled innocently.
+
+"Sola asked me why we were living in the villa."
+
+Padmé already knew where this was going.
+
+"Oh no."
+
+"I told her that Padmé gave us permission to live there."
+
+Shmi continued.
+
+"She then asked me how we knew Padmé."
+
+Anakin slowly covered his face.
+
+"And that's when I told her that Padmé is my daughter-in-law."
+
+Anakin looked up.
+
+"Oh my stars."
+
+Ruwee folded his arms and looked toward his daughter.
+
+"Padmé, this was how we had to find out that you were married."
+
+Padmé looked deeply embarrassed.
+
+"I'm sorry, Dad."
+
+She sighed.
+
+"At first we had to keep it a secret."
+
+She hesitated.
+
+"Then..."
+
+Everyone waited.
+
+"...I genuinely just forgot."
+
+Anakin stared at her.
+
+"You forgot to tell your parents we're married?"
+
+"There was a war!"
+
+Ruwee laughed softly.
+
+"Don't worry about it, dear."
+
+Padmé looked toward him.
+
+"I understand how stressful this war has been for you."
+
+Padmé smiled gratefully.
+
+Beru picked up the story.
+
+"Anyway, all of us lived together for a week and got to know one another quite well."
+
+She looked toward Ryoo and Pooja.
+
+"Ryoo and Pooja were adorable."
+
+Cliegg laughed.
+
+"And they asked me to tell them everything about Tatooine and moisture farming."
+
+Pooja smiled.
+
+Cliegg shook his head fondly.
+
+"Boy, were they curious."
+
+Owen continued.
+
+"At the end of the week, the Naberries offered us a tour of Theed."
+
+Beru nodded.
+
+"We liked it so much that we decided to move here."
+
+She gestured around the house.
+
+"And they were really generous to help us financially."
+
+Owen nodded.
+
+"If it weren't for them, we couldn't afford to buy this place."
+
+Jobal smiled warmly.
+
+"You are all family."
+
+She looked around at both families.
+
+"We will always be happy to help."
+
+Shmi spread her hands.
+
+"And that is the story of why we live here now."
+
+Sola leaned forward.
+
+"...Any questions or comments?"
+
+Padmé looked at her sister.
+
+"I knew you were involved in this as soon as I saw the address."
+
+Sola chuckled.
+
+"Fair enough."
+
+She gestured around them.
+
+"They deliberately chose a home in the same neighbourhood as us because they liked it so much."
+
+Padmé smiled mischievously.
+
+"Not because they liked you guys so much?"
+
+Beru laughed.
+
+"That too."
+
+Anakin looked around at everyone.
+
+"Well..."
+
+He smiled.
+
+"I'm happy that all of you are now friends."
+
+While the adults continued talking, the younger members of the family were engaged in an entirely different activity.
+
+R2-D2 sped through the house.
+
+Ryoo chased him.
+
+Pooja followed.
+
+Luke and Leia ran behind them.
+
+R2 emitted a series of excited whistles as all 4 children attempted to catch him.
+
+"Artoo!" Luke shouted.
+
+"Come back!" Leia yelled.
+
+The astromech accelerated.
+
+C-3PO watched from the doorway.
+
+"Really, Artoo! You are encouraging them!"
+
+R2 whistled innocently.
+
+"You most certainly are!"
+
+The children laughed and continued the chase.
+
+Eventually, evening approached.
+
+Anakin and Padmé prepared to return to Varykino with Luke, Leia, R2-D2, and C-3PO.
+
+As R2 rolled toward the door, Pooja suddenly wrapped her arms around his cylindrical body.
+
+"Can we keep R2?"
+
+Anakin stopped.
+
+"Uh..."
+
+R2 whistled.
+
+Anakin shook his head.
+
+"No, sorry."
+
+Pooja looked devastated.
+
+Ryoo did too.
+
+Sola walked over.
+
+"We'll get you your own astromech when you're a bit older."
+
+Pooja reluctantly released R2.
+
+Ryoo sighed.
+
+Both girls remained disappointed, but they understood.
+
+R2 rolled back toward Anakin.
+
+"Come on, R2."
+
+The astromech beeped a farewell.
+
+Soon afterward, Anakin and Padmé returned to Varykino with their children and droids.
+
+For the first time in many years, there was no military deployment waiting for Anakin.
+
+No emergency Senate session awaited Padmé.
+
+No Separatist fleet was approaching another world.
+
+No campaign demanded that they leave their children behind.
+
+The Skywalker family settled permanently into the peaceful lakeside villa.
+
+Anakin and Padmé devoted themselves to raising Luke and Leia.
+
+R2-D2 and C-3PO remained constant members of the household, always ready to help with the children, even if Threepio frequently complained that R2's definition of "helping" was highly questionable.
+
+In Theed, the Lars and Naberrie families continued living in the same neighbourhood.
+
+The friendship that had begun through an unexpected encounter at Varykino became a lasting bond between the two families.
+
+On Coruscant, Rush Clovis began his new career in the Republic's Ministry of Finance.
+
+Leaving the Banking Clan had once seemed to him like the destruction of everything he had spent his life building.
+
+Instead, he found himself enjoying his new work.
+
+He had moved on.
+
+Across the galaxy, the Republic and the Confederacy continued adjusting to an uneasy coexistence.
+
+Disagreements remained.
+
+Distrust remained.
+
+The peace remained fragile.
+
+But it remained peace.
+
+And after years of war, that was enough.
+
+At Varykino, evenings often ended with Anakin and Padmé sitting together overlooking the lake while Luke and Leia played nearby.
+
+Their children would know the Clone Wars only through the stories told by those who had lived through them.
+
+Anakin no longer commanded armies.
+
+Padmé no longer carried the burdens of the Senate.
+
+Their families were safe.
+
+Their friends had found new lives.
+
+And the galaxy, divided but finally quiet, continued forward into an uncertain peace.
+
+For Anakin Skywalker and Padmé Amidala, there was no greater victory than simply being together as Luke and Leia grew up beside the peaceful waters of Naboo.
+
+The war was over.
+
+Their life together had finally begun.
+
+The end.
