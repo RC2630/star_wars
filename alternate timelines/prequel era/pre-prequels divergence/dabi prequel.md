@@ -4412,8 +4412,6 @@ Not a warrior's grin.
 
 A sister's.
 
----
-
 The others took longer.
 
 Satine accepted Bo almost immediately.
