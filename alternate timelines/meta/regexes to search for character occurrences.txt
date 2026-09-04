@@ -72,7 +72,7 @@ character counts (last updated 2026/9/4):
 
 Anakin Skywalker / Darth Vader: 6487
 Padmé Amidala: 3737
-Obi-Wan Kenobi: 2755
+Obi-Wan Kenobi: 2774
 Sheev Palpatine / Darth Sidious: 1592
 Luke Skywalker: 1349
 Leia Organa: 1258
