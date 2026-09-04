@@ -1,3 +1,6 @@
+include: alternate timelines/*
+exclude: alternate timelines/meta/*,alternate timelines\OT era\mustafar divergence\branches of mustafar divergence.md,alternate timelines/legends/*
+
 Anakin/Vader: (?<![a-zA-Z])((Anakin)|(Vader))(?![a-zA-Z])
 Padmé: (?<![a-zA-Z])((Padmé)|(Amidala))(?![a-zA-Z]) - (?<![a-zA-Z])(Padmé Amidala)(?![a-zA-Z])
 Luke: (?<![a-zA-Z])(Luke)(?![a-zA-Z])
@@ -62,3 +65,72 @@ Rey: (?<![a-zA-Z])(Rey)(?![a-zA-Z])
 Snoke: (?<![a-zA-Z])(Snoke)(?![a-zA-Z])
 Ben/Kylo: (?<![a-zA-Z])((Ben)|(Kylo)|(Ren))(?![a-zA-Z]) - (?<![a-zA-Z])(Kylo Ren)(?![a-zA-Z])
 Grogu: (?<![a-zA-Z])(Grogu)(?![a-zA-Z])
+
+---
+
+character counts (last updated 2026/9/4):
+
+Anakin Skywalker / Darth Vader: 6487
+Padmé Amidala: 3737
+Obi-Wan Kenobi: 2755
+Sheev Palpatine / Darth Sidious: 1592
+Luke Skywalker: 1349
+Leia Organa: 1258
+Yoda: 1179
+Ahsoka Tano: 932
+Mace Windu: 899
+Dooku / Darth Tyranus: 727
+Han Solo: 659
+Satine Kryze: 636
+R2-D2 / R2 / Artoo: 504
+Darth Maul: 498
+C-3PO / Threepio: 492
+Qui-Gon Jinn: 406
+Bail Organa: 397
+Ben Solo / Kylo Ren: 299
+Rey: 248
+Rush Clovis: 243
+Grievous: 241
+Rex: 236
+Shmi Skywalker: 179
+Shaak Ti: 143
+Chewbacca / Chewie: 141
+Lando Calrissian: 136
+Owen Lars: 128
+Sola Naberrie: 127
+Plo Koon: 125
+Kit Fisto: 118
+Bo-Katan Kryze: 111
+Ruwee Naberrie: 108
+Lux Bonteri: 93
+Cliegg Lars: 92
+Beru Lars: 92
+Jabba: 92
+Jobal Naberrie: 91
+Ki-Adi-Mundi: 87
+Saesee Tiin: 86
+Agen Kolar: 85
+Mon Mothma: 78
+Pooja Naberrie: 75
+Wilhuff Tarkin: 70
+Ryoo Naberrie: 68
+Snoke: 60
+Breha Organa: 57
+Nute Gunray: 54
+Jar Jar Binks: 48
+Mas Amedda: 48
+Korkie Kryze: 44
+Pre Vizsla: 41
+San Hill: 34
+Grogu: 31
+Cody: 28
+Jango Fett: 17
+Mina Bonteri: 13
+Fives / CT-5555: 10
+Boba Fett: 9
+Appo: 6
+Gial Ackbar: 6
+Asajj Ventress: 5
+Sate Pestage: 5
+Savage Opress: 3
+Gardulla: 2
