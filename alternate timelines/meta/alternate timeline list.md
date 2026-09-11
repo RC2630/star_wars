@@ -107,7 +107,7 @@ anakin carries out knightfall, but shaak ti intercepts him before he could get t
 **`prequel era/episode III divergence/mustafar divergence/padme discovers obi-wan on skiff.md`:**
 padme discovers obi-wan on the skiff on the way to mustafar and confronts him for hiding on her skiff. in the confrontation, padme shoots obi-wan in the leg to prevent him from forcing her to take the ship to mustafar. as a result, anakin finishes slaughtering the separatists on mustafar then go back to coruscant. anakin says his end of the deal is complete and asks palpatine to teach him how to save padme. palpatine finally reveals that after all he doesn't actually know how to save padme. anakin gets angry at palpatine for misleading him, and they duel. anakin wins, and palpatine dies. anakin spends much of the rest of this timeline repenting for what he had done, especially what he did to the younglings in the jedi temple.
 
-**`OT era/mustafar divergence/mustafar divergence timeline.md`:**
+**`OT era/episode III divergence/anakin agrees to leave with padme.md`:**
 padme manages to talk down anakin on mustafar and convince him to abandon his dark path and stay with her. anakin and padme go into hiding and raise the twins themselves on naboo. anakin spends a lot of time repenting for what he had done. eventually naboo turns into a major base of operations for the rebel alliance as anakin and padme start rebelling against the empire, nearly causing naboo to be destroyed by the death star.
 
 **`prequel era/episode III divergence/mustafar divergence/empress padme.md`:**
@@ -119,21 +119,18 @@ anakin kills obi-wan on mustafar, but yoda also kills sidious on coruscant at th
 **`prequel era/episode III divergence/mustafar divergence/obi-wan rescues anakin on mustafar.md`:**
 obi-wan defeats anakin on mustafar. but instead of leaving him to burn, he rescues the now limbless anakin and carries him back to padme's skiff. while padme undergoes delivery on polis massa, anakin is simultaneously getting new prosthetic limbs. both of them survive, the children are born, and anakin starts his redemption path. anakin and padme raise their children on naboo. a few years later, palpatine finds them and demands that anakin return to serving as his apprentice. anakin refuses, and a duel ensues, in which anakin defeats and kills palpatine.
 
-**`alternate timelines/OT era/padme survives in a coma.md`**
+**`OT era/episode III divergence/padme survives in a coma.md`**
 after giving birth to luke and leia, padme falls into a deep, long-term coma rather than dying. decades later, vader survives sidious' lightning, and lives to truly redeem himself. after years of proving his return to the light through consistent, concrete actions, padme finally reawakens from her coma. padme returns to politics in the aftermath, challenging mon mothma's disarmament policy and running against her for the chancellorship of the new republic.
 
 # original trilogy divergence
 
-**`OT era/early twin discovery/early twin discovery.md`:**
+**`OT era/episode IV divergence/early twin discovery.md`:**
 shortly after the battle of yavin, han solo leaves yavin 4 with his reward money to attempt to pay his debt to jabba. luke and leia start falling in love with each other, and eventually share a passionate kiss. r2-d2, who knows that luke and leia are siblings because his memory was never wiped, intervenes and shows the siblings an old recording of padme giving birth, which prove their siblinghood. upon learning this, luke and leia immediately end their fledgling relationship, and both of them commit to training as jedi together.
 
-**`OT era/early twin discovery/ahch-to mission.md`:**
-this is an extension of the above timeline, which takes place following the battle of endor. now that the empire is crumbling, luke and leia focus on rebuilding a jedi order together. they search many worlds throughout the galaxy for ancient jedi artifacts, archives, and knowledge. eventually, they learn about the first jedi temple on ahch-to, and go on an expedition to that planet.
-
-**`OT era/early twin discovery/early full history discovery.md`:**
+**`OT era/episode IV divergence/early full history discovery.md`:**
 shortly after the battle of yavin, han solo leaves yavin 4 with his reward money to attempt to pay his debt to jabba. luke and leia start falling in love with each other, and eventually share a passionate kiss. r2-d2, who knows that luke and leia are siblings because his memory was never wiped, intervenes and shows the siblings an old recording of padme giving birth, which prove their siblinghood. upon learning this, luke and leia become curious about who their biological parents are. they look for answers but find no clues until pooja naberrie, leia's longterm friend and fellow imperial senator, puts the pieces together and concludes that leia's mother must be padme amidala, pooja's mother's sister. pooja takes luke and leia to naboo, where sola naberrie describes padme's background to the twins. after much clue finding and logical analysis, the twins realize that darth vader is most likely their father.
 
-**`OT era/luke stays on dagobah.md`:**
+**`OT era/episode V divergence/luke stays on dagobah.md`:**
 luke senses his friends in pain while training with yoda on dagobah. he considers leaving to rescue them, but yoda and obi-wan's force spirit talks him down. luke remains on dagobah, continuing his training with yoda.
 
 # sequel trilogy divergence
