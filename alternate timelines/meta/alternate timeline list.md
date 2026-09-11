@@ -31,7 +31,7 @@ anakin trained himself in the knowledge and ways of force healing ever since bec
 **`prequel era/episode II divergence/tatooine divergence/shmi survives (anakin doesn't fall).md`:**
 anakin arrives at the tusken camp a bit earlier than in canon, where shmi is not so far beyond saving. he successfully retrieves her and takes her back to the lars homestead alive, where the lars family quickly take her into mos eisley for medical treatment in a bacta tank. ultimately shmi survived.
 
-**`prequel era/episode II divergence/tatooine divergence/shmi survives (anakin falls).md`:**
+**`OT era/episode II divergence/tatooine divergence/shmi survives (anakin falls).md`:**
 a second Shmi survives because anakin arrives a bit earlier timeline, but this one has anakin actually fully fall to the dark side as in canon. the transition to OT plays similar to canon, except luke is raised by not just owen and beru, but also shmi (his actual grandmother) and cliegg. luke grows up hearing stories about anakin's childhood firsthand from shmi.
 
 **`prequel era/episode II divergence/geonosis & wedding divergence/padme almost dies from gunship fall.md`:**
