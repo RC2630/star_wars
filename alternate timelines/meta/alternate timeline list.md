@@ -119,6 +119,9 @@ anakin kills obi-wan on mustafar, but yoda also kills sidious on coruscant at th
 **`prequel era/episode III divergence/mustafar divergence/obi-wan rescues anakin on mustafar.md`:**
 obi-wan defeats anakin on mustafar. but instead of leaving him to burn, he rescues the now limbless anakin and carries him back to padme's skiff. while padme undergoes delivery on polis massa, anakin is simultaneously getting new prosthetic limbs. both of them survive, the children are born, and anakin starts his redemption path. anakin and padme raise their children on naboo. a few years later, palpatine finds them and demands that anakin return to serving as his apprentice. anakin refuses, and a duel ensues, in which anakin defeats and kills palpatine.
 
+**`alternate timelines/OT era/padme survives in a coma.md`**
+after giving birth to luke and leia, padme falls into a deep, long-term coma rather than dying. decades later, vader survives sidious' lightning, and lives to truly redeem himself. after years of proving his return to the light through consistent, concrete actions, padme finally reawakens from her coma. padme returns to politics in the aftermath, challenging mon mothma's disarmament policy and running against her for the chancellorship of the new republic.
+
 # original trilogy divergence
 
 **`OT era/early twin discovery/early twin discovery.md`:**
