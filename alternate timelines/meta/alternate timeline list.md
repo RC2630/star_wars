@@ -57,6 +57,9 @@ during the clone wars, anakin receives a force vision in which he and padme trav
 **`prequel era/clone wars divergence/maul fails to capture obi-wan and satine.md`:**
 maul attempted to capture obi-wan and satine, but fails. obi-wan and satine safely get away, and having experienced a near-death scenario, they pledge to prioritize each other and eventually marry. after the jedi council grant them an exception, anakin decides to try his own luck and reveals his own marriage, and receives an exception as well.
 
+**`OT era/clone wars divergence/obi-wan and satine raise luke.md`:**
+obi-wan and satine safely escape mandalore, but their ship (the Twilight) takes significant damage in the process and they are forced to land on nearby ossus. satine goes into hiding on ossus, and eventually obi-wan brings infant luke there, and together obi-wan and satine raise luke.
+
 **`prequel era/clone wars divergence/anakin leaves jedi with ahsoka.md`:**
 after ahsoka chooses to leave the jedi order following her trial because she becomes disillusioned with the jedi order, anakin leaves with her in solidarity.
 
@@ -119,7 +122,7 @@ anakin kills obi-wan on mustafar, but yoda also kills sidious on coruscant at th
 **`prequel era/episode III divergence/mustafar divergence/obi-wan rescues anakin on mustafar.md`:**
 obi-wan defeats anakin on mustafar. but instead of leaving him to burn, he rescues the now limbless anakin and carries him back to padme's skiff. while padme undergoes delivery on polis massa, anakin is simultaneously getting new prosthetic limbs. both of them survive, the children are born, and anakin starts his redemption path. anakin and padme raise their children on naboo. a few years later, palpatine finds them and demands that anakin return to serving as his apprentice. anakin refuses, and a duel ensues, in which anakin defeats and kills palpatine.
 
-**`OT era/episode III divergence/padme survives in a coma.md`**
+**`OT era/episode III divergence/padme survives in a coma.md`:**
 after giving birth to luke and leia, padme falls into a deep, long-term coma rather than dying. decades later, vader survives sidious' lightning, and lives to truly redeem himself. after years of proving his return to the light through consistent, concrete actions, padme finally reawakens from her coma. padme returns to politics in the aftermath, challenging mon mothma's disarmament policy and running against her for the chancellorship of the new republic.
 
 # original trilogy divergence
