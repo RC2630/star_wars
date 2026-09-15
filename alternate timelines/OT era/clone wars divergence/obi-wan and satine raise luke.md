@@ -3503,7 +3503,7 @@ Now Luke was stepping into that galaxy on his own.
 # Part 7
 
 - luke learns that vader is his father, and returns to ossus to confront obi-wan over his lie. satine says she told obi-wan not to say it but he insisted and so she's not to blame. luke gets mad at obi-wan but obi-wan explains his reasoning and manages to get luke to calm down.
-- luke tells obi-wan he better not have any other secrets hiding from him, and now is a chance to reveal them all. obi-wan knows he's cornered and reluctantly reveals that leia is luke's brother. luke is shocked but since he gave obi-wan a free pass if he reveals the secrets now, he didn't get mad at obi-wan again.
+- luke tells obi-wan he better not have any other secrets hiding from him, and now is a chance to reveal them all. obi-wan knows he's cornered and reluctantly reveals that leia is luke's sister. luke is shocked but since he gave obi-wan a free pass if he reveals the secrets now, he didn't get mad at obi-wan again.
 - however, unlike the anakin/vader secret which satine knew about luke didn't know, the leia secret was something that even satine didn't know. obi-wan and satine end up in a marital argument about keeping luke deliberately separated from his twin sister for his entire childhood. obi-wan said yoda was the one who came up with the separation idea and he just went along with it. obi-wan told satine to be mad at yoda instead of him. satine tells him he should have stood up to yoda. obi-wan disagrees. eventually luke tells obi-wan and satine that they are being ridiculous and to stop arguing about this. they reconcile.
 
 ---
