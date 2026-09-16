@@ -3502,32 +3502,1034 @@ Now Luke was stepping into that galaxy on his own.
 
 # Part 7
 
-- luke learns that vader is his father, and returns to ossus to confront obi-wan over his lie. satine says she told obi-wan not to say it but he insisted and so she's not to blame. luke gets mad at obi-wan but obi-wan explains his reasoning and manages to get luke to calm down.
-- luke tells obi-wan he better not have any other secrets hiding from him, and now is a chance to reveal them all. obi-wan knows he's cornered and reluctantly reveals that leia is luke's sister. luke is shocked but since he gave obi-wan a free pass if he reveals the secrets now, he didn't get mad at obi-wan again.
-- however, unlike the anakin/vader secret which satine knew about luke didn't know, the leia secret was something that even satine didn't know. obi-wan and satine end up in a marital argument about keeping luke deliberately separated from his twin sister for his entire childhood. obi-wan said yoda was the one who came up with the separation idea and he just went along with it. obi-wan told satine to be mad at yoda instead of him. satine tells him he should have stood up to yoda. obi-wan disagrees. eventually luke tells obi-wan and satine that they are being ridiculous and to stop arguing about this. they reconcile.
+Luke did not return to Ossus for three years.
+
+Then, one day, he suddenly appeared at the farmhouse.
+
+Obi-Wan saw him first.
+
+"Luke, you're back!"
+
+Satine hurried over as well.
+
+"We've missed you a lot!"
+
+Luke did not smile.
+
+"Uncle Obi-Wan, we need to talk."
+
+Obi-Wan and Satine exchanged a glance.
+
+Satine's expression immediately became wary.
+
+"Uh-oh..."
+
+The three of them sat down together.
+
+Luke wasted no time.
+
+"Darth Vader is my father. Uncle, why did you lie to me?"
+
+Obi-Wan froze.
+
+"What... how did you learn that?"
+
+Luke's expression hardened.
+
+"Answer my question first, please."
+
+Obi-Wan sighed.
+
+"I wanted to protect you from the truth. I thought the truth might hurt too much. So I kept it from you."
+
+Luke's anger surfaced immediately.
+
+"Uncle, I don't think you get to decide what I should or should not know. This information is critical! You really should not have kept it from me."
+
+Satine spoke up at once.
+
+"For the record, I told your uncle not to lie to you. He refused. I tried to reason with him, but he wasn't having it. So don't blame me."
+
+Luke turned toward her.
+
+"Don't worry, I believe you. You don't seem like the kind of person to lie to me."
+
+Obi-Wan leaned forward.
+
+"Alright, listen here, Luke, I think I owe you an explanation."
+
+Luke looked back at him.
+
+"Oh yeah?"
+
+"When Anakin Skywalker fell to the dark side and became Darth Vader, in my mind Anakin was dead and was consumed by Vader. Although they may be the same physical being, they are not the same person to me. So from a certain point of view... I did not lie to you."
+
+Luke stared at him.
+
+"Do you truly think this, or are you just saying this now to save yourself?"
+
+Satine looked toward Obi-Wan.
+
+"He never told me this."
+
+Obi-Wan turned to her.
+
+"Doesn't mean I don't mean it!"
+
+Satine frowned.
+
+"Well if you truly thought this, I thought maybe I deserved to know."
+
+"Look, let's not argue about this now. All of you have to admit that there is at least some valid logic in this belief, right?"
+
+Luke looked unconvinced.
+
+"That it's true that Vader killed Anakin because Anakin was consumed by Vader when he fell to the dark side? Sounds like nonsense to me..."
+
+Obi-Wan shook his head.
+
+"Luke, you have to look at it from the point of view of the Force. You have to understand how the light and dark sides work. When one falls, they truly become consumed so thoroughly by the dark side that their previous light-side identity no longer exists. To the Force, that identity is completely gone."
+
+Luke studied him.
+
+"Completely gone? Do you not believe that someone who fell to the dark side can be redeemed?"
+
+Obi-Wan hesitated.
+
+"I can't say for certain, but at least in Vader's case, I don't have high hopes for redemption."
+
+Luke thought about that for a moment.
+
+Then his expression became determined.
+
+"Then I shall prove you wrong!"
+
+Obi-Wan raised an eyebrow.
+
+"And how are you going to try?"
+
+Luke paused.
+
+"...I don't know yet. We shall see."
+
+Obi-Wan sighed.
+
+"In any case, Luke, think about what I said. In time I hope that you will accept it."
+
+They left the matter there for the time being.
+
+The next time the three of them sat down together, Luke was calmer.
+
+"I have thought about what you said for a long time now. I think I can accept it for now."
+
+Obi-Wan looked relieved.
+
+"Thank you, Luke. I really hoped that this would not have come between us."
+
+Satine looked at Luke.
+
+"Luke, you're much more forgiving than I would have been. I respect that a lot."
+
+Luke turned back toward Obi-Wan.
+
+"Okay, Uncle, you better not have any other secrets that you kept from me. I'm giving you this one chance to reveal anything else you know that I don't. I promise I won't get mad at you if you say it now. But this is your only chance."
+
+Obi-Wan considered that for a long moment.
+
+Then he realized he was truly cornered.
+
+He sighed reluctantly.
+
+"Luke... Princess Leia Organa is your twin sister."
+
+Luke stared at him in absolute shock.
+
+"I have a twin sister?!"
+
+"Your mother gave birth to twins, Luke."
+
+Luke's expression tightened.
+
+"And you kept this from me for all these years?"
+
+Obi-Wan nodded.
+
+Luke felt anger rise inside him again.
+
+Then he remembered the promise he had just made.
+
+He forced himself to calm down.
+
+"So when I told you that I thought Leia might be Force-sensitive..."
+
+Obi-Wan nodded.
+
+"I already knew. I had to pretend to be surprised at your discovery."
+
+Luke sighed.
+
+"Wow, very convincing acting, Uncle."
+
+Then Obi-Wan noticed something else.
+
+Satine had gone unusually quiet.
+
+A familiar feeling of danger settled over him.
+
+"Satine, what's wrong?"
+
+She looked directly at him.
+
+"I did not know that Luke had a twin sister. You didn't tell me either."
+
+Obi-Wan shifted uncomfortably.
+
+"I know. This is not a secret I was supposed to tell other people."
+
+Satine's expression sharpened.
+
+"So 'other people' includes your own wife too?"
+
+Obi-Wan hesitated.
+
+"I... guess so."
+
+Satine raised her voice.
+
+"You hid the fact that your adopted son has a twin sister not only from him, but from your own wife as well?! Obi-Wan, I think you need to rethink some things."
+
+Obi-Wan lowered his head slightly.
+
+"...I'm sorry, Satine."
+
+She was not finished.
+
+"Besides. You deliberately kept Luke separated from his sister for his entire childhood? Why?! Don't you think Luke deserves to grow up alongside her?"
+
+Obi-Wan looked increasingly defensive.
+
+"...Don't get mad at me. It was Master Yoda who came up with the idea of separating the twins. He said it's to protect the twins and ensure that the Empire and the Sith cannot find them. I simply went along with his plan. So if you are still going to be mad, be mad at Master Yoda instead."
+
+Satine stared at him.
+
+"Master Yoda. The Grand Master of a Force religion that prohibits marriage and discourages attachments. What does he know about family? What does he know about how to raise kids and what's good for them? Of course Yoda would want to separate the twins. I bet he has zero understanding of the importance of sibling bonds!"
+
+Obi-Wan winced.
+
+"Satine..."
+
+"No. You should have stood up to Yoda. You should have told him that you will not let the twins be separated. You should have brought back both Luke and Leia here, and we could have raised them together."
+
+Obi-Wan stared at her in disbelief.
+
+"You want me to stand up to Master Yoda?! You want me to directly defy a superior in the Jedi Order?"
+
+"This is not about Jedi hierarchy, Obi-Wan. This is about common sense. I fail to see how raising both Luke and Leia together here on Ossus would impact their safety."
+
+Obi-Wan shook his head.
+
+"Well, if Yoda believes this is safer, he must have his reasons."
+
+"Or he could have just invented that reason. Protection is not his true motive."
+
+Obi-Wan frowned.
+
+"Then what is?"
+
+"Preventing Luke and Leia from becoming attached to each other. Yoda fears attachments, Obi-Wan. He likely saw this as a convenient way to ensure that no attachment could ever form between the twins."
+
+Obi-Wan immediately rejected the idea.
+
+"I don't believe this. Yoda doesn't seem like the type to invent a reason and hide his true motives."
+
+Luke finally cut in.
+
+"Alright, you two. You are being ridiculous right now. Please cut it out. I'm not even mad at Uncle Obi-Wan for keeping my sister from me. Maybe you should stop arguing about it. It's not worth it."
+
+Obi-Wan and Satine both turned and stared at him.
+
+A long silence followed.
+
+At last, Satine relented.
+
+"Alright then. So be it."
+
+Obi-Wan exhaled.
+
+"Thank you."
+
+Luke looked between them.
+
+"What happened in the past already happened. Let's just focus on keeping ourselves happy and safe, okay?"
+
+Obi-Wan nodded.
+
+Satine hesitated, then nodded as well.
+
+The conversation ended there.
 
 ---
 
 # Part 8
 
-- obi-wan asks luke to visit yoda on dagobah. luke goes and reports that yoda just died, but asked him to rebuild the jedi order and that he had agreed to this request.
-- the emperor has been defeated, vader has been redeemed and died almost right after, and the second death star is gone. the galactic civil war continues. luke returns to ossus and decides to build a jedi temple on his homeworld due to its significance for the jedi through history.
-- luke starts training leia in the jedi way. obi-wan occasionally assists but concludes that luke is mature enough to handle his students by himself.
-- luke is now living in the jedi temple elsewhere on ossus and no longer living with his adopted parents.
+After a few more days at the home on Ossus, Obi-Wan approached Luke with a suggestion.
+
+"Master Yoda is getting old, Luke. Maybe you should pay him a visit on Dagobah. You haven't been there before, right?"
+
+Luke nodded.
+
+"Right. Maybe I should check it out."
+
+"Let me know how Master Yoda is doing."
+
+"Ok, I will."
+
+Luke departed Ossus soon afterward.
+
+A few days later, Obi-Wan received a transmission from him.
+
+"Luke. What's up?"
+
+Luke was quiet for a moment.
+
+"Master Yoda... he just became one with the Force."
+
+Obi-Wan lowered his gaze.
+
+"Ah. I guess the time has come."
+
+"I spent some time with him before that. We talked a lot."
+
+"What did he tell you?"
+
+"He asked me to rebuild the Jedi Order. I agreed."
+
+Obi-Wan looked at him with pride and seriousness in equal measure.
+
+"Luke, you will be the future of the Jedi. This is a great responsibility. Be careful, but I know you can do it."
+
+Luke nodded.
+
+"Thank you, Uncle."
+
+About a year passed before Luke finally returned to Ossus.
+
+This time, he arrived with news that immediately changed the atmosphere in the farmhouse.
+
+"Great news! I think this war may finally be in our favour now. The Emperor is dead, the second Death Star has been destroyed, and Vader died shortly after he was redeemed."
+
+Obi-Wan stared at him.
+
+"Vader was redeemed? What happened?"
+
+Luke sat down.
+
+"Turns out attachments may truly be a good thing. He was too attached to me as a son, and he couldn't stand watching Palpatine cast Force lightning at me. So he decided to betray Palpatine, kill him, and return to the light."
+
+Obi-Wan absorbed that in silence.
+
+Then he asked, "How did he die, then?"
+
+"Palpatine redirected his lightning onto Vader as soon as he realized Vader was turning on him. And that lightning damaged his life support suit which caused him to die."
+
+"I see."
+
+Luke continued.
+
+"I think I should go back to the Rebels soon. The war is not over yet. We still have much work to do."
+
+Satine immediately shook her head.
+
+"Luke, you should rest for a while first. You have fought really hard for years now. You deserve a break."
+
+Obi-Wan added, "And maybe start thinking about rebuilding the Jedi Order now. The war may still last for a long time. Perhaps you don't need to wait until it's finished before honouring Yoda's final request."
+
+Luke thought about that.
+
+"Hmm. You have a good point. I will think about it."
+
+Over the next few days, Luke wrestled with the decision.
+
+Part of him wanted to return to the war immediately. The Empire still existed, and the Rebellion still had work to do.
+
+But Yoda's final request also weighed heavily on him.
+
+In the end, Luke decided to take the first steps toward rebuilding the Jedi.
+
+He and Obi-Wan eventually sat down to discuss what that might look like.
+
+"I'm thinking about building my new Jedi Temple right here on Ossus," Luke said. "After all, this world is historically important for the Jedi and contains lots of Jedi knowledge."
+
+Obi-Wan nodded.
+
+"Good idea. I agree. But you can't just have a temple. You need students. Do you have anyone in mind?"
+
+"Leia."
+
+Obi-Wan listened.
+
+"I've worked with her for many years by this point, and I think she will be a great Jedi. But she has been so dedicated to the Rebellion and to the war that I haven't been able to get her to agree to Jedi training from me so far. But now that Palpatine and Vader are dead and the second Death Star is gone, maybe I can try to see if she has changed her mind."
+
+Obi-Wan considered that.
+
+"If you want, I can help you rebuild the Jedi."
+
+Luke smiled, but shook his head.
+
+"Thank you, Uncle, but I think this should be my own task. After all, it was me specifically who Yoda gave his final request to. I will ask you for help if I ever need it, but I think I can handle this myself for the most part."
+
+Obi-Wan thought about that for a moment.
+
+Luke was no longer the child he had once trained at the farm. He had survived years of war, faced Vader, helped destroy both Death Stars, and watched the old Jedi Order pass fully into history.
+
+At last, Obi-Wan nodded.
+
+"Alright then. I'll be available whenever you need me."
+
+Luke began scouting Ossus for a suitable location.
+
+He eventually chose an area near several previously discovered stashes of ancient Jedi archives, close enough to the old repositories of knowledge to make them useful to the new Order.
+
+Over several months, he constructed the temple.
+
+When it was finally complete, Luke left Ossus and went to find Leia.
+
+Once he did, he made another attempt to persuade her.
+
+"Leia, I know you have been resisting this for a while already, but I truly think it's time now."
+
+Leia gave him a knowing look.
+
+"Let me guess, this is about Jedi training?"
+
+"Exactly. Look, the Emperor is dead. Vader is dead. The second Death Star is destroyed. Maybe we can slow down a little and get you trained in the Force now."
+
+Leia frowned.
+
+"But the war is still raging! The Rebellion still needs me!"
+
+"I know, Leia. But I think knowing the Force can actually help you even within the context of this war. You will be a better combatant. You will be wiser. And you will become an even better leader."
+
+"You say this like it's so easy for me to just up and leave the Rebellion behind..."
+
+"I understand that Jedi training would require some commitment from you. And yes, I admit that it would probably require you to spend some time away from the Rebellion. But trust me, it will be worth it."
+
+Leia sighed.
+
+"Let me think about it."
+
+Luke nodded.
+
+"I have finished constructing a new Jedi Temple on Ossus. It's all completed now. It's ready for you already. All you need to do is come with me to Ossus, and we can start right away."
+
+Leia looked surprised.
+
+"You finished building the temple already? Wow, you are really dedicated to this, huh?"
+
+Luke smiled.
+
+"Of course. The Jedi is my life now."
+
+Leia took time to think.
+
+Luke's commitment was impossible to miss. He had not merely talked about rebuilding the Jedi Order. He had already built a temple and prepared a place for students before she had even agreed to join him.
+
+Eventually, she made her choice.
+
+"I have made up my mind. I'm coming with you to Ossus."
+
+Luke was ecstatic.
+
+"I can't wait to train you, Leia. I am sure you will be a great Jedi!"
+
+The two of them returned to Ossus.
+
+Before going to the new temple, they first stopped at the farmhouse.
+
+Luke entered with Leia beside him.
+
+"Uncle Obi-Wan, Aunt Satine, I brought my sister home!"
+
+Obi-Wan immediately smiled.
+
+"Leia! I haven't seen you in so long. How has life been?"
+
+Leia answered, "It's been going well. Well, certainly better than when Palpatine was still alive."
+
+Satine stepped forward.
+
+"You will always have a home here, Leia. If you ever need any help, we will always be happy to help."
+
+Leia went quiet.
+
+Bail and Breha Organa had died with Alderaan.
+
+Padmé had died in childbirth.
+
+Anakin, after returning to the light, had now died as well.
+
+Leia had never met Satine before this moment and was not deeply familiar with Obi-Wan either, but among the people still alive, they were now the closest thing she had to parent figures.
+
+She appreciated the offer deeply.
+
+"Thank you, Obi-Wan. Thank you, Satine."
+
+Obi-Wan nodded.
+
+"Good luck on your Jedi training."
+
+Leia looked toward Luke.
+
+"I will do my best to learn."
+
+Luke and Leia then left the farmhouse and headed for the new Jedi Temple on Ossus.
+
+There, Luke formally began training Leia in the Force.
+
+Obi-Wan occasionally assisted whenever Luke specifically asked him to, just as they had agreed, but Luke remained the primary instructor at all times.
+
+Luke was finally living full-time on Ossus again.
+
+But he no longer lived with Obi-Wan and Satine.
+
+Now, nearly all of his time was spent at the Jedi Temple, where the work of rebuilding the Jedi Order had begun.
 
 ---
 
 # Part 9
 
-- bo-katan returns to ossus, and announces her plan to liberate mandalore from imperial occupation. bo-katan asks satine if she is still interested in a mandalorian leadership position. satine tells bo-katan that if she wins, she should be the ruler of mandalore moving forward because she has earned it. satine concludes that although she still cares deeply about mandalore, over the years she realized pacifism may not the best option for mandalorian society, and that bo-katan's views and beliefs may be a better fit in the long term.
-- obi-wan offers to help. satine reminds him about agreeing to retire. obi-wan obliges and then points bo-katan to luke's jedi temple.
-- obi-wan wants to give bo-katan the darksaber, but she refuses because by mandalorian tradition you have to defeat the previous wielder in direct combat. obi-wan uses a mind trick to nudge bo-katan into accepting the darksaber as a gift against mandalorian tradition, because he realizes that even if bo-katan wins, she may have trouble uniting all the mandalorians and establishing herself as the legitimate ruler of mandalore if she doesn't possess the darksaber.
-- bo-katan goes there and tells luke and leia about the plan to liberate mandalore. han and chewie are currently engaged in a campaign to liberate kashyyyk from the empire. luke and leia agree to assist bo-katan.
+After Palpatine's death, the Rebel Alliance shifted its focus toward liberating worlds throughout the galaxy from Imperial control.
+
+By this point, the Alliance had reorganized itself into the New Republic. Rather than fight only a handful of major battles, it began supporting liberation campaigns across many different systems. Often, several worlds were fighting for freedom at the same time, and those campaigns gradually spread throughout the galaxy.
+
+Han Solo and Chewbacca had not returned to the Rebellion since transporting Luke, Obi-Wan, Leia, R2, and Threepio to Yavin 4 a few years earlier. Han had collected his reward money and left, taking Chewie with him and returning to the life of a smuggler.
+
+As the liberation campaigns expanded, however, Chewbacca began pulling Han back toward the fight.
+
+One day, Chewie learned that the New Republic was preparing a campaign to liberate Kashyyyk.
+
+That changed everything for him.
+
+Kashyyyk was his homeworld, and Chewie was determined to help free it from Imperial control. He repeatedly nudged and nagged Han until Han finally gave in.
+
+In the end, Han agreed.
+
+Together, Han and Chewie officially joined the New Republic's campaign to liberate Kashyyyk.
+
+Elsewhere, Bo-Katan Kryze reached a similar conclusion about her own homeworld.
+
+For years, Mandalore had remained under Imperial occupation.
+
+Now, with Palpatine dead and worlds across the galaxy rising against the Empire, Bo-Katan decided that the time had finally come for Mandalore to do the same.
+
+She traveled to Ossus and made her way to the farmhouse.
+
+"Obi-Wan, Satine, I think it's now time to liberate Mandalore."
+
+Satine's expression immediately brightened.
+
+"Great. I have been looking forward to this day for a long time."
+
+Bo-Katan looked at her carefully.
+
+"If we succeed, are you still interested in assuming a position in Mandalorian leadership?"
+
+Satine did not answer immediately.
+
+She thought about the question for some time before finally speaking.
+
+"No. If we win, you should be the ruler of Mandalore moving forward, because you have earned it."
+
+Bo-Katan said nothing.
+
+Satine continued.
+
+"Bo-Katan, I still care deeply about Mandalore. I always have. But I have had decades here to reflect, and now I think pacifism may not be the best option for Mandalorian society anymore."
+
+Bo-Katan looked surprised.
+
+"What makes you say that?"
+
+"My views were directly against Mandalorian tradition, and thus they were too divisive. After everything that Mandalore has been through, I would prefer Mandalorians to be united rather than divided again along political lines."
+
+Satine looked directly at her sister.
+
+"Therefore, I think your views and beliefs may be a better fit for Mandalore in the long term."
+
+Bo-Katan was deeply moved.
+
+"Then I will make sure I do a good job as the one leading Mandalore into a new era."
+
+Obi-Wan stepped in.
+
+"I can help you with the liberation."
+
+Before Bo-Katan could respond, Satine cut him off.
+
+"Obi-Wan, you're retired. Stay out of this."
+
+Obi-Wan turned toward her.
+
+"But Mandalore needs..."
+
+"You agreed to the retirement. You need to mean it."
+
+"Can't you make an exception..."
+
+"I'm serious."
+
+Obi-Wan sighed.
+
+Then he fell quiet.
+
+Satine nodded.
+
+"Thank you, Obi-Wan."
+
+Obi-Wan turned back toward Bo-Katan.
+
+"Bo-Katan, since your sister would absolutely not permit me to offer you any direct assistance..."
+
+Satine rolled her eyes.
+
+Obi-Wan ignored her.
+
+"...then perhaps Luke can help you."
+
+Bo-Katan looked interested.
+
+"Luke?"
+
+"He's a very mature Jedi now. He built a temple on this world, and has been training his twin sister Leia for a while now. Maybe you can ask them if they would be interested in helping Mandalore."
+
+Bo-Katan smiled.
+
+"That's great to hear! I will definitely ask them."
+
+Obi-Wan gave her the coordinates of the Jedi Temple.
+
+Bo-Katan was about to leave when Obi-Wan suddenly stopped her.
+
+"One more thing, Bo-Katan."
+
+She turned back.
+
+"Yes?"
+
+"You should take the Darksaber."
+
+Bo-Katan's expression changed.
+
+"Why?"
+
+"Because it will make it much easier to unite the Mandalorian clans and warriors, and for them to all see you as the legitimate ruler of Mandalore."
+
+Bo-Katan immediately shook her head.
+
+"But I cannot just take it from you. By Mandalorian tradition, I must defeat the previous wielder in direct combat in order to earn it."
+
+Obi-Wan sighed.
+
+"Can we skip the Mandalorian superstition? We don't have time for this nonsense. Mandalore needs to be freed, and you need to gain legitimacy. So just take it."
+
+"No. This is not the Mandalorian way."
+
+"Please."
+
+"No."
+
+"At least consider it. Maybe the value that possessing the Darksaber would bring to you and to Mandalore outweighs the problems caused by breaking tradition?"
+
+"No."
+
+Obi-Wan stared at her.
+
+"So you wouldn't even consider it at all?"
+
+"No."
+
+"Look, Bo-Katan. Even if you win against the Empire, you may have trouble uniting all the Mandalorians and establishing yourself as the legitimate ruler of Mandalore if you don't possess the Darksaber."
+
+Bo-Katan's expression hardened.
+
+"You are in no position to tell me that. I know Mandalore far better than you do."
+
+Obi-Wan sighed in resignation.
+
+Then another idea occurred to him.
+
+He extended his hand toward Bo-Katan.
+
+"Bo-Katan, you want to reconsider whether accepting the Darksaber as a gift to facilitate uniting the Mandalorians and gaining legitimacy may be a worthwhile tradeoff to breaking Mandalorian tradition as a one-time exception."
+
+Satine immediately gave Obi-Wan a look.
+
+He ignored her.
+
+Satine considered interfering, then decided against it. She left Obi-Wan and Bo-Katan to settle the matter themselves.
+
+Bo-Katan's expression softened.
+
+"I want to reconsider whether accepting the Darksaber as a gift to facilitate uniting the Mandalorians and gaining legitimacy may be a worthwhile tradeoff to breaking Mandalorian tradition as a one-time exception."
+
+Obi-Wan smiled faintly.
+
+"Thank you, Bo-Katan."
+
+Bo-Katan went into another room in the farmhouse to seriously consider the tradeoff.
+
+A few hours later, she returned.
+
+"Fine. This may actually be worth it. I will accept the Darksaber from you."
+
+Obi-Wan nodded.
+
+"I am glad you have come to this decision."
+
+He presented the Darksaber to her.
+
+Bo-Katan accepted it.
+
+"Good luck."
+
+"Thank you."
+
+With the Darksaber now in her possession, Bo-Katan left the farmhouse and headed toward the Jedi Temple.
+
+When she arrived, she found Luke and Leia sparring.
+
+Bo-Katan approached them.
+
+"Hello, Luke. It's been a while."
+
+Luke lowered his weapon.
+
+"Hello, Bo-Katan. What brings you here?"
+
+"I'm currently organizing a campaign to liberate Mandalore from the Empire. Would you be interested in helping us?"
+
+Luke and Leia immediately perked up.
+
+For both of them, the opportunity offered a direct and meaningful way to rejoin the galaxy's struggle against the Empire.
+
+Leia was especially enthusiastic.
+
+She had already begun feeling guilty about leaving the Rebellion behind in order to pursue Jedi training. Helping liberate Mandalore offered her a chance to continue that training while also returning to the fight against Imperial rule.
+
+Luke answered first.
+
+"Yes."
+
+Leia was even more emphatic.
+
+"We would LOVE to help!"
+
+Bo-Katan nodded.
+
+"Then let's go."
+
+The three of them boarded Bo-Katan's ship.
+
+Soon afterward, they departed Ossus.
+
+Their destination was Mandalore.
 
 ---
 
 # Part 10
 
-- bo-katan leads the mandalorian resistance against the imperial forces occupying mandalore which are led by moff gideon. luke and leia join the assault. the mandalorian warriors of the resistance, led at the front by the three lightsaber users (bo-katan, luke, and leia), fight through a lot of stormtroopers and mandalorian forces loyal to the empire. eventually they succeeded in liberating mandalore. gideon tried to escape, but resistance forces shot down his ship, killing him.
-- bo-katan proclaims herself the new Mand'alor and establishes herself as the new ruler of mandalore.
-- not long after, the galactic civil war concludes with a decisive new republic victory.
+Bo-Katan's ship descended toward Mandalore with Luke and Leia aboard.
+
+Below them, the planet was already erupting into open rebellion.
+
+For years, Imperial forces had held Mandalore under occupation. Moff Gideon commanded the occupation and relied not only on stormtroopers, but also on Mandalorian forces willing to fight on behalf of the Empire.
+
+Now the resistance was rising against them.
+
+Bo-Katan landed near the front.
+
+When the ramp lowered, she stepped out first with the Darksaber in hand.
+
+Luke followed, carrying Anakin Skywalker's old lightsaber.
+
+Leia came beside him with the light blue lightsaber she had constructed under Luke's guidance during her training at the Jedi Temple on Ossus.
+
+Behind them came Mandalorian resistance fighters.
+
+Bo-Katan ignited the Darksaber.
+
+Luke's blue blade came alive beside her.
+
+Leia activated her own light blue blade.
+
+Then the resistance advanced.
+
+Imperial stormtroopers opened fire almost immediately.
+
+Luke and Leia moved to the front.
+
+Blaster bolts poured toward them.
+
+Luke caught one bolt on his blade and redirected it into a stormtrooper position. Leia turned another aside, then another, advancing behind the spinning light of her weapon.
+
+Bo-Katan stayed close beside them.
+
+She did not have the Force guiding her movements, but years of Mandalorian combat training and her familiarity with the Darksaber made her formidable. She stayed behind Luke and Leia whenever incoming fire became too dense, then surged forward whenever they created an opening.
+
+"Push!" Bo-Katan shouted.
+
+The Mandalorian resistance followed.
+
+They crashed into the Imperial line.
+
+Luke leapt into the middle of a stormtrooper formation and struck rapidly, cutting weapons apart and forcing soldiers back.
+
+Leia moved with greater discipline than she had when her training first began. She sensed attacks before they came, shifted out of the path of incoming fire, and used short, controlled strikes rather than wasting movement.
+
+Bo-Katan fought differently from both of them.
+
+She used the Darksaber as one weapon among many.
+
+She blocked with it, fired with her other weapons whenever opportunities appeared, and used traditional Mandalorian combat techniques to break through defenders at close range.
+
+Stormtroopers began falling back.
+
+Imperial-aligned Mandalorians moved in to reinforce them.
+
+The fighting became much harder.
+
+Those warriors knew Mandalorian tactics intimately. They could maneuver through the battlefield with the same speed and aggression as Bo-Katan's resistance fighters.
+
+For a time, the front dissolved into dozens of smaller engagements.
+
+Mandalorians fought Mandalorians.
+
+Blaster fire filled streets and corridors.
+
+Jetpacks roared overhead.
+
+Explosions shook defensive positions.
+
+Through it all, the three lightsaber users remained at the center of the advance.
+
+Luke held one flank almost by himself.
+
+A group of Imperial-aligned Mandalorians descended toward him from above.
+
+Luke looked up.
+
+The Force warned him before they fired.
+
+He moved.
+
+Bolts struck the ground where he had been standing.
+
+Luke raised one hand.
+
+One attacker was pulled sharply off balance and slammed into the ground.
+
+Luke immediately turned and redirected another shot toward a second warrior.
+
+Leia joined him from the side.
+
+"Left!"
+
+Luke moved without asking why.
+
+Leia intercepted an incoming attack that would have caught him from behind.
+
+"Thanks."
+
+"You're welcome."
+
+They continued forward.
+
+Farther ahead, Bo-Katan encountered some of the fiercest resistance.
+
+Several Mandalorians loyal to the Empire tried to stop her advance.
+
+One of them shouted, "You have no claim here!"
+
+Bo-Katan raised the Darksaber.
+
+"I disagree."
+
+They attacked.
+
+Bo-Katan met them head-on.
+
+The Darksaber struck against beskar armor and weapons.
+
+She moved aggressively, forcing one opponent backward, then turned suddenly and drove another away with a heavy strike.
+
+Resistance fighters surged in behind her.
+
+The Imperial line broke.
+
+The rebels advanced deeper into the occupied territory.
+
+Word spread rapidly.
+
+Bo-Katan had returned.
+
+She carried the Darksaber.
+
+And the resistance was winning.
+
+More Mandalorians joined the uprising as the battle continued.
+
+Imperial positions fell one after another.
+
+Stormtroopers were driven from fortified streets.
+
+Weapons emplacements were destroyed.
+
+Imperial-aligned Mandalorian units either retreated or were overwhelmed.
+
+At the front, Luke, Leia, and Bo-Katan kept moving.
+
+Luke's lightsaber flashed blue through smoke.
+
+Leia's light blue blade followed beside it.
+
+The Darksaber cut a black line through the battle whenever Bo-Katan raised it.
+
+Eventually the resistance reached the heart of Imperial control.
+
+By then, Moff Gideon understood that the occupation was collapsing.
+
+He ordered a withdrawal.
+
+Imperial forces began abandoning positions wherever escape was still possible.
+
+Gideon himself fled toward his ship.
+
+Resistance fighters pursued him.
+
+Bo-Katan saw the vessel begin to rise.
+
+"He's getting away!"
+
+Luke looked up.
+
+The ship climbed rapidly.
+
+Mandalorian resistance fighters opened fire.
+
+Heavy weapons joined the attack.
+
+The ship took several hits.
+
+It continued upward.
+
+Then another barrage struck one of its engines.
+
+The vessel lurched.
+
+Smoke poured from the damaged section.
+
+A final series of shots hit the ship as it tried to accelerate away.
+
+The craft lost control.
+
+It fell.
+
+The ship crashed and exploded.
+
+Moff Gideon was killed.
+
+With Gideon dead and organized Imperial resistance collapsing, the remaining occupying forces lost what little cohesion they still had.
+
+Some fought until they were defeated.
+
+Others surrendered.
+
+Others fled.
+
+By the end of the battle, Mandalore was free.
+
+The fighting gradually stopped.
+
+Smoke still drifted over damaged streets and shattered defensive positions, but Imperial control was gone.
+
+Mandalorian resistance fighters gathered around Bo-Katan.
+
+Luke and Leia stood nearby.
+
+Bo-Katan looked across the people assembled before her.
+
+For years, Mandalore had been occupied, divided, and ruled by outsiders.
+
+Now it belonged to Mandalorians again.
+
+Bo-Katan raised the Darksaber.
+
+The gathered warriors grew quiet.
+
+"I will not allow Mandalore to be divided again."
+
+Her voice carried across the crowd.
+
+"We have fought too long against one another while others decided our future for us."
+
+She looked across the Mandalorians gathered there.
+
+"That ends now."
+
+She lifted the Darksaber higher.
+
+"I am Bo-Katan Kryze."
+
+Then she made her claim.
+
+"I am Mand'alor."
+
+The response from the gathered Mandalorians spread outward through the crowd.
+
+Bo-Katan had become the new ruler of Mandalore.
+
+At roughly the same time, another liberation campaign was reaching its own conclusion.
+
+On Kashyyyk, New Republic forces fought alongside Wookiees to break Imperial control of the planet.
+
+Han Solo and Chewbacca had joined that campaign because Chewie refused to stand aside while his homeworld fought for freedom.
+
+The battle was fierce, but the combined effort succeeded.
+
+Imperial forces were driven from Kashyyyk.
+
+The planet was liberated.
+
+For Chewbacca, it meant something deeply personal.
+
+His homeworld was free.
+
+Across the galaxy, similar victories continued to accumulate.
+
+World after world escaped Imperial control.
+
+Imperial military strength steadily collapsed.
+
+Systems that had once feared open resistance now declared for the New Republic.
+
+Remaining Imperial forces lost territory, resources, and support.
+
+Not long afterward, the Galactic Civil War finally ended.
+
+The New Republic emerged victorious.
+
+The Empire that had replaced the Republic and ruled the galaxy through fear was defeated.
+
+Mandalore was free under Bo-Katan.
+
+Kashyyyk was free.
+
+Luke had begun rebuilding the Jedi Order on Ossus.
+
+Leia had become one of his first students.
+
+Obi-Wan and Satine remained together at their home on Ossus, watching a galaxy they had spent so many years resisting finally begin to move beyond Imperial rule.
+
+And after decades of war, occupation, secrecy, loss, and rebellion, peace finally had the chance to begin.
+
+The end.
