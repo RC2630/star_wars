@@ -1,8 +1,3 @@
-include: alternate timelines/*
-exclude: alternate timelines/meta/*
-
----
-
 Anakin Skywalker / Darth Vader: (?<![a-zA-Z])((Anakin)|(Vader))(?![a-zA-Z])
 Padmé Amidala: (?<![a-zA-Z])((Padmé)|(Amidala))(?![a-zA-Z]) - (?<![a-zA-Z])(Padmé Amidala)(?![a-zA-Z])
 Luke Skywalker: (?<![a-zA-Z])(Luke)(?![a-zA-Z])
