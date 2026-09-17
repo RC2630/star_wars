@@ -1,0 +1,464 @@
+include: alternate timelines/*
+exclude: alternate timelines/meta/*
+
+---
+
+Anakin Skywalker / Darth Vader: (?<![a-zA-Z])((Anakin)|(Vader))(?![a-zA-Z])
+Padmé Amidala: (?<![a-zA-Z])((Padmé)|(Amidala))(?![a-zA-Z]) - (?<![a-zA-Z])(Padmé Amidala)(?![a-zA-Z])
+Luke Skywalker: (?<![a-zA-Z])(Luke)(?![a-zA-Z])
+Leia Organa: (?<![a-zA-Z])(Leia)(?![a-zA-Z])
+R2-D2 / R2 / Artoo: (?<![a-zA-Z])((R2)|(Artoo))(?![a-zA-Z])
+C-3PO / Threepio: (?<![a-zA-Z])((C-3PO)|(Threepio))(?![a-zA-Z])
+Obi-Wan Kenobi: (?<![a-zA-Z])((Obi-Wan)|(Kenobi))(?![a-zA-Z]) - (?<![a-zA-Z])(Obi-Wan Kenobi)(?![a-zA-Z])
+Satine Kryze: (?<![a-zA-Z])(Satine)(?![a-zA-Z])
+Qui-Gon Jinn: (?<![a-zA-Z])((Qui-Gon)|(Jinn))(?![a-zA-Z]) - (?<![a-zA-Z])(Qui-Gon Jinn)(?![a-zA-Z])
+Yoda: (?<![a-zA-Z])(Yoda)(?![a-zA-Z])
+Mace Windu: (?<![a-zA-Z])((Mace)|(Windu))(?![a-zA-Z]) - (?<![a-zA-Z])(Mace Windu)(?![a-zA-Z])
+Plo Koon: (?<![a-zA-Z])((Plo)|(Koon))(?![a-zA-Z]) - (?<![a-zA-Z])(Plo Koon)(?![a-zA-Z])
+Ki-Adi-Mundi: (?<![a-zA-Z])((Ki-Adi)|(Mundi))(?![a-zA-Z]) - (?<![a-zA-Z])(Ki-Adi-Mundi)(?![a-zA-Z])
+Kit Fisto: (?<![a-zA-Z])((Kit)|(Fisto))(?![a-zA-Z]) - (?<![a-zA-Z])(Kit Fisto)(?![a-zA-Z])
+Saesee Tiin: (?<![a-zA-Z])((Saesee)|(Tiin))(?![a-zA-Z]) - (?<![a-zA-Z])(Saesee Tiin)(?![a-zA-Z])
+Agen Kolar: (?<![a-zA-Z])((Agen)|(Kolar))(?![a-zA-Z]) - (?<![a-zA-Z])(Agen Kolar)(?![a-zA-Z])
+Bail Organa: (?<![a-zA-Z])(Bail)(?![a-zA-Z])
+Breha Organa: (?<![a-zA-Z])(Breha)(?![a-zA-Z])
+Mon Mothma: (?<![a-zA-Z])((Mon)|(Mothma))(?![a-zA-Z]) - (?<![a-zA-Z])(Mon Mothma)(?![a-zA-Z])
+Ahsoka Tano: (?<![a-zA-Z])((Ahsoka)|(Tano))(?![a-zA-Z]) - (?<![a-zA-Z])(Ahsoka Tano)(?![a-zA-Z])
+Lux Bonteri: (?<![a-zA-Z])(Lux)(?![a-zA-Z])
+Mina Bonteri: (?<![a-zA-Z])(Mina)(?![a-zA-Z])
+Jar Jar Binks: (?<![a-zA-Z])((Jar Jar)|(Binks))(?![a-zA-Z]) - (?<![a-zA-Z])(Jar Jar Binks)(?![a-zA-Z])
+Rex: (?<![a-zA-Z])(Rex)(?![a-zA-Z])
+Cody: (?<![a-zA-Z])(Cody)(?![a-zA-Z])
+Appo: (?<![a-zA-Z])(Appo)(?![a-zA-Z])
+Fives / CT-5555: (?<![a-zA-Z])((Fives)|(CT-5555))(?![a-zA-Z])
+Shaak Ti: (?<![a-zA-Z])((Shaak)|(Ti))(?![a-zA-Z]) - (?<![a-zA-Z])(Shaak Ti)(?![a-zA-Z])
+Rush Clovis: (?<![a-zA-Z])((Rush)|(Clovis))(?![a-zA-Z]) - (?<![a-zA-Z])(Rush Clovis)(?![a-zA-Z])
+Sheev Palpatine / Darth Sidious: (?<![a-zA-Z])((Sheev)|(Palpatine)|(Sidious))(?![a-zA-Z]) - (?<![a-zA-Z])(Sheev Palpatine)(?![a-zA-Z])
+Dooku / Darth Tyranus: (?<![a-zA-Z])((Dooku)|(Tyranus))(?![a-zA-Z])
+Darth Maul: (?<![a-zA-Z])(Maul)(?![a-zA-Z])
+Savage Opress: (?<![a-zA-Z])((Savage)|(Opress))(?![a-zA-Z]) - (?<![a-zA-Z])(Savage Opress)(?![a-zA-Z])
+Grievous: (?<![a-zA-Z])(Grievous)(?![a-zA-Z])
+Asajj Ventress: (?<![a-zA-Z])((Asajj)|(Ventress))(?![a-zA-Z]) - (?<![a-zA-Z])(Asajj Ventress)(?![a-zA-Z])
+Bo-Katan Kryze: (?<![a-zA-Z])(Bo)(?![a-zA-Z])
+Korkie Kryze: (?<![a-zA-Z])(Korkie)(?![a-zA-Z])
+Pre Vizsla: (?<![a-zA-Z])((Pre)|(Vizsla))(?![a-zA-Z]) - (?<![a-zA-Z])(Pre Vizsla)(?![a-zA-Z])
+Nute Gunray: (?<![a-zA-Z])((Nute)|(Gunray))(?![a-zA-Z]) - (?<![a-zA-Z])(Nute Gunray)(?![a-zA-Z])
+San Hill: (?<![a-zA-Z])((San)|(Hill))(?![a-zA-Z]) - (?<![a-zA-Z])(San Hill)(?![a-zA-Z])
+Shmi Skywalker: (?<![a-zA-Z])(Shmi)(?![a-zA-Z])
+Cliegg Lars: (?<![a-zA-Z])(Cliegg)(?![a-zA-Z])
+Owen Lars: (?<![a-zA-Z])(Owen)(?![a-zA-Z])
+Beru Lars: (?<![a-zA-Z])(Beru)(?![a-zA-Z])
+Sola Naberrie: (?<![a-zA-Z])(Sola)(?![a-zA-Z])
+Ruwee Naberrie: (?<![a-zA-Z])(Ruwee)(?![a-zA-Z])
+Jobal Naberrie: (?<![a-zA-Z])(Jobal)(?![a-zA-Z])
+Ryoo Naberrie: (?<![a-zA-Z])(Ryoo)(?![a-zA-Z])
+Pooja Naberrie: (?<![a-zA-Z])(Pooja)(?![a-zA-Z])
+Han Solo: (?<![a-zA-Z])(Han)(?![a-zA-Z])
+Lando Calrissian: (?<![a-zA-Z])((Lando)|(Calrissian))(?![a-zA-Z]) - (?<![a-zA-Z])(Lando Calrissian)(?![a-zA-Z])
+Chewbacca / Chewie: (?<![a-zA-Z])((Chewbacca)|(Chewie))(?![a-zA-Z])
+Gial Ackbar: (?<![a-zA-Z])((Gial)|(Ackbar))(?![a-zA-Z]) - (?<![a-zA-Z])(Gial Ackbar)(?![a-zA-Z])
+Wilhuff Tarkin: (?<![a-zA-Z])((Wilhuff)|(Tarkin))(?![a-zA-Z]) - (?<![a-zA-Z])(Wilhuff Tarkin)(?![a-zA-Z])
+Mas Amedda: (?<![a-zA-Z])((Mas)|(Amedda))(?![a-zA-Z]) - (?<![a-zA-Z])(Mas Amedda)(?![a-zA-Z])
+Sate Pestage: (?<![a-zA-Z])((Sate)|(Pestage))(?![a-zA-Z]) - (?<![a-zA-Z])(Sate Pestage)(?![a-zA-Z])
+Jango Fett: (?<![a-zA-Z])(Jango)(?![a-zA-Z])
+Boba Fett: (?<![a-zA-Z])(Boba)(?![a-zA-Z])
+Jabba: (?<![a-zA-Z])(Jabba)(?![a-zA-Z])
+Gardulla: (?<![a-zA-Z])(Gardulla)(?![a-zA-Z])
+Rey: (?<![a-zA-Z])(Rey)(?![a-zA-Z])
+Snoke: (?<![a-zA-Z])(Snoke)(?![a-zA-Z])
+Ben Solo / Kylo Ren: (?<![a-zA-Z])((Ben)|(Kylo)|(Ren))(?![a-zA-Z]) - (?<![a-zA-Z])(Kylo Ren)(?![a-zA-Z])
+Grogu: (?<![a-zA-Z])(Grogu)(?![a-zA-Z])
+
+---
+
+Coruscant: (?<![a-zA-Z])(Coruscant)(?![a-zA-Z])
+Naboo: (?<![a-zA-Z])(Naboo)(?![a-zA-Z])
+Mandalore: (?<![a-zA-Z])(Mandalore)(?![a-zA-Z])
+Tatooine: (?<![a-zA-Z])(Tatooine)(?![a-zA-Z])
+Dagobah: (?<![a-zA-Z])(Dagobah)(?![a-zA-Z])
+Alderaan: (?<![a-zA-Z])(Alderaan)(?![a-zA-Z])
+Mustafar: (?<![a-zA-Z])(Mustafar)(?![a-zA-Z])
+Geonosis: (?<![a-zA-Z])(Geonosis)(?![a-zA-Z])
+Kamino: (?<![a-zA-Z])(Kamino)(?![a-zA-Z])
+Endor: (?<![a-zA-Z])(Endor)(?![a-zA-Z])
+Serenno: (?<![a-zA-Z])(Serenno)(?![a-zA-Z])
+Ossus: (?<![a-zA-Z])(Ossus)(?![a-zA-Z])
+Ilum: (?<![a-zA-Z])(Ilum)(?![a-zA-Z])
+Chandrila: (?<![a-zA-Z])(Chandrila)(?![a-zA-Z])
+Raxus: (?<![a-zA-Z])(Raxus)(?![a-zA-Z])
+Utapau: (?<![a-zA-Z])(Utapau)(?![a-zA-Z])
+Kashyyyk: (?<![a-zA-Z])(Kashyyyk)(?![a-zA-Z])
+Corellia: (?<![a-zA-Z])(Corellia)(?![a-zA-Z])
+Exegol: (?<![a-zA-Z])(Exegol)(?![a-zA-Z])
+Kuat: (?<![a-zA-Z])(Kuat)(?![a-zA-Z])
+Cato Neimoidia: (?<![a-zA-Z])(Cato Neimoidia)(?![a-zA-Z])
+Ahch-To: (?<![a-zA-Z])(Ahch-To)(?![a-zA-Z])
+Malastare: (?<![a-zA-Z])(Malastare)(?![a-zA-Z])
+Polis Massa: (?<![a-zA-Z])(Polis Massa)(?![a-zA-Z])
+Jakku: (?<![a-zA-Z])(Jakku)(?![a-zA-Z])
+Bespin: (?<![a-zA-Z])(Bespin)(?![a-zA-Z])
+Dathomir: (?<![a-zA-Z])(Dathomir)(?![a-zA-Z])
+Yavin: (?<![a-zA-Z])(Yavin)(?![a-zA-Z])
+Nar Shaddaa: (?<![a-zA-Z])(Nar Shaddaa)(?![a-zA-Z])
+Mon Cala: (?<![a-zA-Z])(Mon Cala)(?![a-zA-Z])
+Hosnian Prime: (?<![a-zA-Z])(Hosnian Prime)(?![a-zA-Z])
+Hoth: (?<![a-zA-Z])(Hoth)(?![a-zA-Z])
+Pasaana: (?<![a-zA-Z])(Pasaana)(?![a-zA-Z])
+Cantonica: (?<![a-zA-Z])(Cantonica)(?![a-zA-Z])
+Shili: (?<![a-zA-Z])(Shili)(?![a-zA-Z])
+Kessel: (?<![a-zA-Z])(Kessel)(?![a-zA-Z])
+Iridonia: (?<![a-zA-Z])(Iridonia)(?![a-zA-Z])
+Ord Mantell: (?<![a-zA-Z])(Ord Mantell)(?![a-zA-Z])
+Ajan Kloss: (?<![a-zA-Z])(Ajan Kloss)(?![a-zA-Z])
+Moraband: (?<![a-zA-Z])(Moraband)(?![a-zA-Z])
+Kalevala: (?<![a-zA-Z])(Kalevala)(?![a-zA-Z])
+Kef Bir: (?<![a-zA-Z])(Kef Bir)(?![a-zA-Z])
+Kijimi: (?<![a-zA-Z])(Kijimi)(?![a-zA-Z])
+Lotho Minor: (?<![a-zA-Z])(Lotho Minor)(?![a-zA-Z])
+D'Qar: (?<![a-zA-Z])(D'Qar)(?![a-zA-Z])
+Mortis: (?<![a-zA-Z])(Mortis)(?![a-zA-Z])
+Zygerria: (?<![a-zA-Z])(Zygerria)(?![a-zA-Z])
+Takodana: (?<![a-zA-Z])(Takodana)(?![a-zA-Z])
+Peridea: (?<![a-zA-Z])(Peridea)(?![a-zA-Z])
+Malachor: (?<![a-zA-Z])(Malachor)(?![a-zA-Z])
+Iego: (?<![a-zA-Z])(Iego)(?![a-zA-Z])
+Crait: (?<![a-zA-Z])(Crait)(?![a-zA-Z])
+The Maw: (?<![a-zA-Z])(The Maw)(?![a-zA-Z])
+Nal Hutta: (?<![a-zA-Z])(Nal Hutta)(?![a-zA-Z])
+Scarif: (?<![a-zA-Z])(Scarif)(?![a-zA-Z])
+Jedha: (?<![a-zA-Z])(Jedha)(?![a-zA-Z])
+Ryloth: (?<![a-zA-Z])(Ryloth)(?![a-zA-Z])
+Tython: (?<![a-zA-Z])(Tython)(?![a-zA-Z])
+Lothal: (?<![a-zA-Z])(Lothal)(?![a-zA-Z])
+Taris: (?<![a-zA-Z])(Taris)(?![a-zA-Z])
+Onderon: (?<![a-zA-Z])(Onderon)(?![a-zA-Z])
+
+---
+
+jedi: (?<![a-zA-Z])(jedi)(?![a-zA-Z])
+sith: (?<![a-zA-Z])(sith)(?![a-zA-Z])
+dabi: (?<![a-zA-Z])(dabi)(?![a-zA-Z])
+republic: (?<![a-zA-Z])(republic)(?![a-zA-Z])
+empire: (?<![a-zA-Z])(empire)(?![a-zA-Z])
+confederacy / separatist: (?<![a-zA-Z])(confederacy|separatists?)(?![a-zA-Z])
+new republic: (?<![a-zA-Z])(new republic)(?![a-zA-Z])
+first order: (?<![a-zA-Z])(first order)(?![a-zA-Z])
+rebel: (?<![a-zA-Z])(rebels?)(?![a-zA-Z])
+senate: (?<![a-zA-Z])(senate)(?![a-zA-Z])
+council: (?<![a-zA-Z])(council)(?![a-zA-Z])
+committee: (?<![a-zA-Z])(committee)(?![a-zA-Z])
+temple: (?<![a-zA-Z])(temple)(?![a-zA-Z])
+apartment: (?<![a-zA-Z])(apartment)(?![a-zA-Z])
+theed: (?<![a-zA-Z])(theed)(?![a-zA-Z])
+varykino / villa: (?<![a-zA-Z])(varykino|villa)(?![a-zA-Z])
+sundari: (?<![a-zA-Z])(sundari)(?![a-zA-Z])
+mos espa: (?<![a-zA-Z])(mos espa)(?![a-zA-Z])
+mos eisley: (?<![a-zA-Z])(mos eisley)(?![a-zA-Z])
+homestead / moisture farm: (?<![a-zA-Z])(homestead|moisture farm\w*)(?![a-zA-Z])
+lightsaber: (?<![a-zA-Z])(lightsaber\w*)(?![a-zA-Z])
+duel: (?<![a-zA-Z])(duel\w*)(?![a-zA-Z])
+force push: (?<![a-zA-Z])(force push\w*)(?![a-zA-Z])
+force choke: (?<![a-zA-Z])(force chok\w*)(?![a-zA-Z])
+telekinesis: (?<![a-zA-Z])(telekinesis)(?![a-zA-Z])
+levitate: (?<![a-zA-Z])(levitat\w*)(?![a-zA-Z])
+lightning: (?<![a-zA-Z])(lightning)(?![a-zA-Z])
+mind trick: (?<![a-zA-Z])(mind trick\w*)(?![a-zA-Z])
+ship: (?<![a-zA-Z])(ships?)(?![a-zA-Z])
+starfighter: (?<![a-zA-Z])((star)?fighters?)(?![a-zA-Z])
+star destroyer: (?<![a-zA-Z])(star destroyers?)(?![a-zA-Z])
+gunship: (?<![a-zA-Z])(gunships?)(?![a-zA-Z])
+shuttle: (?<![a-zA-Z])(shuttles?)(?![a-zA-Z])
+skiff: (?<![a-zA-Z])(skiffs?)(?![a-zA-Z])
+droid: (?<![a-zA-Z])(droids?)(?![a-zA-Z])
+clone: (?<![a-zA-Z])(clones?)(?![a-zA-Z])
+GAR / army: (?<![a-zA-Z])(GAR|army)(?![a-zA-Z])
+youngling: (?<![a-zA-Z])(younglings?)(?![a-zA-Z])
+padawan: (?<![a-zA-Z])(padawans?)(?![a-zA-Z])
+knight: (?<![a-zA-Z])(knights?)(?![a-zA-Z])
+master: (?<![a-zA-Z])(masters?)(?![a-zA-Z])
+apprentice: (?<![a-zA-Z])(apprentices?)(?![a-zA-Z])
+parent: (?<![a-zA-Z])(parents?)(?![a-zA-Z])
+mother / mom / mommy: (?<![a-zA-Z])(mother|mom|mommy)(?![a-zA-Z])
+father / dad / daddy: (?<![a-zA-Z])(father|dad|daddy)(?![a-zA-Z])
+spouse / partner: (?<![a-zA-Z])(spouse|partner)(?![a-zA-Z])
+husband: (?<![a-zA-Z])(husband)(?![a-zA-Z])
+wife: (?<![a-zA-Z])(wife)(?![a-zA-Z])
+sibling: (?<![a-zA-Z])(siblings?)(?![a-zA-Z])
+brother: (?<![a-zA-Z])(brothers?)(?![a-zA-Z])
+sister: (?<![a-zA-Z])(sisters?)(?![a-zA-Z])
+child / kid: (?<![a-zA-Z])(child(ren)?|kids?)(?![a-zA-Z])
+son: (?<![a-zA-Z])(sons?)(?![a-zA-Z])
+daughter: (?<![a-zA-Z])(daughters?)(?![a-zA-Z])
+baby / infant: (?<![a-zA-Z])(bab(y|ies)|infants?)(?![a-zA-Z])
+toddler: (?<![a-zA-Z])(toddlers?)(?![a-zA-Z])
+twin: (?<![a-zA-Z])(twins?)(?![a-zA-Z])
+pregnant: (?<![a-zA-Z])(pregnan\w*)(?![a-zA-Z])
+marry: (?<![a-zA-Z])(marry|marri\w+)(?![a-zA-Z])
+birth / born: (?<![a-zA-Z])((child)?birth\w*|born)(?![a-zA-Z])
+moff: (?<![a-zA-Z])(moffs?)(?![a-zA-Z])
+vizier: (?<![a-zA-Z])(viziers?)(?![a-zA-Z])
+admiral: (?<![a-zA-Z])(admirals?)(?![a-zA-Z])
+general: (?<![a-zA-Z])(generals?)(?![a-zA-Z])
+commander: (?<![a-zA-Z])(commanders?)(?![a-zA-Z])
+captain: (?<![a-zA-Z])(captains?)(?![a-zA-Z])
+death star: (?<![a-zA-Z])(death stars?)(?![a-zA-Z])
+order 66: (?<![a-zA-Z])(Order[^\w]+(66|sixty-six))(?![a-zA-Z])
+other contingency orders: (?<![a-zA-Z])(Order[^\w]+(?!66|sixty-six)(\d+|six[\w-]+))(?![a-zA-Z])
+attachment: (?<![a-za-z])(attachments?)(?![a-za-z])
+vision / prophecy / nightmare: (?<![a-za-z])(visions?|prophec(y|ies)|nightmares?)(?![a-za-z])
+secret / truth / lie: (?<![a-za-z])(secrets?|truths?|lies?)(?![a-za-z])
+family / home: (?<![a-za-z])(famil(y|ies)|homes?)(?![a-za-z])
+chip: (?<![a-za-z])(chips?)(?![a-za-z])
+light side: (?<![a-za-z])(light( |-)side)(?![a-za-z])
+dark side: (?<![a-za-z])(dark( |-)side)(?![a-za-z])
+chosen one: (?<![a-za-z])(chosen one)(?![a-za-z])
+recording / hologram / footage: (?<![a-za-z])(recordings?|holograms?|footages?)(?![a-za-z])
+arrest: (?<![a-za-z])(arrest\w*)(?![a-za-z])
+trial: (?<![a-za-z])(trials?)(?![a-za-z])
+elect / vote: (?<![a-za-z])(elect\w*|vote\w*|voting)(?![a-za-z])
+democracy: (?<![a-za-z])(democra\w+)(?![a-za-z])
+chancellor: (?<![a-za-z])(chancellor)(?![a-za-z])
+emperor: (?<![a-za-z])(emperor)(?![a-za-z])
+empress: (?<![a-za-z])(empress)(?![a-za-z])
+emergency power: (?<![a-za-z])(emergency powers?)(?![a-za-z])
+treaty: (?<![a-za-z])(treaty)(?![a-za-z])
+rule of two: (?<![a-za-z])(rule of two)(?![a-za-z])
+jedi code: (?<![a-za-z])(jedi code)(?![a-za-z])
+darksaber: (?<![a-za-z])(darksaber)(?![a-za-z])
+jar'kai: (?<![a-za-z])(jar'kai)(?![a-za-z])
+siege of mandalore: (?<![a-za-z])((siege|liberation) of mandalore)(?![a-za-z])
+clone wars: (?<![a-za-z])(clone wars?)(?![a-za-z])
+battle of coruscant: (?<![a-za-z])(battle of coruscant)(?![a-za-z])
+sleep: (?<![a-za-z])(sleep\w*|slept)(?![a-za-z])
+kiss: (?<![a-za-z])(kiss\w*)(?![a-za-z])
+hug / embrace: (?<![a-za-z])(hug|hugs|hugged|hugging|embrac\w+)(?![a-za-z])
+love: (?<![a-za-z])(love\w*|loving)(?![a-za-z])
+wedding: (?<![a-za-z])(weddings?)(?![a-za-z])
+lake country: (?<![a-za-z])(lake country)(?![a-za-z])
+palace: (?<![a-za-z])(palaces?)(?![a-za-z])
+invisible hand: (?<![a-za-z])(invisible hand)(?![a-za-z])
+tantive III: (?<![a-za-z])(tantive III)(?![a-za-z])
+tantive IV: (?<![a-za-z])(tantive IV)(?![a-za-z])
+cloud city: (?<![a-za-z])(cloud city)(?![a-za-z])
+
+---
+
+character counts (last updated 2026/9/4):
+
+Anakin Skywalker / Darth Vader: 6487
+Padmé Amidala: 3737
+Obi-Wan Kenobi: 2774
+Sheev Palpatine / Darth Sidious: 1592
+Luke Skywalker: 1349
+Leia Organa: 1258
+Yoda: 1179
+Ahsoka Tano: 932
+Mace Windu: 899
+Dooku / Darth Tyranus: 727
+Han Solo: 659
+Satine Kryze: 636
+R2-D2 / R2 / Artoo: 504
+Darth Maul: 498
+C-3PO / Threepio: 492
+Qui-Gon Jinn: 406
+Bail Organa: 397
+Ben Solo / Kylo Ren: 299
+Rey: 248
+Rush Clovis: 243
+Grievous: 241
+Rex: 236
+Shmi Skywalker: 179
+Shaak Ti: 143
+Chewbacca / Chewie: 141
+Lando Calrissian: 136
+Owen Lars: 128
+Sola Naberrie: 127
+Plo Koon: 125
+Kit Fisto: 118
+Bo-Katan Kryze: 111
+Ruwee Naberrie: 108
+Lux Bonteri: 93
+Cliegg Lars: 92
+Beru Lars: 92
+Jabba: 92
+Jobal Naberrie: 91
+Ki-Adi-Mundi: 87
+Saesee Tiin: 86
+Agen Kolar: 85
+Mon Mothma: 78
+Pooja Naberrie: 75
+Wilhuff Tarkin: 70
+Ryoo Naberrie: 68
+Snoke: 60
+Breha Organa: 57
+Nute Gunray: 54
+Jar Jar Binks: 48
+Mas Amedda: 48
+Korkie Kryze: 44
+Pre Vizsla: 41
+San Hill: 34
+Grogu: 31
+Cody: 28
+Jango Fett: 17
+Mina Bonteri: 13
+Fives / CT-5555: 10
+Boba Fett: 9
+Appo: 6
+Gial Ackbar: 6
+Asajj Ventress: 5
+Sate Pestage: 5
+Savage Opress: 3
+Gardulla: 2
+
+---
+
+celestial body counts (last updated 2026/9/6):
+
+Coruscant: 675
+Naboo: 600
+Mandalore: 340
+Tatooine: 214
+Dagobah: 103
+Alderaan: 68
+Mustafar: 65
+Geonosis: 64
+Kamino: 49
+Endor: 40
+Serenno: 32
+Ossus: 29
+Ilum: 29
+Chandrila: 28
+Raxus: 26
+Utapau: 24
+Kashyyyk: 24
+Corellia: 21
+Exegol: 20
+Kuat: 18
+Cato Neimoidia: 17
+Ahch-To: 16
+Malastare: 15
+Polis Massa: 13
+Jakku: 10
+Bespin: 10
+Dathomir: 8
+Yavin: 6
+Nar Shaddaa: 6
+Mon Cala: 6
+Hosnian Prime: 6
+Hoth: 5
+Pasaana: 4
+Cantonica: 4
+Shili: 3
+Kessel: 2
+Iridonia: 2
+Ord Mantell: 1
+Ajan Kloss: 1
+
+---
+
+other counts (last updated 2026/9/6):
+
+jedi: 2186
+sith: 527
+dabi: 130
+republic: 1278
+empire: 220
+confederacy / separatist: 554
+new republic: 43
+first order: 25
+rebel: 84
+senate: 747
+council: 621
+committee: 30
+temple: 621
+apartment: 202
+theed: 131
+varykino / villa: 354
+sundari: 126
+mos espa: 15
+mos eisley: 12
+homestead / moisture farm: 107
+lightsaber: 730
+duel: 244
+force push: 12
+force choke: 2
+telekinesis: 11
+levitate: 2
+lightning: 104
+mind trick: 8
+ship: 333
+starfighter: 150
+star destroyer: 14
+gunship: 43
+shuttle: 59
+skiff: 76
+droid: 551
+clone: 964
+GAR / army: 107
+youngling: 62
+padawan: 110
+knight: 100
+master: 1076
+apprentice: 88
+parent: 72
+mother / mom / mommy: 144
+father / dad / daddy: 122
+spouse / partner: 14
+husband: 31
+wife: 42
+sibling: 11
+brother: 30
+sister: 52
+child / kid: 389
+son: 51
+daughter: 42
+baby / infant: 90
+toddler: 8
+twin: 255
+pregnant: 53
+marry: 182
+birth / born: 146
+moff: 15
+vizier: 3
+admiral: 10
+general: 312
+commander: 151
+captain: 100
+death star: 67
+order 66: 132
+other contingency orders: 47
+attachment: 95
+vision / prophecy / nightmare: 222
+secret / truth / lie: 245
+family / home: 654
+chip: 116
+light side: 16
+dark side: 81
+chosen one: 22
+recording / hologram / footage: 203
+arrest: 100
+trial: 62
+elect / vote: 192
+democracy: 34
+chancellor: 669
+emperor: 178
+empress: 4
+emergency power: 36
+treaty: 40
+rule of two: 6
+jedi code: 11
+darksaber: 94
+jar'kai: 1
+siege of mandalore: 5
+clone wars: 177
+battle of coruscant: 7
+sleep: 140
+kiss: 49
+hug / embrace: 149
+love: 170
+wedding: 55
+lake country: 19
+palace: 269
+invisible hand: 36
+tantive III: 6
+tantive IV: 1
+cloud city: 24
