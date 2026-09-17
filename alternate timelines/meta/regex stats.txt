@@ -156,7 +156,7 @@ mos eisley: (?<![a-zA-Z])(mos eisley)(?![a-zA-Z])
 homestead / moisture farm: (?<![a-zA-Z])(homestead|moisture farm\w*)(?![a-zA-Z])
 lightsaber: (?<![a-zA-Z])(lightsaber\w*)(?![a-zA-Z])
 duel: (?<![a-zA-Z])(duel\w*)(?![a-zA-Z])
-force: (?<![a-zA-Z])(force)(?![a-zA-Z])
+the force: (?<![a-zA-Z])(force)(?![a-zA-Z])
 force push: (?<![a-zA-Z])(force push\w*)(?![a-zA-Z])
 force choke: (?<![a-zA-Z])(force chok\w*)(?![a-zA-Z])
 telekinesis: (?<![a-zA-Z])(telekinesis)(?![a-zA-Z])
@@ -388,7 +388,7 @@ mos eisley: 12
 homestead / moisture farm: 107
 lightsaber: 730
 duel: 244
-force: 753
+the force: 753
 force push: 12
 force choke: 2
 telekinesis: 11
