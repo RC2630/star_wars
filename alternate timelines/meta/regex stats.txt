@@ -156,6 +156,7 @@ mos eisley: (?<![a-zA-Z])(mos eisley)(?![a-zA-Z])
 homestead / moisture farm: (?<![a-zA-Z])(homestead|moisture farm\w*)(?![a-zA-Z])
 lightsaber: (?<![a-zA-Z])(lightsaber\w*)(?![a-zA-Z])
 duel: (?<![a-zA-Z])(duel\w*)(?![a-zA-Z])
+force: (?<![a-zA-Z])(force)(?![a-zA-Z])
 force push: (?<![a-zA-Z])(force push\w*)(?![a-zA-Z])
 force choke: (?<![a-zA-Z])(force chok\w*)(?![a-zA-Z])
 telekinesis: (?<![a-zA-Z])(telekinesis)(?![a-zA-Z])
@@ -239,6 +240,14 @@ invisible hand: (?<![a-za-z])(invisible hand)(?![a-za-z])
 tantive III: (?<![a-za-z])(tantive III)(?![a-za-z])
 tantive IV: (?<![a-za-z])(tantive IV)(?![a-za-z])
 cloud city: (?<![a-za-z])(cloud city)(?![a-za-z])
+lightsaber forms: (?<![a-zA-Z])(form I|shii-cho|form II|makashi|form III|soresu|form IV|ataru|form V|shien|djem so|form VI|niman|form VII|juyo|vaapad)(?![a-zA-Z])
+form I / shii-cho: (?<![a-zA-Z])(form I|shii-cho)(?![a-zA-Z])
+form II / makashi: (?<![a-zA-Z])(form II|makashi)(?![a-zA-Z])
+form III / soresu: (?<![a-zA-Z])(form III|soresu)(?![a-zA-Z])
+form IV / ataru: (?<![a-zA-Z])(form IV|ataru)(?![a-zA-Z])
+form V / shien / djem so: (?<![a-zA-Z])(form V|shien|djem so)(?![a-zA-Z])
+form VI / niman: (?<![a-zA-Z])(form VI|niman)(?![a-zA-Z])
+form VII / juyo / vaapad: (?<![a-zA-Z])(form VII|juyo|vaapad)(?![a-zA-Z])
 
 ---
 
@@ -379,6 +388,7 @@ mos eisley: 12
 homestead / moisture farm: 107
 lightsaber: 730
 duel: 244
+force: 753
 force push: 12
 force choke: 2
 telekinesis: 11
@@ -462,3 +472,11 @@ invisible hand: 36
 tantive III: 6
 tantive IV: 1
 cloud city: 24
+lightsaber forms: 79
+form I / shii-cho: 5
+form II / makashi: 10
+form III / soresu: 22
+form IV / ataru: 7
+form V / shien / djem so: 21
+form VI / niman: 0
+form VII / juyo / vaapad: 14
