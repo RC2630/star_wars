@@ -1,0 +1,11 @@
+1. alderaan survives (OT era)
+the death star experiences a technical failure and fails to blow up alderaan. after multiple attempts, it gives up. the rest of the OT plays out much the same, but alderaan is never destroyed and bail and breha never die. then a long epilogue about han trying and repeatedly failing to adapt to alderaanian palace life after marriage to leia.
+
+2. maul kills sidious (prequel era)
+during the clone wars, when sidious personally arrives on mandalore to deal with maul, maul and savage perform exceptionally well and manage to defeat and kill sidious. the republic realizes its chancellor has died under mysterious, unexplained circumstances. maul doesn't tell the republic that palpatine was a sith lord, and focuses on continuing to build up his criminal empire, and the galaxy erupts into a massive three-sided war: republic/jedi, dooku/separatists, and maul.
+
+3. emperor anakin vs. rebel padme (OT era with prequel divergence)
+padme doesn't die from childbirth. after giving birth, she commits herself to raising her children and opposing the empire, eventually becoming the leader of the rebel alliance. vader eventually betrays and kills palpatine, becoming the new emperor, and kidnaps luke. vader raises luke as his dark-side apprentice, while padme protects leia and ahsoka trains her. anakin and padme eventually face off each other directly.
+
+4. anakin never experiences padme visions (OT era with prequel divergence)
+anakin learns that padme is pregnant, but never experiences visions of her dying in childbirth. palpatine tries to recruit anakin gradually and not overtly, but his pitches fall flat because anakin has no reason to listen to him over the jedi. palpatine eventually says screw it, executes order 66, and anakin is caught off guard on campaign but survives. anakin and padme go into hiding just as the other order 66 jedi survivors do, and padme delivers the twins soon afterward. anakin and padme raise and train the twins to one day defeat the empire.
