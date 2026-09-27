@@ -31,7 +31,7 @@ anakin trained himself in the knowledge and ways of force healing ever since bec
 **`prequel era/episode II divergence/tatooine divergence/shmi survives (anakin doesn't fall).md`:**
 anakin arrives at the tusken camp a bit earlier than in canon, where shmi is not so far beyond saving. he successfully retrieves her and takes her back to the lars homestead alive, where the lars family quickly take her into mos eisley for medical treatment in a bacta tank. ultimately shmi survived.
 
-**`OT era/episode II divergence/tatooine divergence/shmi survives (anakin falls).md`:**
+**`prequel & OT era/episode II divergence/shmi survives (anakin falls).md`:**
 a second Shmi survives because anakin arrives a bit earlier timeline, but this one has anakin actually fully fall to the dark side as in canon. the transition to OT plays similar to canon, except luke is raised by not just owen and beru, but also shmi (his actual grandmother) and cliegg. luke grows up hearing stories about anakin's childhood firsthand from shmi.
 
 **`prequel era/episode II divergence/geonosis & wedding divergence/padme almost dies from gunship fall.md`:**
@@ -45,7 +45,7 @@ obi-wan becomes increasingly suspicious of anakin and padme's relationship, and 
 
 # clone wars divergence
 
-**`prequel era/clone wars divergence/civilian oversight.md`:**
+**`prequel & OT era/clone wars divergence/civilian oversight.md`:**
 bail organa creates a system where senators are permanently paired with jedi generals to ensure civilian oversight over the military. bail is paired with obi-wan, and anakin is paired with padme.
 
 **`prequel era/clone wars divergence/r2 falls into separatist hands.md`:**
@@ -57,7 +57,7 @@ during the clone wars, anakin receives a force vision in which he and padme trav
 **`prequel era/clone wars divergence/maul fails to capture obi-wan and satine.md`:**
 maul attempted to capture obi-wan and satine, but fails. obi-wan and satine safely get away, and having experienced a near-death scenario, they pledge to prioritize each other and eventually marry. after the jedi council grant them an exception, anakin decides to try his own luck and reveals his own marriage, and receives an exception as well.
 
-**`OT era/clone wars divergence/obi-wan and satine raise luke.md`:**
+**`prequel & OT era/clone wars divergence/obi-wan and satine raise luke.md`:**
 obi-wan and satine safely escape mandalore, but their ship (the Twilight) takes significant damage in the process and they are forced to land on nearby ossus. satine goes into hiding on ossus, and eventually obi-wan brings infant luke there, and together obi-wan and satine raise luke.
 
 **`prequel era/clone wars divergence/anakin leaves jedi with ahsoka.md`:**
@@ -76,7 +76,7 @@ anakin lands the invisible hand a bit too hard. anakin and obi-wan fall into com
 
 # episode III (between invisible hand and chancellor's office) divergence
 
-**`OT era/episode III divergence/anakin never experiences padme visions.md`:**
+**`prequel & OT era/episode III divergence/anakin never experiences padme visions.md`:**
 anakin learns that padme is pregnant, but never experiences visions of her dying in childbirth. palpatine tries to recruit anakin gradually and not overtly, but his pitches fall flat because anakin has no reason to listen to him over the jedi. palpatine eventually says screw it, executes order 66, and anakin is caught off guard on campaign but survives. anakin and padme go into hiding just as the other order 66 jedi survivors do, and padme delivers the twins soon afterward. anakin and padme raise and train the twins to one day defeat the empire.
 
 # episode III (chancellor's office) divergence
@@ -115,7 +115,7 @@ anakin carries out knightfall, but shaak ti intercepts him before he could get t
 **`prequel era/episode III divergence/mustafar divergence/padme discovers obi-wan on skiff.md`:**
 padme discovers obi-wan on the skiff on the way to mustafar and confronts him for hiding on her skiff. in the confrontation, padme shoots obi-wan in the leg to prevent him from forcing her to take the ship to mustafar. as a result, anakin finishes slaughtering the separatists on mustafar then go back to coruscant. anakin says his end of the deal is complete and asks palpatine to teach him how to save padme. palpatine finally reveals that after all he doesn't actually know how to save padme. anakin gets angry at palpatine for misleading him, and they duel. anakin wins, and palpatine dies. anakin spends much of the rest of this timeline repenting for what he had done, especially what he did to the younglings in the jedi temple.
 
-**`OT era/episode III divergence/anakin agrees to leave with padme.md`:**
+**`prequel & OT era/episode III divergence/anakin agrees to leave with padme.md`:**
 padme manages to talk down anakin on mustafar and convince him to abandon his dark path and stay with her. anakin and padme go into hiding and raise the twins themselves on naboo. anakin spends a lot of time repenting for what he had done. eventually naboo turns into a major base of operations for the rebel alliance as anakin and padme start rebelling against the empire, nearly causing naboo to be destroyed by the death star.
 
 **`prequel era/episode III divergence/mustafar divergence/empress padme.md`:**
@@ -127,7 +127,7 @@ anakin kills obi-wan on mustafar, but yoda also kills sidious on coruscant at th
 **`prequel era/episode III divergence/mustafar divergence/obi-wan rescues anakin on mustafar.md`:**
 obi-wan defeats anakin on mustafar. but instead of leaving him to burn, he rescues the now limbless anakin and carries him back to padme's skiff. while padme undergoes delivery on polis massa, anakin is simultaneously getting new prosthetic limbs. both of them survive, the children are born, and anakin starts his redemption path. anakin and padme raise their children on naboo. a few years later, palpatine finds them and demands that anakin return to serving as his apprentice. anakin refuses, and a duel ensues, in which anakin defeats and kills palpatine.
 
-**`OT era/episode III divergence/padme survives in a coma.md`:**
+**`prequel & OT era/episode III divergence/padme survives in a coma.md`:**
 after giving birth to luke and leia, padme falls into a deep, long-term coma rather than dying. decades later, vader survives sidious' lightning, and lives to truly redeem himself. after years of proving his return to the light through consistent, concrete actions, padme finally reawakens from her coma. padme returns to politics in the aftermath, challenging mon mothma's disarmament policy and running against her for the chancellorship of the new republic.
 
 # original trilogy divergence
