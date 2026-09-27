@@ -74,6 +74,11 @@ as anakin defeats dooku and is about to kill him, dooku frantically spills out a
 **`prequel era/episode III divergence/invisible hand divergence/palpatine dies in crash.md`:**
 anakin lands the invisible hand a bit too hard. anakin and obi-wan fall into comas, while palpatine straight up dies.
 
+# episode III (between invisible hand and chancellor's office) divergence
+
+**`OT era/episode III divergence/anakin never experiences padme visions.md`:**
+anakin learns that padme is pregnant, but never experiences visions of her dying in childbirth. palpatine tries to recruit anakin gradually and not overtly, but his pitches fall flat because anakin has no reason to listen to him over the jedi. palpatine eventually says screw it, executes order 66, and anakin is caught off guard on campaign but survives. anakin and padme go into hiding just as the other order 66 jedi survivors do, and padme delivers the twins soon afterward. anakin and padme raise and train the twins to one day defeat the empire.
+
 # episode III (chancellor's office) divergence
 
 **`prequel era/episode III divergence/chancellor's office divergence/anakin kills palpatine early.md`:**
