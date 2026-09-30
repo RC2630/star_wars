@@ -3002,5 +3002,747 @@ The call ended.
 
 # Part 8
 
-- ahsoka & rex
-- maz kanata
+A few days later, Anakin finally contacted Ahsoka.
+
+She answered almost immediately.
+
+Her familiar face appeared above the transmitter, and Anakin smiled with obvious relief.
+
+“Ahsoka! How did Mandalore go? Did the clones do... anything to you?”
+
+Ahsoka sighed.
+
+“Yes, they did. And I think I know why.”
+
+Anakin’s expression changed at once.
+
+“You do? You know what caused them to betray all the Jedi?”
+
+“Yes. I figured it out with Rex’s help.”
+
+“Rex...” Anakin hesitated. “Is he okay?”
+
+“He’s okay now, but for a moment he lost himself too.”
+
+Ahsoka rubbed the side of her head.
+
+“Okay, this is really complicated. Let me think about how to tell it to you...”
+
+“Don’t worry. We can do it in person.”
+
+Ahsoka looked up.
+
+“We’re hiding on Takodana now,” Anakin continued. “So just come here and we can talk all about it. Take Rex with you.”
+
+“Rex is not with me anymore. We parted ways after what happened on Mandalore.”
+
+“Hang on. Let me add him to this call.”
+
+Anakin entered Rex’s frequency into the transmitter and sent the request.
+
+A short time later, Rex joined them.
+
+“Captain Rex. Good to see you.”
+
+“You too, General. You need me for something?”
+
+Ahsoka answered before Anakin could.
+
+“Anakin wanted to invite you to come to Takodana. He has been hiding there since Order 66.”
+
+Anakin frowned.
+
+“What’s Order 66?”
+
+Ahsoka glanced toward Rex.
+
+“We’ll explain once we get to your place.”
+
+Anakin nodded.
+
+“So are you coming, Rex?”
+
+“Yes, of course, General.”
+
+“Call me Anakin. Please. The war is over.”
+
+Rex paused.
+
+Then the corner of his mouth lifted slightly.
+
+“My pleasure... Anakin.”
+
+Anakin described the lakeside home and transmitted its coordinates to both of them.
+
+The call ended shortly afterward.
+
+Ahsoka reached Takodana first.
+
+Her ship descended toward Nymeve Lake and settled near the coordinates Anakin had provided.
+
+She climbed out, looked around, and frowned.
+
+There was no hut.
+
+There was no sign of Anakin or Padmé.
+
+There was only the lake.
+
+Ahsoka stared at the coordinates again.
+
+Then she looked across the water.
+
+“Oh, come on, Skyguy, you gave me the wrong coordinates!”
+
+She considered contacting him immediately.
+
+Instead, she decided to look around first.
+
+Anakin had specifically said that he was living beside Nymeve Lake. If the coordinates were wrong but the lake itself was correct, perhaps she could simply follow the shoreline until she found the hut.
+
+So she started walking.
+
+The shore stretched onward through the forest, peaceful and largely empty. Ahsoka continued for some time before an unexpected structure appeared ahead.
+
+An ancient-looking castle rose beside the lake.
+
+Ahsoka slowed.
+
+She certainly had not expected to find anything like that here.
+
+Curiosity won.
+
+She approached the castle and stepped inside.
+
+Within, she soon encountered an elderly alien woman who regarded her with kind, perceptive eyes.
+
+The alien walked over to greet her.
+
+“Hello, young traveller. What brings you here?”
+
+“I’m just here to meet a friend.”
+
+“Oh, a friend? On this planet? Not many people live here.”
+
+“I know.”
+
+Ahsoka looked around the castle again.
+
+“Who are you, by the way?”
+
+“My name is Maz Kanata.”
+
+Ahsoka smiled.
+
+“Nice castle you’ve got here! How long have you lived here?”
+
+Maz seemed amused by the question.
+
+“I have been living in this castle for a long, long time already. Longer than you have been alive, probably.”
+
+Ahsoka’s eyes widened.
+
+“Wow!”
+
+Then she felt something.
+
+She looked at Maz more closely.
+
+There was something familiar in the sensation surrounding the old woman.
+
+“The Force feels... strong in you.”
+
+Maz’s expression sharpened with interest.
+
+“Do you know the Force?”
+
+“Know the Force?” Maz replied. “Oh, I know much more about the Force than you think. I may be no Jedi, but I’m certainly no less acquainted with the Force!”
+
+Ahsoka laughed softly.
+
+“Well, I guess we’re in the same club then. I’m also not a Jedi. Well, no longer one. I used to be one, though.”
+
+“Interesting.”
+
+Maz studied her.
+
+“Not many Force-sensitives come through here often. Good to meet one!”
+
+“I’m definitely going to tell my friend about you. I’m sure he will like you.”
+
+“Well, I’ll be looking forward to that.”
+
+Ahsoka glanced deeper into the castle.
+
+“Do you mind if I stay here for a bit?”
+
+“Of course! Everyone is free to stay here for as long as they need!”
+
+Ahsoka smiled.
+
+“Wow, that is very generous of you. Thank you!”
+
+She spent some time exploring the castle before contacting Rex.
+
+His image appeared.
+
+“Rex, I think Anakin gave us the wrong coordinates. It’s still by the lakeside, but not right beside his hut. Come to Maz Kanata’s castle instead. We will go find Anakin together.”
+
+“No problem, Commander.”
+
+Ahsoka stared at him.
+
+“...You might really want to stop using these military titles. Call me Ahsoka.”
+
+Rex sighed.
+
+“Why is everyone so against military titles lately? Oh well, I guess I should adapt...”
+
+Ahsoka transmitted the castle’s coordinates.
+
+Rex arrived a few hours later.
+
+Once they had met outside the castle, Ahsoka gestured along the shoreline.
+
+“Alright, let’s go find Anakin now.”
+
+They had barely begun to leave when Maz approached them.
+
+“Good luck, travellers! If you ever need any help, just come find me!”
+
+Ahsoka smiled back.
+
+“We will!”
+
+Ahsoka and Rex continued around Nymeve Lake.
+
+Eventually, a small hut came into view.
+
+Rex studied it.
+
+“This should be it.”
+
+“It has to be it,” Ahsoka said. “I’m going to lose my mind if this is not it.”
+
+They approached.
+
+Rex knocked.
+
+The door opened.
+
+Anakin’s face immediately lit up.
+
+“Rex! Snips! Wow, took you so long to get here...”
+
+Ahsoka folded her arms.
+
+“Oh yeah? Maybe it wouldn’t have taken so long if you gave us the right coordinates.”
+
+Anakin blinked.
+
+“Oh. What did I give you?”
+
+Ahsoka repeated the coordinates.
+
+Anakin stared at her for a moment.
+
+Then he facepalmed.
+
+“Sorry. Yeah, I have no idea why I gave you that. That’s on the other side of this lake.”
+
+Rex shook his head.
+
+“Don’t worry about it, Anakin. At least we found it.”
+
+“I’m pretty impressed that you guys actually managed to find it without contacting me again. How did you do it?”
+
+“We literally just walked around the lake,” Ahsoka said. “It’s not that hard.”
+
+“Well, I’m still impressed.”
+
+Anakin stepped aside.
+
+“But for now, please come in! We have a lot to talk about.”
+
+Ahsoka and Rex entered the hut and settled in.
+
+Once everyone was comfortable, Anakin leaned forward.
+
+“So tell me everything that happened.”
+
+Ahsoka took a breath.
+
+“Rex and I went with the 332nd Division to Mandalore, and joined with Bo-Katan’s forces against Maul’s forces. Eventually I came face-to-face with Maul himself, and we had quite a duel.”
+
+Anakin listened closely.
+
+“But before that, he told me some pretty disturbing things.”
+
+“What things?”
+
+“He told me that a Sith Lord named Darth Sidious controlled the Republic, and that he orchestrated the entire Clone Wars from the beginning.”
+
+Anakin’s expression darkened.
+
+“Palpatine.”
+
+“Exactly. I did not know it at the time. But now it’s clear that this ‘Darth Sidious’ that he spoke of is indeed Palpatine.”
+
+“Why did Maul tell you those things then? What point did revealing them have?”
+
+“He wanted me to work together with him to bring down this Darth Sidious. To deprive him of the chance to gain his new apprentice.”
+
+Anakin frowned.
+
+“Who is...”
+
+Ahsoka looked directly at him.
+
+“You.”
+
+Silence filled the room.
+
+Anakin stared at her.
+
+“...Me?”
+
+“Apparently. According to Maul.”
+
+“What exactly did Maul say?”
+
+“He said that Sidious has been grooming you for a long time to eventually get you to become his new apprentice.”
+
+Ahsoka paused.
+
+“Has Palpatine been doing that? Has he groomed you?”
+
+Anakin said nothing immediately.
+
+His thoughts ran backward through the years.
+
+Not merely to the Galaxies Opera House.
+
+Not merely to Palpatine’s office.
+
+He remembered conversations stretching much further back.
+
+Palpatine praising him.
+
+Encouraging him.
+
+Taking an interest in his frustrations.
+
+Whispering that others underestimated him.
+
+All the way back to when Anakin had been 9 years old.
+
+Eventually, Anakin spoke.
+
+“...Yes.”
+
+Ahsoka watched him.
+
+“He has.”
+
+Anakin’s expression hardened.
+
+“So Maul was telling the truth.”
+
+“I did not believe him in the moment. I thought he was lying. So we dueled.”
+
+“And?”
+
+“I won. I captured him and restrained him on the *Tribunal*. We were trying to bring him back to Coruscant so he could face justice.”
+
+Her expression changed.
+
+“But on our way there... it happened.”
+
+Anakin sighed.
+
+“Let me guess. The clones betrayed you?”
+
+Ahsoka nodded.
+
+“Rex tried really, really hard not to succumb to the betrayal. But his struggles eventually failed. Thankfully he was able to tell me something really important just before he completely succumbed.”
+
+Anakin turned toward Rex.
+
+“What did you tell her, Rex?”
+
+“I told her to find Fives.”
+
+Anakin frowned.
+
+“Fives? But didn’t he die already?”
+
+“I meant for her to find Fives’ archived classified files. But it was hard for me to get the point across coherently.”
+
+Rex looked down.
+
+“I was already on the verge of completely losing my mind...”
+
+Ahsoka continued.
+
+“I found Fives’ files and discovered that there is an inhibitor chip embedded within the brain of every clone trooper that has ever been born on Kamino.”
+
+Anakin’s face changed.
+
+“That chip had a single purpose,” Ahsoka said. “When Order 66 is executed, it overrides the mind of its host clone trooper and forces them to obey that order.”
+
+Anakin sat very still.
+
+“And now it is clear that Order 66 is what caused every clone trooper to suddenly turn against the Jedi.”
+
+“Oh...”
+
+Rex nodded.
+
+“Ahsoka surgically removed my inhibitor chip after that. Once it was gone, I was back to myself.”
+
+Anakin looked between them.
+
+“So what happened to all the other clones? And what happened to Maul?”
+
+Rex answered.
+
+“We had to release Maul from his restraints so we could use him as a distraction. Eventually Maul managed to escape altogether. We have no idea where Maul went after that.”
+
+His voice became quieter.
+
+“As for the other clones...”
+
+He stopped.
+
+Ahsoka finished for him.
+
+“The *Tribunal* crashed into a moon shortly after that. Rex and I managed to escape aboard a Y-wing in the nick of time.”
+
+She looked downward.
+
+“But all the other clones succumbed to that crash.”
+
+Rex remained silent.
+
+“We took quite some time to bury our fallen comrades on the moon,” Ahsoka continued. “Then we parted ways.”
+
+Anakin looked at Rex.
+
+Then Ahsoka.
+
+“That is so sad. So many lives lost...”
+
+The three of them fell silent.
+
+For a while, none of them spoke.
+
+Then the bedroom door opened.
+
+Padmé emerged holding Luke and Leia.
+
+Anakin looked over.
+
+“Did you guys have a good nap?”
+
+“Good enough, I guess.”
+
+Then Padmé noticed their guests.
+
+“Oh hi, Ahsoka and Rex. You guys are here! Sorry, I didn’t notice; I was taking a nap.”
+
+She walked over and sat beside Anakin.
+
+Anakin looked toward Ahsoka and Rex.
+
+“Okay, let’s just get this out of the way. Padmé and I are married; these are our twins, Luke and Leia.”
+
+Ahsoka and Rex simply nodded.
+
+Ahsoka had seen enough of Anakin and Padmé together during the Clone Wars that the revelation was hardly shocking.
+
+Rex, meanwhile, had never been particularly interested in other people’s private lives.
+
+Anakin gestured toward the twins.
+
+Padmé handed them over.
+
+Anakin carefully passed Luke to Ahsoka and Leia to Rex.
+
+Ahsoka held Luke for a moment and smiled.
+
+“The Force is definitely strong with these ones.”
+
+Rex looked down at Leia.
+
+“Sometimes I wish I could feel what that means.”
+
+After a little while, they returned the twins to Anakin.
+
+Padmé glanced between the three of them.
+
+“What have all of you been discussing?”
+
+“A lot of stuff, actually. I’ll tell you everything after.”
+
+Padmé nodded.
+
+The conversation became lighter from there.
+
+Ahsoka and Rex spent the rest of the day with the Skywalker family. They shared a meal together, and as evening approached, Anakin invited both of them to remain overnight.
+
+That night, in private, Anakin told Padmé everything Ahsoka and Rex had explained before she joined them.
+
+The next morning, everyone reconvened.
+
+Luke and Leia were still asleep, so Padmé left Threepio watching over them.
+
+As they talked, Anakin noticed something about Ahsoka.
+
+“Where are your lightsabers?”
+
+“I buried them on the moon with the fallen clones.”
+
+Anakin stared at her.
+
+“Why?”
+
+“I wanted to fake my death. By leaving my lightsabers behind on the moon, the Empire will think I died along with the clones. That way they won’t be looking for me.”
+
+Anakin considered that.
+
+“That’s actually pretty smart.”
+
+Ahsoka smiled faintly.
+
+“Snips, will you be getting new lightsabers then?”
+
+“No.”
+
+Anakin looked almost offended.
+
+“No?! Why not?”
+
+“If I carry lightsabers, and the Empire finds me, they will immediately know that I am connected to the Jedi somehow and I would likely be in trouble.”
+
+“Ahsoka. Do you know how famous you are? If the Empire actually finds you, they won’t need to see lightsabers to figure out who you are.”
+
+“Famous?”
+
+She gave him a skeptical look.
+
+“I think you overestimate how well known I am. Unlike you, the ‘Hero With No Fear’ that everybody in the galaxy knows about, I’m just a ‘lowly’ Padawan and Jedi commander.”
+
+“You don’t need to be so modest, Snips. I’m sure anyone who follows the Clone Wars closely knows who Commander Tano is.”
+
+“Okay, let’s not argue about this.”
+
+She leaned back.
+
+“Even if I really am as famous as you claim, why do you think I should carry lightsabers?”
+
+“Because if the Empire does find you, you need to protect yourself. Sure, you can just use the Force. But you were trained extensively in Jar’Kai. A trusty pair of lightsabers are a much safer bet if it ever comes to combat.”
+
+Ahsoka thought about it.
+
+“...You might have a point. I will think about it.”
+
+Padmé nodded.
+
+“I agree with Anakin. Protecting yourself is the most important thing right now.”
+
+Rex joined in.
+
+“I actually agree with Anakin as well. Ahsoka, I think you should go get a new pair of lightsabers.”
+
+Ahsoka looked from one person to another.
+
+Then she sighed.
+
+“Fine. If everyone is insisting on it, I’ll do it. I’ll make a trip to Ilum and get myself new kyber crystals.”
+
+Anakin smiled.
+
+“Thank you, Ahsoka.”
+
+She shook her head.
+
+“By the way, Anakin, one more thing.”
+
+“Yes, Snips?”
+
+“Yesterday we came across this ancient castle on our way to your hut. It belongs to an old alien named Maz Kanata. Have you ever heard of her?”
+
+“No.”
+
+Anakin looked puzzled.
+
+“I did not know that anyone else lived beside this lake.”
+
+Rex nodded.
+
+“She is really nice and friendly. She let us stay for as long as we need, and offered to help us whenever we need it.”
+
+“And she’s also Force-sensitive,” Ahsoka added. “Honestly I think she is really knowledgeable about the Force. You should go talk to her.”
+
+Anakin’s interest immediately sharpened.
+
+“Sounds interesting. I’ll go take a look.”
+
+Then he looked back at Ahsoka.
+
+“What are you planning to do now?”
+
+“I’m not quite sure yet. I think I will go into hiding as well, and eventually find a way to covertly resist the Empire.”
+
+She thought for a moment.
+
+“Maybe I can become a secret intelligence agent. Are you interested? Do you want to join me?”
+
+Anakin looked at Padmé.
+
+Then toward the bedroom where Luke and Leia were sleeping.
+
+“...No. I think I have to stay here and raise our kids.”
+
+Ahsoka nodded.
+
+“I’m planning to train them eventually so they can help bring down the Empire.”
+
+“I suppose that works too,” Ahsoka said. “I guess we will all just help in our own ways.”
+
+Anakin turned to Rex.
+
+“What about you, Rex? What are your plans?”
+
+“I’m also not completely sure.”
+
+Rex folded his arms.
+
+“But I’m thinking about ways to help surviving clones. If I can find a way to remove the inhibitor chips from my fellow brothers en masse, that would be great.”
+
+His expression became more uncertain.
+
+“But I still need to think about how to do that, or if that’s even possible at all given the Empire and everything.”
+
+Anakin nodded.
+
+“Well, then. Good luck to both of you!”
+
+After another shared meal, it was time for Ahsoka and Rex to leave.
+
+As they prepared to go, Anakin suddenly remembered how they had arrived.
+
+“Hang on. You guys walked all the way around the lake to get here, right?”
+
+Ahsoka nodded.
+
+“I’ll fly you to your ships so you don’t have to walk again. Where did you land your ships?”
+
+“I landed at that wrong coordinate you gave us initially.”
+
+Rex answered next.
+
+“I landed right beside Maz Kanata’s castle.”
+
+“Okay.”
+
+Anakin thought through the route.
+
+“I will fly you guys to Ahsoka’s ship first, then I’ll drop Ahsoka off and take Rex to the castle and drop him off there. Then I guess since I’m at the castle already, I might as well go check it out and maybe say hi to Maz Kanata.”
+
+Padmé immediately spoke.
+
+“Then I’ll come too. I want to see who this Maz Kanata is too.”
+
+“Alright then, let’s go!”
+
+Anakin entered the bedroom.
+
+Luke and Leia were still asleep.
+
+Threepio and Artoo remained nearby.
+
+“Threepio, Artoo, take care of Luke and Leia while we’re gone. We will be back soon.”
+
+“Of course, Master Anakin.”
+
+Artoo gave a few happy beeps.
+
+Anakin returned to the others.
+
+The four of them boarded Padmé’s Naboo skiff and lifted away from the hut.
+
+As planned, Anakin first flew to the place where Ahsoka had landed.
+
+The skiff touched down near her ship.
+
+Ahsoka disembarked.
+
+“See you soon, Skyguy.”
+
+“Stay safe, Snips.”
+
+She waved, then headed toward her vessel.
+
+Anakin took the skiff into the air again.
+
+They continued around Nymeve Lake toward Maz Kanata’s castle.
+
+The ancient structure soon appeared beside the shoreline.
+
+Anakin brought the skiff down nearby.
+
+Rex climbed out.
+
+“Take care, Anakin.”
+
+“You too, Rex.”
+
+Rex headed toward his ship.
+
+Anakin and Padmé remained outside long enough to watch as the vessel lifted from the ground, climbed into the sky, and eventually disappeared from view.
+
+Then Anakin looked toward the castle.
+
+Padmé followed his gaze.
+
+“So this is the place?”
+
+“Apparently.”
+
+Together, they turned away from the landing area and walked toward the entrance.
+
+Then Anakin and Padmé stepped inside Maz Kanata’s castle.
+
+---
+
+# Part 9
+
+- anakin and padme meet maz kanata
+- understanding maz: age, relationship with the force, underworld role
+- anakin: the chosen one prophecy
+- padme: discussions about the republic and its flaws
+- building a lasting friendship
+
+---
+
+# Part 10
+
+- anakin trains luke and leia
+- empire side: strip-mining ilum to power death star
+- trip to ilum
+
+---
+
+# Part 11
+
+- skywalker family meets han and chewie via maz
+- han's beliefs about the force changes
+
+---
+
+# Part 12
+
+- changes in galaxy's attitude towards empire
+- rise of the rebel alliance
+- adaptation of ANH
