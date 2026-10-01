@@ -3718,26 +3718,1325 @@ Then Anakin and Padmé stepped inside Maz Kanata’s castle.
 
 # Part 9
 
-- anakin and padme meet maz kanata
-- understanding maz: age, relationship with the force, underworld role
-- anakin: the chosen one prophecy
-- padme: discussions about the republic and its flaws
-- building a lasting friendship
+It did not take long for Anakin and Padmé to find Maz Kanata.
+
+The ancient alien was inside the castle when they approached, and she greeted them with the same easy warmth Ahsoka had described.
+
+“Hello, young travellers.”
+
+Anakin smiled.
+
+“Hello, Maz. Our friend Ahsoka introduced you to us.”
+
+“Ah, I see...”
+
+Maz took a closer look at them.
+
+Her eyes moved first to Anakin, then to Padmé.
+
+“You must be General Anakin Skywalker and Senator Padmé Amidala, if I am not mistaken?”
+
+Anakin and Padmé exchanged mildly startled looks.
+
+Padmé turned back toward her.
+
+“How did you know?”
+
+Maz smiled.
+
+“I’m over a thousand years old. I know things.”
+
+Anakin stared.
+
+“Wow, that’s older than Master Yoda! Master Yoda is only nine hundred years old...”
+
+“Oh yeah. Yoda and I have crossed paths many times throughout our lives.”
+
+Anakin’s eyebrows rose again.
+
+“Seriously?”
+
+“Back in the High Republic days, there was a Jedi temple right here on Takodana. Yoda was around often.”
+
+Anakin looked around the ancient castle with renewed interest.
+
+The more Maz spoke, the more obvious it became that her age was not merely an amusing fact about her. She had personally watched entire eras of galactic history pass by.
+
+“So speaking of Yoda and the Jedi...” Anakin said. “What exactly is your relationship to the Force?”
+
+Maz folded her hands behind her back.
+
+“I’ve studied the Force for all my life. I understand the Force deeply in its very nature.”
+
+“But you were never a Jedi?”
+
+“No.”
+
+“Were you ever trained?”
+
+“Not in the way you mean. I was never trained to use the Force in combat, because I don’t think that fits me.”
+
+Anakin looked intrigued.
+
+“So what do you do with your knowledge, then?”
+
+“I use it to help people.”
+
+Maz gestured around the castle.
+
+“I use it to understand what troubles my guests. Sometimes someone walks through those doors carrying more pain than they know what to do with. Sometimes they don't even understand the source of it themselves.”
+
+Padmé listened quietly.
+
+“And sometimes,” Maz continued, “I simply study the Force for the sake of knowledge itself. Not everything has to become a weapon.”
+
+Anakin nodded slowly.
+
+It was a perspective he rarely heard.
+
+Padmé glanced around the castle.
+
+“What exactly do you do in this castle? Ahsoka told us that you said everyone is free to stay here for as long as they need. So is this castle your home, or is this effectively public property?”
+
+Maz laughed.
+
+“Both.”
+
+“Both?”
+
+“I do live here. But I also open my castle to all travellers. I don’t care who they are, be they a smuggler, a pirate, a wanderer, an outlaw, or somebody else.”
+
+Padmé looked surprised.
+
+“But wouldn’t that be dangerous? Inviting pretty much everyone into your home?”
+
+“Oh, I do have ground rules for all my guests.”
+
+Maz raised one finger.
+
+“The most important one is no fighting. If you come in here and you start a fight, I’m kicking you out.”
+
+Padmé considered that.
+
+“Fair, I guess.”
+
+“I try to help my guests as well. I know a lot of underworld connections. I help young smugglers just starting out in their career find their way around the galaxy. I introduce young pirates to more experienced ones. Sometimes, if they need it, I even give them a couple of credits.”
+
+Anakin looked at her thoughtfully.
+
+“Wow, that is very nice of you. But have you perhaps ever thought that you are helping the wrong people?”
+
+Maz tilted her head.
+
+“What makes you ask that?”
+
+“Because these people often work for crime lords. And crime lords are evil and cruel. They enslave people and torture people.”
+
+Anakin’s expression hardened slightly.
+
+“Being once a slave child myself, I have no good feelings towards them.”
+
+Maz studied him for a moment.
+
+“Hm.”
+
+Then she spoke.
+
+“Have you ever thought about the fact that smugglers and crime lords don’t belong in the same bucket?”
+
+Anakin frowned.
+
+Maz continued.
+
+“Unlike crime lords, smugglers are often just trying to survive in a galaxy that’s hostile toward them. They work for crime lords not because they support those crime lords, but because they need money to stay alive.”
+
+Anakin said nothing.
+
+“Many of them are genuinely good people, Anakin. But they have no choice but to work for evil people sometimes.”
+
+Anakin considered that.
+
+“Oh... very interesting point. I will think about it.”
+
+“And I live by a very strict moral code myself,” Maz added. “I will never help a genuine crime lord. If, say, Jabba the Hutt comes in here one day, I’m going to yell at him to get out before he regrets it.”
+
+Anakin laughed.
+
+“I don’t think Jabba would ever come here. He’s too proud to even leave Tatooine.”
+
+Maz smiled.
+
+“So trust me. I am not helping the wrong people.”
+
+Anakin nodded.
+
+A brief pause followed.
+
+Then another subject occurred to him.
+
+“Since you seem to know a lot about the Force, and I rarely get a chance to hear a non-Jedi perspective on this matter... do you know about the prophecy of the Chosen One?”
+
+Maz’s expression changed.
+
+“Ah... the Chosen One.”
+
+“You know it?”
+
+“Of course I have heard about it. It’s quite a well-known ancient Jedi prophecy.”
+
+Anakin leaned forward slightly.
+
+“So what do you think about all of it?”
+
+Maz took her time before answering.
+
+“I can’t say for sure if it’s true or not. Jedi legends can change over time as they pass from generation to generation.”
+
+Anakin listened intently.
+
+“Nowadays, the Jedi often forget their true calling,” Maz continued. “But there is one Jedi... Master Qui-Gon Jinn. He impressed me a lot.”
+
+Anakin’s eyes widened.
+
+“You know Qui-Gon too?!”
+
+Maz sighed.
+
+“Maybe you should stop asking about who I know, Anakin. I know nearly everyone.”
+
+“I guess that’s what living for over a thousand years does to you...”
+
+Maz smiled faintly.
+
+“Qui-Gon was different. He never forgot the true calling of the Force. He truly understood what it means to be a good Jedi.”
+
+Anakin immediately seized on that.
+
+“But he believed in the prophecy too! He was the one who concluded that I was the Chosen One!”
+
+Maz gave another long sigh.
+
+“Then perhaps he is right.”
+
+Anakin waited for more.
+
+Maz shook her head.
+
+“I should not comment on this further.”
+
+“Why?”
+
+“If you want to know the truth, listen to the Force. Don’t listen to me.”
+
+She pointed gently toward him.
+
+“I know the Force, but that doesn’t mean that I am the Force. There is no substitute for connecting with the Force itself.”
+
+Anakin thought about that.
+
+Then he nodded.
+
+“Okay, I will. Thanks for the advice, Maz.”
+
+Maz turned her attention toward Padmé.
+
+“Padmé.”
+
+Padmé blinked.
+
+“...Yes, Maz?”
+
+“I’ve heard all about the rumors of you dying. The ‘heartbreak over the Republic’ stuff.”
+
+Padmé groaned slightly.
+
+“Well, you didn’t actually believe that, did you?”
+
+“I wasn’t sure.”
+
+Padmé stared at her.
+
+Maz raised a hand.
+
+“It sounds dramatic, yes, but there really is a grain of truth in there. I know you have always defended the Republic over the years.”
+
+She smiled.
+
+“I know more about galactic politics than you may think.”
+
+Padmé folded her arms.
+
+“And?”
+
+“Sometimes the way you speak gives me the impression that you defend the Republic as if it were perfect or flawless.”
+
+“That’s not true. I never said...”
+
+Maz raised a hand again.
+
+“You may never have said it out loud.”
+
+Padmé stopped.
+
+“But you really may be oblivious to some of the problems plaguing the Republic. That’s what staying in the Core Worlds for so long does to someone. You lose track of what matters out in the galaxy’s frontier.”
+
+Padmé considered her words.
+
+“I think I understand. The Republic doesn’t pay enough attention to its Outer Rim members. That’s a common criticism of the Republic, and I’m no stranger to that view.”
+
+“That’s not the only concern here, Padmé.”
+
+Padmé looked at her.
+
+“It’s not just about paying enough attention. It’s about fully understanding the way life in the frontier operates.”
+
+Maz gestured toward the castle around them.
+
+“Having immersed myself in the underworld for so long, I have seen just how complex the dynamics out here can be. And having lived for so long and having watched governments rise and fall, rise and fall...”
+
+Her expression grew more serious.
+
+“The Republic really isn’t very great as a whole.”
+
+Padmé’s eyebrows rose.
+
+“Sure, it’s of course better than the Empire that Palpatine is now building,” Maz continued. “But it was so far from perfect that I am amazed that it stayed alive for as long as it did.”
+
+Padmé looked taken aback.
+
+“Those are some harsh words, Maz...”
+
+“All I am trying to tell you is that you mourn for the loss of the Republic and its ideals.”
+
+Padmé said nothing.
+
+“But those ideals may already no longer have existed even before the Empire.”
+
+Padmé frowned.
+
+“But surely anything is better than the Empire...”
+
+“Yes.”
+
+Maz answered without hesitation.
+
+“The Empire will just be yet another government that will rise and fall. What matters most is what happens after it.”
+
+Padmé looked toward her more carefully now.
+
+“The next government that rises must not repeat the mistakes of the Republic,” Maz said. “And if it wants to ensure that, then it first needs to understand the Republic’s flaws.”
+
+Padmé nodded slowly.
+
+“I agree.”
+
+Maz’s expression softened.
+
+“Padmé, I have always respected you a lot as a senator.”
+
+Padmé looked mildly surprised.
+
+“The reason I am telling you all of this is because I foresee that you will have a prominent role in the government after the Empire.”
+
+Padmé stared at her.
+
+Maz continued before she could respond.
+
+“And so I wanted to get you to become more critical about the Republic’s flaws now, so that when the Empire eventually falls and you return to politics, you can bring a more nuanced worldview with you.”
+
+Padmé shook her head slightly.
+
+“You are thinking very far ahead, Maz.”
+
+“Perhaps.”
+
+“I think we should focus on defeating the Empire first before we think about what comes next.”
+
+“Of course. I don’t deny your priorities.”
+
+Maz smiled reassuringly.
+
+“But I promise you, the Empire won’t last very long. It’s just going to be yet another speck in my lifetime.”
+
+Padmé gave her a slightly sarcastic look.
+
+“Your lifetime? Has it ever occurred to you that not everyone lives to a thousand years old?”
+
+Maz laughed.
+
+“Oh, of course. I am just trying to comfort you.”
+
+“There is nothing comforting about the situation now.”
+
+“There will be, Padmé.”
+
+Maz looked directly at her.
+
+“Never lose hope.”
+
+The conversation moved on from there.
+
+Eventually, Anakin and Padmé decided it was time to return home.
+
+Anakin looked around the castle once more before turning to Maz.
+
+“We should be friends. We all live on Takodana now, so we should definitely see each other often.”
+
+Maz smiled broadly.
+
+“Oh, absolutely! Feel free to visit at any time!”
+
+Padmé nodded.
+
+“You can also come to our hut. You can meet our kids and our droids.”
+
+“We will see about that,” Maz said. “Maybe one day.”
+
+“Sounds good,” Anakin replied. “Alright then, see you later!”
+
+They said their goodbyes and left the castle.
+
+Anakin and Padmé boarded the Naboo skiff and lifted away from the shore, making the short journey back across Nymeve Lake.
+
+When they reached their hut, Anakin brought the skiff down nearby.
+
+They had gone to the castle simply to meet the strange old woman Ahsoka and Rex had encountered.
+
+They returned having officially made a new friend.
+
+And a very interesting one at that.
 
 ---
 
 # Part 10
 
-- anakin trains luke and leia
-- empire side: strip-mining ilum to power death star
-- trip to ilum
+Six years passed.
+
+On Takodana, life beside Nymeve Lake settled into a rhythm that had once seemed impossible for the Skywalker family.
+
+Luke and Leia were now 6 years old.
+
+They had grown up far from Coruscant, far from the institutions that had defined their parents’ earlier lives, and far from the Empire’s attention. Their earliest memories were of the hut by the lake, the surrounding forests, their parents, and the two droids who had been part of the household for as long as they could remember.
+
+Eventually, Anakin decided that the twins were old enough to begin learning about the Force in earnest.
+
+He started slowly.
+
+The first lessons were meditation.
+
+Luke found sitting still difficult at first. Leia was better at remaining physically motionless, though her thoughts wandered just as easily. Anakin taught them to quiet themselves, to pay attention to the world around them without immediately reacting to it, and to recognize the difference between ordinary senses and impressions that came through the Force.
+
+From there came Force sensing.
+
+Anakin had them close their eyes and identify objects placed around them. He moved quietly through the hut while they tried to determine where he was without looking. Sometimes he stood behind them holding one object in each hand and asked them which one he intended to drop.
+
+Eventually, the lessons moved toward precognition.
+
+Anakin tossed small objects toward them without warning and taught them to react before conscious thought caught up. He made simple games out of it, trying to keep the training interesting while gradually increasing the difficulty.
+
+Then came physical practice.
+
+He gave Luke and Leia sticks and taught them how to stand, how to move their feet, how to keep their balance, and how to spar without simply swinging wildly at one another.
+
+That last instruction took some time.
+
+The twins were competitive.
+
+Very competitive.
+
+Anakin also taught them how to fly the family skiff.
+
+At first, they only sat beside him and watched. Later, under close supervision, each child was allowed to take the controls for short periods. They learned how to keep the vessel level, how to make gentle turns, how to read basic instruments, and how to approach a landing without frightening Padmé.
+
+Basic telekinesis came next.
+
+Small stones.
+
+Tools.
+
+Pieces of fruit.
+
+Anything light enough that a mistake would not cause much damage.
+
+Over time, both children learned to lift objects from the floor, guide them through the air, and set them down again without dropping them.
+
+Eventually, Anakin decided they were ready for something more important.
+
+One morning, he gathered both children together.
+
+“Luke, Leia, we’re going to Ilum!”
+
+Luke looked up at him.
+
+“What’s Ilum?”
+
+“An ancient Jedi world where there are all sorts of kyber crystals. There, you will find the crystal that calls to you, and that crystal will become your very own lightsaber.”
+
+Leia’s eyes widened.
+
+“Wow! Sounds very exciting! Let’s go!”
+
+Anakin decided to make it a whole-family trip.
+
+Padmé came.
+
+Luke and Leia came.
+
+Artoo and Threepio came.
+
+The family boarded the Naboo skiff, lifted away from Takodana, and entered hyperspace toward Ilum.
+
+Far away, Ilum itself had changed dramatically over the years.
+
+The Empire had been strip-mining the planet for kyber crystals, extracting enormous quantities from beneath the surface. The crystals were being gathered to power the massive superweapon whose construction continued gradually elsewhere under Imperial supervision.
+
+On Coruscant, Palpatine summoned several senior Imperial officers to his office.
+
+He regarded one of them from behind his desk.
+
+“Officer, how is the progress with the kyber crystal extraction?”
+
+“It is on schedule, Your Majesty.”
+
+Palpatine smiled.
+
+“Good, good. We shall have the galaxy’s most powerful superweapon soon!”
+
+Some time later, the Skywalker family’s skiff dropped out of hyperspace above Ilum.
+
+Almost immediately, the instruments began warning Anakin of nearby contacts.
+
+Imperial ships.
+
+A heavy orbital patrol surrounded the world.
+
+The moment the patrol detected the unauthorized vessel moving toward the planet, starfighters broke formation and opened fire.
+
+Green laser bolts streaked past the skiff.
+
+Anakin’s hands snapped onto the controls.
+
+Years of wartime piloting experience returned instantly.
+
+He rolled the skiff hard to one side as another volley passed beneath them. The vessel dove, climbed, then twisted between converging lines of fire as Imperial fighters closed from several directions.
+
+Padmé gripped the side of her seat.
+
+“Ani, turn back! Ilum has been occupied by the Empire! We can’t afford to keep going!”
+
+“Padmé, don’t worry. I got this.”
+
+“Ani!! You are endangering the kids!! This is not funny!!”
+
+Anakin pulled the ship sharply upward as another fighter crossed their path.
+
+“Padmé, please. Just trust me. I’ve flown through way worse than this before.”
+
+“With two kids onboard?”
+
+Anakin fell quiet.
+
+In the back of the skiff, Threepio clung tightly to whatever support he could find while the vessel lurched around him.
+
+“Oh dear, oh dear... the odds of us surviving this are 1750 to 1.”
+
+Artoo beeped mockingly.
+
+Threepio turned toward him.
+
+“Oh, won’t you be so smug when we get shot down.”
+
+Luke looked toward the cockpit.
+
+“Why so pessimistic, Threepio? Dad’s got this. Dad’s a GOOD pilot.”
+
+Threepio hesitated.
+
+“Has your dad ever told you about all the times he crashed a ship?”
+
+Leia stared at him.
+
+“He what?!”
+
+From the pilot’s seat, Anakin shouted back.
+
+“Threepio!”
+
+The protocol droid straightened instantly.
+
+“Y... yes, Master Anakin?”
+
+“You might want to watch your mouth right now.”
+
+“Of course, sir.”
+
+A pause.
+
+“Oh dear.”
+
+Anakin continued weaving through the Imperial formation.
+
+A pair of starfighters came in from behind.
+
+He dropped the skiff toward the planet, forcing them to follow through the narrowing descent corridor.
+
+Another fighter approached from ahead.
+
+Anakin waited until the last possible moment, then rolled the skiff sideways and slipped between them.
+
+The Imperial pilots scattered.
+
+For a brief instant, an opening appeared.
+
+Anakin saw it.
+
+He accelerated.
+
+The skiff shot forward at full speed toward Ilum’s surface.
+
+The starfighters pursued, but Anakin kept pushing the engines harder, driving through the atmosphere and toward the frozen terrain below.
+
+The Imperial fighters followed for some time, but the skiff remained ahead.
+
+Eventually, Anakin put enough distance between them that the patrol lost its pursuit target.
+
+He descended into the mountainous landscape and searched for cover.
+
+A cave opening appeared ahead.
+
+Anakin guided the skiff inside and landed it far enough from the entrance that it would not be easily visible from above.
+
+The engines powered down.
+
+Anakin stood.
+
+“Threepio, Artoo, stay with the ship. Contact us immediately if either of you spot any Imperials nearby.”
+
+“Yes, sir.”
+
+Artoo beeped respectfully.
+
+Anakin, Padmé, Luke, and Leia left the skiff and stepped onto the frozen surface of Ilum.
+
+The world around them was stark and cold.
+
+They began walking.
+
+“The Crystal Cave is where all the kyber crystals are,” Anakin explained. “That’s where we are going today.”
+
+Luke looked around.
+
+“How far is it?”
+
+“Use the Force, Luke. You can feel how close it is now.”
+
+Luke stopped.
+
+He closed his eyes and reached outward.
+
+At first he felt only the cold air and the presence of his family.
+
+Then something deeper emerged.
+
+A vast field of faint presences.
+
+Millions of them.
+
+Kyber crystals.
+
+Everywhere.
+
+Luke opened his eyes in amazement.
+
+“Wow... so many...”
+
+“Wait until you see the crystals in person.”
+
+Leia suddenly pointed.
+
+“I see an opening there! Is that an entrance to the cave?”
+
+Anakin looked carefully.
+
+“Yes, that is indeed an entrance. Let’s go!”
+
+Moments later, the four of them entered the Crystal Cave.
+
+Light scattered across countless surfaces.
+
+Kyber crystals of different sizes and colours filled the walls around them, some embedded deeply in ice and stone, others protruding visibly into the cavern.
+
+Luke and Leia stared.
+
+Anakin looked at both children.
+
+“Now just find the one that calls to you. That will be your crystal.”
+
+Leia turned toward him.
+
+“How do we know which one calls to us?”
+
+“When it happens, you will know.”
+
+Leia nodded.
+
+“Luke, Leia. Remember. When in doubt, use the Force.”
+
+Anakin let them continue deeper into the cave on their own while he remained near the entrance with Padmé.
+
+Padmé watched them disappear around a bend.
+
+“I wish I could feel something right now. But all of these crystals are just... ordinary crystals to me.”
+
+Anakin said nothing.
+
+He simply put his arms around her.
+
+Deeper inside the cave, Luke and Leia continued together for a while.
+
+Then they reached a branching passage.
+
+Luke looked to one side.
+
+“We should go left. There are more crystals there.”
+
+Leia looked toward the other.
+
+“No, we should go right.”
+
+“I’m going left. You do whatever you want.”
+
+“I never said I was going to follow you anyway.”
+
+Luke went left.
+
+Leia went right.
+
+Luke wandered farther into his passage, following a sensation he could not entirely explain.
+
+Then he saw it.
+
+A green crystal.
+
+He stopped.
+
+The crystal seemed somehow different from all the others around it.
+
+“Wow... so pretty...”
+
+Luke reached out and touched it.
+
+Immediately, something about it felt right.
+
+He wrapped his fingers around the exposed edge and tried to pull.
+
+Nothing happened.
+
+He pulled harder.
+
+Still nothing.
+
+Then he remembered Anakin’s words.
+
+*When in doubt, use the Force.*
+
+Luke stepped back.
+
+He concentrated.
+
+The crystal trembled.
+
+Then it detached itself from the cave wall and floated gently through the air.
+
+Luke held out his hands.
+
+The crystal dropped into them.
+
+His face lit up.
+
+“Yes! I got it!”
+
+Elsewhere, Leia found her own crystal.
+
+It was light blue.
+
+The moment she sensed it, she knew it was the one she had been searching for.
+
+She did not bother trying to pull it out by hand.
+
+Leia focused immediately.
+
+The crystal loosened from the wall, floated toward her, and landed neatly in her palm.
+
+Soon afterward, the twins found each other again and returned toward the entrance.
+
+Anakin saw them coming.
+
+“You guys got your crystals?”
+
+Luke and Leia proudly held them up.
+
+Anakin smiled.
+
+“Great. Let’s get out of here before the Empire finds us.”
+
+Padmé looked at him.
+
+“I was hoping you’d say that before we landed on the surface.”
+
+Anakin sighed but said nothing.
+
+The family left the cave and began making their way back toward the hidden skiff.
+
+They had not gone far when voices sounded ahead.
+
+A group of Imperial stormtroopers appeared between the rocks.
+
+Their leader spotted them immediately.
+
+“Trespassers spotted! Open fire!”
+
+Blaster bolts erupted toward the family.
+
+Anakin moved before anyone else could react.
+
+His lightsaber ignited with a snap-hiss.
+
+The first bolt struck the blue blade and ricocheted directly back toward the stormtroopers.
+
+A second followed.
+
+Then a third.
+
+Anakin stepped forward into the fire, his blade moving in tight, controlled arcs.
+
+Several reflected shots forced the troopers to scatter.
+
+“Get back!” Anakin shouted toward his family without turning.
+
+Padmé pulled Luke and Leia behind nearby cover.
+
+The stormtroopers continued firing.
+
+Anakin sprinted.
+
+He crossed the distance between them in seconds.
+
+One trooper tried to adjust his aim.
+
+Too late.
+
+Anakin’s lightsaber swept across him, cutting him down.
+
+Another trooper fired at close range.
+
+Anakin twisted aside and deflected the shot into the ground.
+
+Then he thrust out one hand.
+
+Three stormtroopers were suddenly lifted off their feet.
+
+Their weapons flew from their hands as they rose into the air.
+
+Anakin held them there for a moment.
+
+Then he slammed all three into the frozen ground.
+
+The remaining stormtroopers tried to regroup.
+
+Anakin did not give them time.
+
+He moved through them with overwhelming speed, alternating between deflecting blasterfire, disarming attackers, and using the Force to throw them aside.
+
+Within a minute, the fight was over.
+
+The battlefield fell quiet.
+
+Padmé, Luke, and Leia emerged from cover and hurried toward him.
+
+Leia stared at the fallen stormtroopers.
+
+“Woah, Dad, that was impressive!”
+
+“In time you guys will be able to do this too!”
+
+Padmé looked toward one of the stormtroopers.
+
+“Ani, you might want to ask a stormtrooper about what in the galaxy the Empire is doing on Ilum.”
+
+“What do you mean? You think a stormtrooper’s going to willingly answer?”
+
+“Anakin, you’re a Jedi.”
+
+Anakin suddenly understood.
+
+He walked toward one of the stormtroopers he had slammed into the ground earlier.
+
+The man was barely conscious.
+
+Anakin crouched near him.
+
+“What is the Empire doing on Ilum?”
+
+“Since you are a trespasser, I am not authorized to tell you.”
+
+Anakin held out one hand.
+
+“You are authorized to tell me everything.”
+
+“I am authorized to tell you everything.”
+
+“You will answer every question I ask.”
+
+“I will answer every question you ask.”
+
+“Good. What is the Empire doing on Ilum?”
+
+“The Empire is strip-mining Ilum for its kyber crystals.”
+
+“Why?”
+
+“I genuinely do not know.”
+
+Anakin sighed.
+
+“Do you know anyone who may know the answer?”
+
+“No. Nobody on this planet has been told why we are mining so many kyber crystals. The order for the mining came from a high-ranking Imperial officer. As far as I know, even that officer doesn’t know why he has been tasked with overseeing this mining project, or what the point of extracting these crystals is.”
+
+Anakin sighed again.
+
+He looked toward Padmé.
+
+“Well, I suppose that didn’t help much.”
+
+“At least you tried.”
+
+The family continued toward the cave where the skiff was hidden.
+
+They reached it successfully.
+
+Threepio and Artoo were still waiting inside.
+
+Anakin immediately took the pilot’s seat.
+
+The engines powered up.
+
+The skiff shot out from concealment and climbed rapidly toward space.
+
+Anakin accelerated at full speed, aiming to enter hyperspace before the orbital patrol could reacquire them.
+
+The patrol never got another clear lock.
+
+Moments later, the stars stretched into lines.
+
+The skiff entered hyperspace.
+
+Eventually, they returned safely to Takodana and touched down beside their hut.
+
+Over the next few days, Anakin helped Luke and Leia construct their first lightsabers.
+
+He guided them through the internal components, taught them how the focusing mechanisms worked, and showed them how the kyber crystals had to be positioned within the hilts.
+
+The twins did as much of the work themselves as possible.
+
+Finally, both weapons were complete.
+
+Luke and Leia stood side by side outside the hut, each holding a newly constructed lightsaber.
+
+Anakin looked at them.
+
+“Ready? On a count of three. 1... 2... 3!”
+
+Both children activated their weapons at the same time.
+
+Luke’s blade burst into existence in bright green.
+
+Leia’s ignited in brilliant light blue.
+
+The twins stared at their new lightsabers.
+
+Luke grinned.
+
+“Mine is brighter!”
+
+Leia immediately objected.
+
+“Mine is prettier!”
+
+Anakin stared at both of them.
+
+“...Guys, it’s not a contest.”
+
+Padmé smiled.
+
+“Those two have always been so competitive over everything since we could remember.”
+
+Anakin looked from Luke to Leia.
+
+“Yeah, true...”
+
+At last, Anakin could begin training Luke and Leia in the art of lightsaber combat.
 
 ---
 
 # Part 11
 
-- skywalker family meets han and chewie via maz
-- han's beliefs about the force changes
+Another six years passed.
+
+Luke and Leia were now twelve.
+
+The years of training had transformed them considerably. What had begun with meditation, simple Force exercises, wooden sparring sticks, and cautious lessons in piloting had grown into something far more advanced.
+
+Anakin trained them regularly.
+
+Their ability to sense the Force became stronger and more instinctive. Precognition, once an exercise requiring complete concentration, gradually became something they could draw upon in motion. Their telekinesis improved from moving small objects to manipulating heavier ones with increasing precision. Their lightsaber training became faster, more disciplined, and more demanding as Anakin pushed them beyond simple drills and into genuine sparring.
+
+Luke and Leia developed differently, but both progressed remarkably well.
+
+By twelve, neither could reasonably be called a beginner anymore.
+
+They had become competent Jedi in their own right.
+
+One day, Anakin, Padmé, Luke, and Leia visited Maz Kanata at her castle.
+
+By then, such visits were routine.
+
+The Skywalkers knew the way around Nymeve Lake without thinking about it. Maz had become deeply familiar with all four of them, and the family in turn had come to know her as a trusted friend rather than merely the strange ancient woman Ahsoka had discovered years before.
+
+They were in the middle of a conversation inside the castle when two new arrivals entered.
+
+One was a young man.
+
+The other was a Wookiee.
+
+Maz looked toward them.
+
+“Welcome, Han and Chewie. You’re back sooner than I expected.”
+
+Then she turned toward the Skywalkers.
+
+“This is Han Solo and Chewbacca. They are smugglers and very good pilots. I first met them last year when they came to my castle.”
+
+Han looked toward Maz.
+
+“Look, the cargo got through real smooth this time. No delays. No Imperial checks. Just delivery and done.”
+
+Maz regarded him approvingly.
+
+“You certainly are becoming more... efficient in doing all this business.”
+
+Anakin looked at Han.
+
+“Who do you work for, Han?”
+
+“Oh, whoever pays me the most. Usually it’s Jabba.”
+
+The name hit Anakin immediately.
+
+A flare of anger rose inside him.
+
+It was brief, but sharp.
+
+Luke sensed it through the Force almost at once.
+
+“Dad, calm down.”
+
+Han looked over, completely oblivious to what had just happened.
+
+“What’s going on?”
+
+Luke glanced at him.
+
+“Oh, my dad just doesn’t like Jabba very much. He has a particular history with him.”
+
+Han chuckled.
+
+“Oh, I’m not surprised. Many people have ‘particular histories’ with Jabba. You have to really watch your step with that man. One wrong move and you could become his next toy. But if you play your cards right, that guy’s got the money. And he’s willing to pay. Now that’s what I’m after.”
+
+Anakin had already forced the initial anger down.
+
+“...Han, I’d advise you to stop working for Jabba. You never know when the next person he makes into a toy becomes you. If I were you, I would stay far, far away from that Hutt.”
+
+Han looked smug.
+
+“I’m not afraid of him! I know exactly how to deal with him to not trigger him. And nobody else pays like him!”
+
+Anakin shrugged.
+
+“Up to you, then. But don’t regret it if something bad ever happens to you.”
+
+Padmé joined in.
+
+“Maybe you should listen to Anakin. He grew up on Tatooine. He has experienced Jabba’s cruelty first-hand.”
+
+Han immediately bristled.
+
+“Oh, really? You people barely just met me, and you already think you have the right to tell me what to do?! Nobody shall be my boss except for myself!”
+
+“Han, we’re just looking out for you. We’re not trying to tell you what you should or should not do. We are just giving advice to you. Besides, I have been a senator for many years...”
+
+Han snapped back.
+
+“Oh, a politician, huh? Well, I definitely have some beef with politicians. They always make life so hard for us smugglers...”
+
+Padmé remained calm.
+
+“Han, I’m trying to be on your side here.”
+
+“A politician always says what they want you to hear, rather than what’s true.”
+
+Leia immediately interjected.
+
+“Han! Be respectful to my mother. Don’t you dare accuse her of lying.”
+
+She spoke with such conviction and attitude that Han was genuinely taken aback.
+
+He looked toward her.
+
+“Oh, you seem tough. Let me guess, you...”
+
+Leia fixed him with a death glare.
+
+“I’m serious.”
+
+Han fell quiet.
+
+Luke looked toward his sister.
+
+“I can’t believe that worked.”
+
+Chewie gave a mocking roar at Han.
+
+Han turned toward him.
+
+“You’re supposed to be on my side, Chewie.”
+
+Anakin looked between them.
+
+“So how did you end up with Chewbacca?”
+
+Han relaxed slightly.
+
+“Chewie and I escaped from the Empire together.”
+
+Padmé looked interested.
+
+“Oh, interesting. What happened?”
+
+“Imperial officers threw me into a pit on Mimban. Chewie was there and the officers intended for him to execute me. But we both escaped instead. And we have been together ever since, smuggling our way through the galaxy.”
+
+Padmé nodded.
+
+“So you are against the Empire, right?”
+
+“Of course! Who likes the Empire?”
+
+“Okay then. Han, look. We may have our differences, but we have one thing in common—the Empire is our enemy. So how about we all work together to bring down the Empire? You can take out your frustration on politicians after that.”
+
+Leia had already noticed that Han seemed unusually responsive to her directness.
+
+She decided to use that again.
+
+“Listen to Mom. We should all put our differences aside to focus on defeating the Empire.”
+
+Han hesitated.
+
+Then he sighed.
+
+“...Fine. We’ll work together.”
+
+Luke stared at Leia.
+
+“How in the galaxy are you so persuasive with this smuggler?”
+
+Leia shrugged slightly.
+
+“I have no idea. Maybe because of the Force, I guess.”
+
+Han heard that.
+
+He immediately turned toward them.
+
+“The Force? That hokey religion? You guys don’t seriously believe in that nonsense, do you?”
+
+Anakin stared at him.
+
+“What?”
+
+Maz glanced between them.
+
+“Oh boy...”
+
+Anakin extended one hand.
+
+Han’s feet left the floor.
+
+His entire body rose smoothly into the air.
+
+For a moment, Han could do nothing but stare downward in complete disbelief.
+
+Anakin looked up at him.
+
+“Han, tell me, why are you floating in mid-air right now?”
+
+“I... what...”
+
+Anakin lowered him carefully until his boots touched the floor again.
+
+Han stumbled slightly, then looked straight at Anakin.
+
+“How did you do that?!”
+
+“The Force.”
+
+Han looked around as though the room itself might somehow provide a more reasonable explanation.
+
+Nothing did.
+
+He thought desperately.
+
+Then finally sighed.
+
+“Alright, the Force is real, I guess.”
+
+Anakin looked faintly amused.
+
+“Almost everyone in this room right now can use the Force. You’re a little late to the party, buddy.”
+
+Han stared at him.
+
+“Who else can use the Force?”
+
+“My children, Luke and Leia, can. Maz can, too.”
+
+Han slowly turned toward Maz.
+
+His expression changed.
+
+“You never told me...”
+
+Maz regarded him calmly.
+
+“I had to conceal my connection to the Force. The Empire actively hunts down Force users because they want to have a monopoly over the Force. I have known that you didn’t believe in the Force from the beginning and never bothered to correct you because I didn’t want to reveal myself. But secretly I was always wondering what you’d say when the day comes when you find out that I can use the Force.”
+
+Han looked betrayed.
+
+Before he could respond, Chewie roared.
+
+Han spun toward him.
+
+“You know the Force is real, too?”
+
+Chewie roared again.
+
+Han stared.
+
+“Are you serious right now?!”
+
+Anakin looked at Han.
+
+“What did he say?”
+
+Han turned toward him.
+
+“He said that he worked with a Jedi Master named Yoda during the Clone Wars. He fought with Yoda in the Battle of Kashyyyk.”
+
+Now it was Anakin’s turn to look shocked.
+
+He turned toward Chewie.
+
+“Well, honoured to meet you then. I’m a Jedi as well.”
+
+Chewie gave another roar.
+
+Han sighed and translated.
+
+“Chewie says that he is honoured to meet you as well.”
+
+He looked around the room in growing exasperation.
+
+“Why is the entire galaxy suddenly doing this to me? First you, then Maz, and now Chewbacca as well. Everyone knows about the Force except for me, I guess.”
+
+Anakin smiled.
+
+“I suppose that’s the Force’s dramatic way of punishing you for not believing in it.”
+
+Han looked utterly defeated.
+
+Padmé softened the moment.
+
+“It’s okay, Han. Let’s all be friends now.”
+
+Han looked toward her.
+
+“I still don’t know if I can be friends with a politician.”
+
+Leia answered immediately.
+
+“Oh, I’m sure you can.”
+
+Han looked at her.
+
+“If you say so.”
+
+He glanced toward Chewie.
+
+“Alright, I have to go complete my next job now. 20 tons of spice for Gorvo the Hutt.”
+
+Anakin nodded.
+
+“We will stay in touch!”
+
+“No problem!”
+
+Padmé smiled.
+
+“Good luck!”
+
+Han hesitated.
+
+“Thanks!”
+
+Chewie gave a long roar.
+
+Then Han and Chewie turned and left.
+
+The Skywalkers and Maz watched them go.
+
+A short time later, the sound of engines rose outside the castle.
+
+Their ship lifted from the ground and climbed into the sky.
+
+Anakin watched it carefully.
+
+“That ship looks interesting. Where did they get their hands on that?”
+
+Maz looked toward the departing vessel.
+
+“It’s called the *Millennium Falcon*. It’s a heavily modified Corellian freighter. Han told me that he won it in a game of sabacc from his friend Lando Calrissian.”
+
+Anakin kept watching.
+
+“I’d like to see that ship one day.”
+
+Padmé looked at him knowingly.
+
+“Of course you would. There will never be a day when a heavily modified ship fails to intrigue you.”
+
+Anakin glanced toward her.
+
+“...You know me too well, Padmé.”
+
+Maz smiled.
+
+“Well, next time you guys meet up, maybe he can show you around his ship. But he’s pretty possessive about it, so you’d have to try to convince him.”
+
+Luke looked toward Leia.
+
+“Well, we all know exactly who can convince him.”
+
+Leia rolled her eyes.
 
 ---
 
