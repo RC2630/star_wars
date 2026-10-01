@@ -5042,6 +5042,639 @@ Leia rolled her eyes.
 
 # Part 12
 
-- changes in galaxy's attitude towards empire
-- rise of the rebel alliance
-- adaptation of ANH
+Another seven years passed.
+
+Luke and Leia were now 19 years old.
+
+By then, Anakin had taken their training as far as he reasonably could. Years of meditation, Force exercises, lightsaber drills, piloting, sparring, and practical experience had shaped both of them into fully trained Jedi. They were no longer children imitating their father’s techniques or teenagers testing themselves against one another. Luke and Leia could now wield the Force confidently, handle themselves in combat, and make decisions without Anakin standing over their shoulders.
+
+The galaxy around them had changed just as dramatically.
+
+Palpatine’s Empire had grown steadily more brutal over the years. Repression intensified. Fear became woven into everyday life across countless worlds. Public opinion of Palpatine had fallen extremely low, although most ordinary citizens still did not dare openly criticize the Empire. The consequences for doing so were simply too severe.
+
+It was in that political climate that the Rebel Alliance, once little more than a fledgling organization operating in scattered cells, rose to prominence.
+
+The Alliance remained small compared with the enormous military resources of the Empire, but for the first time in years, Imperial rule faced organized armed opposition capable of striking back.
+
+One by one, people who had resisted quietly began stepping into the open.
+
+Mon Mothma joined the Alliance and became its leader. Bail and Breha Organa committed themselves fully to the cause. Ahsoka joined as well, along with many others who had spent years waiting for the right moment to act.
+
+Obi-Wan and Yoda remained hidden on Dagobah. Neither formally joined the Rebellion, but both assisted its efforts whenever they could.
+
+Anakin and Padmé pledged their support to the Rebel Alliance. Maz Kanata did the same.
+
+None of the three left Takodana permanently.
+
+Luke and Leia made a different choice.
+
+At 19, both decided they wanted to contribute directly. They left home and began serving alongside the Rebels in the field, taking R2-D2 and C-3PO with them.
+
+Han Solo and Chewbacca also supported the Rebel cause, though smuggling still occupied much of their lives. Neither chose to abandon that career and devote himself completely to the Alliance.
+
+Then the Rebels learned of the Death Star.
+
+The existence of the Empire’s most powerful superweapon changed everything.
+
+A desperate battle followed at Scarif. Rebel forces fought through overwhelming Imperial resistance in an effort to retrieve the station’s schematics and transmit them to the fleet.
+
+They succeeded.
+
+The victory came at enormous cost.
+
+Many Rebels died.
+
+But the plans escaped Scarif.
+
+At that moment, Leia Skywalker, R2-D2, and C-3PO were aboard Bail Organa’s ship, the *Tantive IV*, carrying out a separate Rebel mission when Captain Raymus Antilles approached Leia.
+
+“Commander Skywalker, the Death Star plans have been transmitted to us.”
+
+He handed her the disk.
+
+Leia accepted it.
+
+“Well done, Captain. Now we must take this information with us to Alderaan, where the data can be safely kept for analysis. Captain, set course for Alderaan immediately.”
+
+“Yes, Commander.”
+
+The *Tantive IV* changed course.
+
+It did not get far.
+
+Not long after the ship began heading toward Alderaan, an Imperial fleet arrived and attacked.
+
+The first impacts shook the cruiser violently.
+
+Warning alarms erupted throughout the corridors. Crew members rushed to defensive positions while Imperial fire hammered the hull.
+
+The *Tantive IV* tried to escape.
+
+It could not.
+
+Imperial forces closed in, disabled its ability to flee, and forcibly boarded the vessel.
+
+The first stormtroopers blasted their way inside under heavy fire.
+
+Leia drew her lightsaber.
+
+The blue blade ignited with a sharp snap-hiss.
+
+Stormtroopers flooded into the corridor.
+
+Leia charged.
+
+The first volley came toward her in a wall of red blaster bolts.
+
+She met it head-on.
+
+Her blade moved rapidly, catching one shot after another and sending several directly back into the advancing troops. One stormtrooper fell. Then another.
+
+Leia sprinted forward before the rest could reorganize.
+
+She ducked beneath a rifle blast, slashed through the weapon of the nearest trooper, spun, and cut down another before landing behind their formation.
+
+More troops poured in from adjoining corridors.
+
+Leia kept moving.
+
+She used the Force to rip a blaster from one soldier’s hands and fling it into another. A shove sent two more crashing into the wall. Her lightsaber flashed through the smoke as she drove the boarding party backward step by step.
+
+Then something changed.
+
+The stormtroopers parted.
+
+A man in dark robes entered the corridor.
+
+A red lightsaber ignited in his hand.
+
+Leia recognized him immediately from countless HoloNet reports.
+
+Darth Virex.
+
+Palpatine’s longtime Imperial enforcer.
+
+His Sith apprentice.
+
+Leia raised her blade.
+
+“You will not accomplish what you hope for here, Virex.”
+
+Virex advanced.
+
+“We shall see about that.”
+
+Their lightsabers collided.
+
+Leia attacked first, fast and aggressive, trying to prevent Virex from settling into the rhythm of the duel.
+
+He blocked effortlessly.
+
+Blue and red flashed through the corridor.
+
+Leia struck high.
+
+Virex parried.
+
+She reversed direction and swept toward his side.
+
+He caught that as well.
+
+Leia stepped back, then lunged again.
+
+Virex met her blade and forced it away.
+
+Leia was skilled.
+
+Very skilled.
+
+But this was different from sparring with Luke or training under Anakin.
+
+Virex had been hunting Jedi survivors for almost two decades.
+
+He knew what real lightsaber combat felt like.
+
+He knew how Jedi fought when frightened, how they reacted when cornered, and how quickly fatigue exposed small openings.
+
+Leia tried to compensate with speed.
+
+She attacked in a rapid combination, forcing him backward several steps.
+
+For a moment, she thought she had him.
+
+Then Virex changed tempo.
+
+His blade slammed against hers with enough force to jolt her arms.
+
+Leia recovered and blocked another strike.
+
+Then another.
+
+Virex pressed harder.
+
+The duel moved through the corridor, boots striking metal flooring as crew members fled the fighting.
+
+Leia reached out with the Force and hurled a loose panel toward him.
+
+Virex cut it apart without slowing.
+
+She leapt aside as his red blade swept toward her.
+
+The strike missed by inches.
+
+Leia landed, pivoted, and attacked again.
+
+Virex blocked.
+
+He drove her backward.
+
+Leia’s breathing became heavier.
+
+Her reactions remained sharp, but the difference in experience was becoming impossible to ignore.
+
+Virex feinted toward her shoulder.
+
+Leia moved to intercept.
+
+The real strike came low.
+
+She barely caught it.
+
+The impact threw her balance off.
+
+Virex immediately followed with another blow.
+
+Leia blocked again.
+
+Then another.
+
+And another.
+
+She was losing ground.
+
+Finally, Virex forced her blade aside and moved to disarm her.
+
+Leia reacted instantly.
+
+Instead of trying to recover conventionally, she opened her hand.
+
+Her lightsaber flew backward through the air.
+
+At the same time, she sent the disk containing the Death Star plans after it with the Force.
+
+R2-D2 stood farther down the corridor.
+
+His utility arm snapped outward.
+
+He caught both items just in time.
+
+Artoo immediately stored the lightsaber and the plans inside compartments in his cylindrical body.
+
+Virex looked back toward Leia.
+
+“And now you shall be the Empire’s prize.”
+
+Leia glared at him.
+
+“I will never let the Empire have what it wants!”
+
+“Bold of you to say, after you lost to me.”
+
+Leia held his gaze.
+
+“Where are you taking me now?”
+
+“I am taking you to the Death Star. You will be held prisoner there. Then we will decide what we want to do with you.”
+
+From farther away, Artoo and Threepio heard the exchange.
+
+Threepio stiffened.
+
+“Oh dear.”
+
+Artoo beeped sadly.
+
+Virex restrained Leia and placed her in Imperial custody.
+
+Then he resumed his sweep through the *Tantive IV*.
+
+One section after another fell.
+
+Crew members were shot down.
+
+Defenders were cut apart.
+
+Virex moved systematically through the ship until everyone he encountered had been killed.
+
+Threepio began to panic.
+
+“What are we going to do, Artoo? Virex is going to come here soon...”
+
+Artoo gave a few mysterious beeps.
+
+Then he suddenly moved.
+
+Threepio stared after him.
+
+Artoo signaled for him to follow.
+
+The two droids hurried toward the escape pod bay.
+
+Threepio had barely understood what was happening when Artoo shoved him inside one of the pods.
+
+“Artoo!”
+
+Artoo rolled in after him.
+
+A moment later, the pod detached from the *Tantive IV* and drifted away into space.
+
+Threepio looked around in alarm.
+
+“Artoo, what are you doing? Are you sure this is a good idea? Do you even have a plan?”
+
+Artoo beeped mysteriously.
+
+Threepio sagged.
+
+“Oh dear.”
+
+Behind them, Virex completed his sweep.
+
+Then he took the captured Leia and departed with her toward the Death Star.
+
+Inside the escape pod, Threepio examined the navigation information available to them.
+
+“The nearest planet from here appears to be Tatooine. We should land there.”
+
+Artoo beeped in agreement.
+
+The pod adjusted its trajectory.
+
+A while later, Artoo suddenly emitted several enthusiastic beeps.
+
+Threepio turned toward him.
+
+“Oh yes, I am very familiar with Tatooine. I was the Lars family’s protocol droid for quite some years.”
+
+Artoo beeped again.
+
+“Go to the Lars family now? How can they help us?”
+
+A few more beeps followed.
+
+Threepio thought about it.
+
+“I suppose they are the most sensible option. Let’s go, then.”
+
+Eventually, the escape pod descended through Tatooine’s atmosphere and landed near the Lars homestead.
+
+The hatch opened.
+
+Artoo rolled out first.
+
+Threepio followed.
+
+The two droids made their way toward the residence and knocked on the front door.
+
+Owen Lars answered.
+
+He stared at Threepio.
+
+“Threepio! I have not seen you in decades! Why are you here? What’s going on?”
+
+Threepio raised his hands nervously.
+
+“Uh... Mistress Leia has been captured by the Empire, and they are taking her to the Death Star!”
+
+Owen frowned.
+
+“What is the Death Star? And who is Leia?”
+
+“The Death Star is a powerful Imperial superweapon and battle station. Leia is Leia Skywalker.”
+
+Owen looked startled.
+
+“Leia Skywalker?”
+
+Beru approached.
+
+“Maybe one of Shmi’s relatives?”
+
+Threepio turned toward her.
+
+“Oh, she is Shmi’s granddaughter through Anakin.”
+
+Owen’s eyes widened further.
+
+“The same Anakin that came here decades ago and took you away?”
+
+“Yes, Master Owen.”
+
+“I did not know he has a daughter.”
+
+Threepio became more urgent.
+
+“She has been captured. We need help!”
+
+Beru stepped closer.
+
+“What can we do?”
+
+“Do you have a ship we can use?”
+
+“No, we only have a landspeeder.”
+
+“Do you have enough credits for us to buy a ship?”
+
+Owen shook his head.
+
+“No, we are moisture farmers, Threepio. We don’t have many credits.”
+
+“Enough credits to buy a one-way ride to Takodana?”
+
+“Still no. We really don’t have a lot of money, Threepio.”
+
+Artoo suddenly beeped.
+
+Threepio turned toward him.
+
+“Oh, that could actually work.”
+
+Then he looked back at Owen.
+
+“Can you take us to Mos Eisley in your landspeeder?”
+
+Owen looked puzzled.
+
+“Not sure how that would help, but sure, I guess.”
+
+Owen took Artoo and Threepio to Mos Eisley and dropped them off there.
+
+“Good luck.”
+
+“Thank you, Master Owen.”
+
+Artoo beeped gratefully.
+
+Owen returned to his landspeeder and left for the homestead.
+
+Threepio watched him disappear.
+
+Then he turned toward Artoo.
+
+“So what’s your plan exactly?”
+
+Artoo gave a long series of beeps.
+
+Threepio listened.
+
+“Okay.”
+
+The two droids entered Chalmun’s Spaceport Cantina.
+
+The room was crowded.
+
+Threepio rolled his shoulders back, stepped into the middle of the cantina, and shouted as loudly as possible:
+
+“IS ANYBODY HERE GOING TO MAZ KANATA’S CASTLE ANYTIME SOON?”
+
+Several patrons looked over.
+
+A few clearly recognized Maz Kanata’s name.
+
+One patron waved the droids toward him.
+
+He was a Rodian.
+
+Threepio approached, and the two began conversing in Rodese. The Rodian introduced himself as Salvo and explained that he visited Maz Kanata regularly for advice about the underworld. Threepio told him that both he and Artoo were also friends of Maz and urgently needed transportation to Takodana.
+
+As Salvo had already been planning to visit Maz himself, he agreed to take them.
+
+Not long afterward, Salvo’s ship left Tatooine.
+
+He carried Threepio and Artoo all the way to Takodana and eventually landed near Maz Kanata’s castle.
+
+Maz came to greet him.
+
+“Hello, Salvo! I haven’t seen you in a while.”
+
+Then she noticed the two droids standing behind him.
+
+Her expression changed.
+
+“Threepio! Artoo! What are you two doing here?”
+
+Threepio hurried forward.
+
+“We need to go back home immediately. Leia’s been captured by the Empire.”
+
+Maz’s face became serious.
+
+“Oh, that is terrible. I’ll contact Anakin right away.”
+
+She initiated a holocall across the lake.
+
+Anakin answered from the Skywalker hut.
+
+“What’s up, Maz?”
+
+“Your droids are with me. Come pick them up right away. It’s urgent.”
+
+Anakin clearly had questions.
+
+He decided not to ask them yet.
+
+“I am coming right away.”
+
+The call ended.
+
+A few minutes later, the family skiff arrived at the castle.
+
+Threepio and Artoo boarded with Anakin, and the three returned to the hut.
+
+Once they were inside, Threepio explained everything.
+
+“The Rebels got their hands on the Death Star plans, which were successfully transmitted to Leia. She originally planned to take those plans to Alderaan for safekeeping and analysis, but the Empire attacked. Leia fought Virex but lost. She has been captured and is now presumably imprisoned on the Death Star according to what Virex said to her. Artoo now has possession of the Death Star plans as well as Leia’s lightsaber.”
+
+Artoo opened his compartments.
+
+The Death Star plans emerged.
+
+Then Leia’s lightsaber.
+
+Anakin took both and decided to keep them with him.
+
+Padmé looked toward the droids.
+
+“So then how did you guys end up in Maz’s castle?”
+
+Threepio continued.
+
+“After Leia’s capture, Artoo took the two of us out of the ship in an escape pod. We ended up on Tatooine, which was the closest planet at the time. Artoo proposed that we go find your stepfamily, since they know us and might be able to help us. Turns out, they have almost nothing, so they could only take us to Mos Eisley. Once there, Artoo suggested that we use our friendship with Maz Kanata to hitch a ride to Takodana. It somehow worked, and that’s how we ended up in her castle.”
+
+Anakin looked toward both droids with obvious pride.
+
+“Well done, Artoo and Threepio. You guys really saved the day.”
+
+Artoo beeped proudly.
+
+“Thank you, Master Anakin.”
+
+Anakin’s attention returned to the situation.
+
+“I need to go save Leia.”
+
+Padmé looked at him.
+
+“By yourself?”
+
+“No. I’ll need Han’s help. I can’t just approach the Death Star in our skiff. Its weapons are too weak. The *Millennium Falcon* is much better suited for this.”
+
+Anakin immediately contacted Han.
+
+Han answered.
+
+“Hey, what’s up, buddy?”
+
+“Are you and Chewie free right now? I really need your help for something.”
+
+“Well, you’re in luck. We just finished delivering some cargo a few minutes ago, and haven’t accepted another job yet. So yes, we are free for now.”
+
+“Can you come to Takodana right now? We need to infiltrate the Death Star.”
+
+Han’s expression changed.
+
+“That sounds like a nightmare. Why would I willingly get anywhere close to the Death Star?”
+
+Anakin answered immediately.
+
+“It concerns Leia, Han. She has been captured by the Empire and is currently held there.”
+
+Han’s attitude transformed at once.
+
+“Leia? Captured? I’m coming over right away!”
+
+The call ended.
+
+Padmé looked toward Anakin.
+
+“I think Han has feelings for Leia. Look how fast he changed his tune after you told him it’s about Leia.”
+
+Anakin sighed but said nothing.
+
+A few hours later, the *Millennium Falcon* arrived on Takodana.
+
+Anakin was already waiting outside the hut.
+
+The Falcon’s ramp lowered.
+
+Anakin promptly stepped aboard.
+
+Padmé watched him from outside.
+
+“Ani, please come back.”
+
+Anakin looked back at her.
+
+“I will. I promise.”
+
+The ramp closed.
+
+The *Millennium Falcon* lifted away from Takodana, climbed through the atmosphere, and disappeared into hyperspace.
+
+Only then did something catastrophic occur to Anakin.
+
+He realized they had overlooked one crucial problem.
+
+“Wait, where IS the Death Star?”
+
+Han turned toward him.
+
+“Why are you asking me? How am I supposed to know?”
+
+Anakin sighed.
+
+In the urgency of Leia’s capture, he had never stopped to consider that none of them actually knew where the Death Star currently was.
+
+But they were already in hyperspace.
+
+Then Anakin remembered the plans he carried.
+
+He also remembered what Threepio had said.
+
+Leia had originally intended to take them to Alderaan.
+
+Anakin looked toward Han.
+
+“Let’s go to Alderaan then. We can deliver the Death Star plans there, just as Leia originally intended.”
+
+Han frowned.
+
+“So we’re not rescuing Leia anymore?”
+
+“We can’t, until we find out where the Death Star is.”
+
+Anakin paused.
+
+“She is still alive; I can feel it through the Force. So we still have time.”
+
+Han looked unconvinced.
+
+“You better make sure this doesn’t end in a disaster.”
+
+“She will be okay, Han. Don’t give up.”
+
+Chewie let out a loud roar of encouragement.
+
+Han looked toward the controls.
+
+“Alright. Alderaan it is.”
+
+Han and Chewie adjusted the *Millennium Falcon*’s destination.
+
+The freighter raced through hyperspace toward Alderaan.
+
+---
+
+# Part 13
+
