@@ -6804,3 +6804,553 @@ Anakin and Padmé headed back toward Takodana together, while their children tra
 
 # Part 15
 
+Luke and Leia’s starfighter descended through Dagobah’s thick atmosphere and finally settled beside a swamp.
+
+The engines wound down.
+
+For a few moments, neither twin moved.
+
+They had spent the journey crammed together inside a vessel designed for far fewer occupants than they had tried to fit into it, and by the time the canopy opened, both were more than ready to get out.
+
+Luke climbed down first and stretched his arms and back.
+
+Leia followed, taking a deep breath as she stepped onto the damp ground.
+
+Then they looked around.
+
+Swamp.
+
+Trees.
+
+Mist.
+
+More swamp.
+
+Luke frowned.
+
+“How’re we supposed to know where Obi-Wan and Yoda are?”
+
+Leia considered that for a moment.
+
+“Let’s ask our parents.”
+
+They established a holocall to the hut on Takodana.
+
+Anakin picked up.
+
+Luke got directly to the point.
+
+“Where are Obi-Wan and Yoda?”
+
+“I know, but I won’t tell you. This will be your first major challenge. You have to figure it out yourself.”
+
+Leia stared at him through the hologram.
+
+“How? Blindly walk around an entire planet?”
+
+“Think about how you can use the Force to help.”
+
+Luke looked increasingly annoyed.
+
+“Dad, why are you making this so hard for us?”
+
+“Because it’s good learning. Anyway, good luck.”
+
+The hologram disappeared.
+
+Anakin had ended the call.
+
+Luke and Leia stood silently beside the starfighter.
+
+Luke looked around at the seemingly endless wilderness.
+
+“How is the Force going to help us? The Force is not a navigation system.”
+
+Leia folded her arms.
+
+“I think Dad is just playing a prank on us. Maybe the Force is really not the right solution for this.”
+
+Luke looked toward the swamp.
+
+“Let’s just walk around randomly then. See how far we can get.”
+
+“Okay.”
+
+They started walking.
+
+The terrain immediately made even that simple task irritating.
+
+Their boots sank into damp ground. Thick vegetation blocked the easiest routes. Swamp water forced them into frequent detours. The heavy air clung to them as they pushed farther away from their starfighter without developing any meaningful idea of where they were supposed to be going.
+
+They tried changing direction.
+
+Then changing direction again.
+
+They found nothing.
+
+Eventually, exhaustion won.
+
+With no hut, settlement, or even obvious dry shelter nearby, Luke and Leia stopped for the night and fell asleep on the ground.
+
+The next morning, they woke to the same swamp surrounding them.
+
+Luke sat up and looked around.
+
+“Clearly walking around isn’t helping. Since we’re supposed to be training here anyway, do you want to just spar for a bit?”
+
+Leia rose to her feet.
+
+“Why not?”
+
+The twins moved far enough apart to give each other room.
+
+Luke drew his lightsaber.
+
+Leia did the same.
+
+Two blades ignited.
+
+Luke’s glowed green.
+
+Leia’s shone light blue.
+
+They approached one another.
+
+Luke struck first.
+
+Leia blocked.
+
+Their blades clashed sharply.
+
+Luke stepped to the side and attacked again. Leia pivoted and met the blow, then immediately countered.
+
+Luke caught her strike.
+
+The two moved through the clearing, trading attacks and parries with the familiarity of people who had been sparring together for most of their lives.
+
+Neither treated the exercise casually.
+
+Their footwork remained controlled. Their strikes were quick. Each tried to read the other through the Force before committing to an attack.
+
+Luke advanced.
+
+Leia gave ground, then abruptly changed direction and forced him onto the defensive.
+
+Their lightsabers collided again.
+
+Then a voice interrupted them.
+
+“Hello there.”
+
+Both twins froze.
+
+They turned.
+
+Luke’s expression brightened immediately.
+
+“Obi-Wan!”
+
+Leia lowered her lightsaber.
+
+“We were looking for you. We didn’t know where to find you.”
+
+Obi-Wan looked between the two of them.
+
+“I didn’t know you guys came to Dagobah. What for?”
+
+Luke deactivated his lightsaber.
+
+“Our father sent us here to train with you and Master Yoda.”
+
+Leia deactivated hers as well.
+
+“He says we still have a bit more to learn and that you and Master Yoda can teach us what he could not.”
+
+Obi-Wan nodded.
+
+“That makes sense. But why didn’t he tell you where we are?”
+
+Luke sighed.
+
+“He decided it would be funny to make it a challenge to find your location. He says it’s to learn to use the Force. We think it’s a prank.”
+
+Obi-Wan looked unsurprised.
+
+“I think it’s a prank, too. Your father certainly does outrageous things sometimes. I am certainly no stranger to some of those things.”
+
+Leia looked toward him.
+
+“Will you train us? And take us to Master Yoda as well?”
+
+“Certainly. Follow me.”
+
+Luke and Leia followed Obi-Wan through the swamp.
+
+Unlike their aimless wandering the previous day, Obi-Wan moved with complete familiarity through the terrain.
+
+Eventually, a small hut came into view.
+
+Obi-Wan gestured toward it.
+
+“This is where Yoda and I live.”
+
+The three entered.
+
+Yoda greeted them.
+
+“Arrived, Anakin’s children have. Hmm. Strong in the Force, I sense. But much to learn, you still have.”
+
+Leia stepped forward.
+
+“Master Yoda, will you train us?”
+
+“Yes, yes. Training you will need. And train you I will.”
+
+Their new stage of training began.
+
+Obi-Wan and Yoda quickly discovered that Anakin had trained both twins extensively, but his own strengths and preferences had naturally shaped what he emphasized.
+
+Obi-Wan focused heavily on defense.
+
+As a master of Soresu, he refined Luke and Leia’s defensive lightsaber technique in ways they had never practiced with Anakin.
+
+Their sessions became exercises in patience.
+
+Obi-Wan taught them to conserve movement, to maintain control under pressure, and to allow an opponent’s aggression to create opportunities rather than answering every attack with greater aggression of their own.
+
+Their lightsabers struck again and again during training, but Obi-Wan repeatedly redirected the focus away from overwhelming an opponent and toward surviving one.
+
+That philosophy extended beyond lightsaber combat.
+
+He taught the twins to use the Force defensively as well—to sense danger earlier, protect themselves and others, and maintain awareness even while under sustained pressure.
+
+Yoda took an entirely different approach.
+
+He dispensed with lightsaber drills altogether.
+
+His lessons instead revolved around the Force itself.
+
+He pushed Luke and Leia toward a deeper understanding of what they were sensing rather than merely teaching them how to use it.
+
+Meditation sessions became longer.
+
+Questions became harder.
+
+Yoda challenged assumptions the twins had carried for years.
+
+He emphasized connection, awareness, discipline, and genuine understanding of the Force beyond its immediate usefulness in combat.
+
+These were areas Anakin had never emphasized to nearly the same degree.
+
+As a result, both Luke and Leia found themselves learning a great deal from their two new masters.
+
+Meanwhile, Darth Virex faced a problem.
+
+The Death Star had been destroyed.
+
+Leia Skywalker had escaped.
+
+And Emperor Palpatine had personally ordered him to capture her alive.
+
+Virex began seriously considering how he could fulfill that command.
+
+He ordered Imperial intelligence agents to begin spying on the Rebel Alliance.
+
+The first reports were not encouraging.
+
+Leia Skywalker had recently disappeared.
+
+Nobody seemed to know where she had gone.
+
+Virex refused to accept that as the end of the search.
+
+He ordered the agents to push further.
+
+If they could not locate Leia directly, they would investigate the people around her.
+
+Imperial operatives began observing individual members of the Rebel Alliance, searching for anything that might reveal where Leia had gone or provide some other way to reach her.
+
+Eventually, those efforts led to Han Solo.
+
+An experienced Imperial spy named Darren was assigned to monitor him.
+
+One day, while covertly observing Han, Darren noticed something interesting.
+
+Han activated a holoprojector.
+
+A holophoto of Leia appeared.
+
+Han looked at the image.
+
+“I miss you, Leia. Please come back soon.”
+
+Darren immediately contacted Virex.
+
+“My Lord, Han Solo appears to be unusually close to Leia Skywalker.”
+
+Virex considered the information.
+
+“Then we shall capture him and use him as bait to lure her out.”
+
+“How do we capture him?”
+
+“That would be no concern of yours. You have done well, Darren. I will take it from here.”
+
+“Thank you, my Lord.”
+
+The transmission ended.
+
+Virex began collecting information on Han Solo.
+
+It did not take long before he found something useful.
+
+Jabba the Hutt had placed a bounty on Han’s head because of a debt Han owed him.
+
+Multiple bounty hunters were already pursuing the smuggler, hoping to capture him and deliver him to Jabba in exchange for payment.
+
+Virex selected one of them.
+
+Boba Fett.
+
+He approached the bounty hunter discreetly.
+
+“I propose we work together to capture Han. I will make it easier for you to get a hold of him, while the entire bounty will be yours to keep. All I ask in return is that you let me have access to him for a bit before you bring him to Jabba.”
+
+Boba regarded him carefully.
+
+“So you are not after the bounty money at all?”
+
+“No.”
+
+“You will join forces with me to capture him, but you are not demanding a share of the bounty for the collaboration. You just want to use Han for a bit, then you will let me take him to Jabba?”
+
+“Exactly.”
+
+Boba considered the arrangement.
+
+“That is an extraordinarily good deal. I’m in.”
+
+Virex nodded.
+
+“Then deal.”
+
+Some time later, Han and Chewie were flying the *Millennium Falcon* through space on a routine Rebel mission.
+
+Without warning, Imperial TIE fighters dropped into attack formation around them.
+
+Laser fire streaked past the cockpit.
+
+Han pulled violently on the controls.
+
+“Oh, come on. Not Imperial forces again.”
+
+Chewie roared.
+
+Han returned fire with the Falcon’s weapons.
+
+The freighter rolled away from one volley, accelerated, then swung around toward another TIE.
+
+Its cannons opened fire.
+
+The Imperial fighter veered aside.
+
+Another attacked from behind.
+
+Han banked hard.
+
+Then a new ship joined the ambush.
+
+Han recognized it.
+
+His eyes widened.
+
+The *Slave I*.
+
+“Boba Fett is working with the Empire now? How in the galaxy did that happen?”
+
+The combined attack intensified.
+
+TIE fighters harassed the Falcon from multiple directions while the *Slave I* maintained pressure from behind.
+
+Han fought back fiercely.
+
+He maneuvered through Imperial fire, forcing TIEs to break formation whenever they came too close.
+
+Chewie returned fire.
+
+But the situation kept getting worse.
+
+Every time Han tried to create enough distance to escape, the Imperial squadron closed the gap.
+
+The *Slave I* stayed with them.
+
+Eventually, Han accepted that he could not win a prolonged fight against both Boba Fett and an entire squadron of Imperial fighters.
+
+He stopped trying to defeat them.
+
+He focused entirely on escape.
+
+The Falcon accelerated.
+
+The TIEs pursued.
+
+The *Slave I* followed.
+
+Han changed direction repeatedly, pushed the engines, and attempted to lose them.
+
+Nothing worked.
+
+“We need somewhere to land. Somewhere safe.”
+
+He pulled up a map of the surrounding systems.
+
+His eyes moved across it.
+
+Then he found something.
+
+“Aha! Bespin is close to here. We’ll land in Cloud City.”
+
+The Falcon changed course toward Bespin.
+
+The Imperial fighters continued their pursuit.
+
+So did the *Slave I*.
+
+Inside the Falcon, Han opened a communications channel.
+
+Lando Calrissian answered.
+
+“Lando.”
+
+“Oh hey, you old buddy! What’s up?”
+
+“I’m currently being pursued by both Boba Fett and a bunch of Imperial forces. I want to land in Cloud City. Can you prepare the city’s air defense to let me in, then shoot all the other ships down?”
+
+“Sure, buddy.”
+
+“Okay then. I will see you in a bit.”
+
+The transmission ended.
+
+The Falcon reached Bespin and descended toward Cloud City.
+
+Its defenses recognized Han’s ship and allowed it through.
+
+The pursuing Imperial ships followed.
+
+The moment the Falcon crossed into safety, Cloud City’s relatively modest air defenses opened fire.
+
+Laser blasts streaked upward toward the TIE fighters and the *Slave I*.
+
+Virex was leading the Imperial squadron.
+
+As the defensive fire intensified, he opened communications with Boba and the other pilots.
+
+“Let’s not land. We will surround Cloud City from above and prevent Solo from leaving. I will call in Imperial reinforcements, and then we will force Solo’s hand.”
+
+Boba answered.
+
+“Sounds good.”
+
+The TIE fighters broke away.
+
+The *Slave I* followed.
+
+All of them retreated beyond the effective range of Cloud City’s defenses.
+
+Then they spread out around the city, maintaining a blockade.
+
+Nobody could safely enter or leave.
+
+Virex called for reinforcements.
+
+On the ground, Han met Lando.
+
+At first, both believed the immediate danger had passed.
+
+The Falcon had landed safely.
+
+Cloud City’s defenses had driven the pursuing ships back.
+
+But then more Imperial vessels appeared.
+
+And more.
+
+The numbers continued growing.
+
+Han and Lando watched the Imperial presence around Bespin expand until it became obvious that the situation had changed completely.
+
+Cloud City could defend itself against a limited attack.
+
+It could not withstand the force Virex was assembling.
+
+Eventually, both men understood that they were trapped.
+
+Then Virex issued an ultimatum over the HoloNet.
+
+His image appeared.
+
+“Baron Administrator Calrissian. You are ordered to immediately allow us to land in Cloud City and capture Han Solo. If you refuse, we will invade and occupy Cloud City. You have 10 minutes to make a decision.”
+
+The transmission ended.
+
+Han looked at Lando.
+
+“It seems like either way, I’m done for. There is no way Cloud City can defend against that many Imperial forces.”
+
+Lando shook his head.
+
+“But I don’t want to just turn you over to the Empire.”
+
+“Look, Lando. If they come in here and occupy the city, I will still end up in Imperial custody. So let’s just spare the city, alright? Accept the ultimatum.”
+
+Lando hesitated.
+
+He looked toward the Imperial forces surrounding his city.
+
+“I guess I have no choice.”
+
+He responded to the ultimatum by HoloNet broadcast.
+
+“Lord Virex, I accept your orders.”
+
+Cloud City’s air defenses powered down.
+
+Virex’s TIE descended first.
+
+The *Slave I* followed.
+
+Several additional Imperial vessels came down behind them.
+
+They landed within Cloud City.
+
+Virex emerged.
+
+Boba Fett stepped out nearby.
+
+Han approached them willingly.
+
+Chewbacca remained behind with Lando.
+
+Han stopped in front of Virex.
+
+Virex restrained him.
+
+Then he and Boba took Han indoors.
+
+They brought him first to a makeshift torture chamber.
+
+Han was secured in place.
+
+Virex began torturing him.
+
+Han screamed.
+
+Far away on Dagobah, Luke and Leia were in the middle of a training session with Obi-Wan and Yoda.
+
+Then both twins suddenly felt Han’s pain through the Force.
+
+---
+
+# Part 16
+
