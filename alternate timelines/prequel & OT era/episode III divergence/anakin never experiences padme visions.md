@@ -5678,3 +5678,1129 @@ The freighter raced through hyperspace toward Alderaan.
 
 # Part 13
 
+Virex took Leia directly before Grand Moff Wilhuff Tarkin aboard the Death Star.
+
+Leia stood restrained in front of him while Virex remained nearby.
+
+Tarkin regarded her coldly.
+
+“Where is the Rebel base?”
+
+Leia met his gaze.
+
+“I will not tell you.”
+
+“If you cooperate with us, we will be lenient on you. If you do not, brace for the worst.”
+
+“I am ready to face the worst.”
+
+Tarkin’s expression did not change.
+
+“Very well then. Take her away!”
+
+Virex escorted Leia from the chamber and into a small interrogation cell.
+
+An interrogation droid followed them inside.
+
+The door sealed.
+
+Virex activated the droid.
+
+It floated toward Leia.
+
+A mechanical arm extended.
+
+Then a needle slid into her.
+
+Leia flinched.
+
+The droid began its work.
+
+Pain came first.
+
+Sharp, deliberate, controlled.
+
+Then chemicals entered her bloodstream, designed to weaken resistance and probe the mind.
+
+Leia closed her eyes.
+
+She reached for the Force.
+
+She steadied her breathing.
+
+She focused on the sensation without surrendering to it.
+
+The interrogation continued.
+
+The droid increased the intensity.
+
+Leia’s muscles tightened.
+
+Sweat formed across her face.
+
+Still, she refused to break.
+
+She would not tell them where the Rebel base was.
+
+She would not give them anything.
+
+Time passed.
+
+Eventually, even Virex had to admit that the interrogation was getting nowhere.
+
+He shut down the droid.
+
+Leia sagged against her restraints, exhausted but conscious.
+
+Virex removed her from the cell and took her back before Tarkin.
+
+Tarkin studied her.
+
+“Very well. You are truly a tough one. Now, would you like to witness the full power of the Death Star?”
+
+Leia looked at him suspiciously.
+
+“...What are you planning?”
+
+Tarkin turned toward the enormous viewport.
+
+“Here is the peaceful planet of Alderaan. Wouldn’t it be a shame if we destroyed it, and took many of your friends down along with it?”
+
+Leia’s face changed instantly.
+
+“Tarkin, no. I beg you. Alderaan is innocent.”
+
+“Innocent?” Tarkin said. “Oh, I am no fool. I know the Rebels have operations on Alderaan.”
+
+“That doesn’t give you the right to destroy an entire planet!”
+
+“Then cooperate with us, and we will spare Alderaan.”
+
+Tarkin turned back toward her.
+
+“For the last time, where is the Rebel base?”
+
+Leia stared at him.
+
+She knew what was at stake.
+
+She also knew what giving the Empire the location of the Rebel base would mean.
+
+Her answer came quietly.
+
+“...No. I will not cooperate.”
+
+Tarkin turned away.
+
+“Very well then. Officers, prepare the superlaser.”
+
+Leia’s eyes widened.
+
+Around them, Imperial personnel moved into position.
+
+Far below, enormous systems buried within the battle station awakened.
+
+Power surged toward the Death Star’s primary weapon.
+
+Alderaan hung peacefully in space.
+
+Then the superlaser fired.
+
+Multiple green beams converged into one devastating blast.
+
+The beam struck the planet.
+
+For an instant, Alderaan glowed.
+
+Then the entire world shattered.
+
+Continents vanished.
+
+Oceans disappeared.
+
+The planet exploded into millions of fragments.
+
+Bail Organa died.
+
+Breha Organa died.
+
+Countless Rebels died with them.
+
+And billions of innocent civilians vanished in an instant.
+
+Leia stood frozen.
+
+Tarkin looked toward Virex.
+
+“Now take her away! May she rot in a cell in her misery.”
+
+Virex took Leia from the chamber.
+
+She offered no resistance.
+
+He brought her to a prison block and dumped her into a cell.
+
+The door closed behind her.
+
+Far away, the *Millennium Falcon* finally dropped out of hyperspace.
+
+Anakin looked ahead.
+
+Nothing was where Alderaan should have been.
+
+Only a field of debris stretched through space.
+
+He stared.
+
+Then the truth reached him.
+
+“They destroyed it. The Death Star destroyed Alderaan.”
+
+Han looked out through the cockpit.
+
+“Well, let’s get out of here then.”
+
+He immediately tried to turn the Falcon around.
+
+The controls responded.
+
+The ship did not.
+
+Han frowned.
+
+Something was pulling them.
+
+He looked toward the source.
+
+Then he saw it.
+
+The Death Star.
+
+Han stared.
+
+“That’s the Death Star! The Death Star is still here.”
+
+Anakin’s attention sharpened.
+
+“Well, at least we found the Death Star. Let’s go rescue Leia now!”
+
+Han looked at him.
+
+“Turns out finding the Death Star was not as hard as we thought.”
+
+There was little point resisting the tractor beam.
+
+Han and Chewie stopped fighting the pull and allowed the Falcon to be drawn toward the battle station.
+
+The Death Star grew larger in front of them.
+
+Eventually, the freighter entered one of the massive docking bays and settled onto the deck.
+
+Outside, stormtroopers rapidly surrounded it.
+
+A lead stormtrooper raised a megaphone.
+
+“Surrender now!”
+
+Inside the Falcon, Anakin looked toward Han and Chewie.
+
+“Watch this.”
+
+He extended both hands.
+
+The Force erupted outward.
+
+A powerful shockwave tore through the docking bay.
+
+Stormtroopers were ripped from their feet and thrown backward.
+
+Armor clattered across the floor.
+
+Weapons flew from hands.
+
+Entire ranks collapsed at once.
+
+Before the surviving troopers could recover, Anakin leapt from the Falcon.
+
+His lightsaber was already ignited.
+
+A stormtrooper tried to rise.
+
+Anakin deflected his blaster bolt back into him.
+
+Another fired from the side.
+
+Anakin spun, redirected the shot, and cut through the trooper’s weapon before striking him down.
+
+Two more rushed from behind cover.
+
+A sweep of Anakin’s hand sent them crashing into the wall.
+
+Within moments, the docking bay was silent.
+
+Han and Chewie emerged behind him, Han with his blaster drawn and Chewie carrying his bowcaster.
+
+Anakin closed his eyes briefly.
+
+He reached through the Force.
+
+Somewhere inside the vast battle station, he felt Leia.
+
+Alive.
+
+Close enough to sense clearly.
+
+“I can feel Leia. I will go fetch her. Han, Chewie, the two of you go find a way to disable the tractor beam.”
+
+Han nodded.
+
+“Good plan.”
+
+Chewie roared in agreement.
+
+They separated.
+
+Not long afterward, a few Imperial technical crew members entered the now-empty docking bay.
+
+They moved quickly.
+
+One of them approached the Falcon and attached a small tracking device to the ship.
+
+Once it was secured, the crew members left.
+
+Elsewhere, Anakin sprinted through the corridors of the Death Star.
+
+Stormtroopers appeared ahead.
+
+His lightsaber flashed.
+
+Blaster bolts bounced back toward their senders.
+
+Anakin kept moving.
+
+He followed Leia’s presence through the Force, changing direction whenever instinct told him to.
+
+A squad rounded a corner.
+
+Anakin accelerated.
+
+He slid beneath the first volley, rose inside their formation, and cut through them before they could spread out.
+
+Another group appeared farther ahead.
+
+He lifted one hand.
+
+The entire squad was hurled backward into the wall.
+
+Anakin continued running.
+
+At last, he reached the prison block.
+
+He found Leia’s cell.
+
+Anakin pressed the control beside the door.
+
+Nothing happened.
+
+He tried again.
+
+Still nothing.
+
+He sighed, drew his lightsaber back, and plunged it into the door.
+
+The blade burned through the metal.
+
+Anakin carved a wide opening.
+
+He looked through it.
+
+“Leia. It’s me.”
+
+Leia stared at him.
+
+“Dad? How did you get here?”
+
+“No time to explain. We have to leave. Now.”
+
+Anakin widened the opening enough for her to pass through.
+
+Leia climbed out.
+
+Anakin immediately handed her lightsaber back.
+
+She activated it.
+
+The light blue blade appeared.
+
+Father and daughter turned and sprinted toward the docking bay.
+
+Across the Death Star, alarms began sounding.
+
+An Imperial officer hurried toward Virex.
+
+“Lord Virex, our prisoner appears to have escaped.”
+
+Virex turned.
+
+“Let me handle it.”
+
+He began making his way toward the docking bay.
+
+At roughly the same time, Han and Chewie reached the tractor beam controls.
+
+Han stared at the machinery.
+
+“How in the galaxy do we disable this thing? It looks so complicated.”
+
+Chewie roared.
+
+Han looked at him.
+
+“Just blow it up? I mean, I guess that works.”
+
+Chewie raised his bowcaster.
+
+He fired.
+
+Then fired again.
+
+And again.
+
+The control system erupted in sparks.
+
+Panels shattered.
+
+The entire assembly collapsed under the barrage.
+
+Smoke poured from the ruined machinery.
+
+Han stared at it.
+
+“Well, I sure hope that actually worked.”
+
+Chewie roared.
+
+They immediately began heading back toward the Falcon.
+
+Anakin and Leia were nearly there when a familiar figure stepped into their path.
+
+Virex.
+
+Anakin slowed.
+
+Leia moved beside him.
+
+“Get out of our way, Virex.”
+
+Virex ignited his red blade.
+
+“Who do you think you are to give me commands?”
+
+Anakin’s blue lightsaber came up.
+
+Leia’s light blue blade followed.
+
+Then the three collided.
+
+Virex struck toward Anakin first.
+
+Anakin blocked.
+
+Leia came in from the side.
+
+Virex twisted and caught her blade.
+
+Anakin attacked again.
+
+Virex parried and stepped backward.
+
+The duel moved rapidly through the corridor.
+
+Anakin pressed hard.
+
+Virex matched him.
+
+Their blades crashed together again and again.
+
+Neither gained a clear advantage.
+
+Leia attacked whenever openings appeared.
+
+Her presence forced Virex to divide his attention.
+
+He blocked Anakin.
+
+Turned.
+
+Caught Leia’s strike.
+
+Stepped back.
+
+Anakin followed.
+
+Virex countered with a powerful downward blow.
+
+Anakin met it.
+
+The two locked blades.
+
+Leia attacked from the side.
+
+Virex disengaged just in time.
+
+He retreated another step.
+
+Then another.
+
+The combined pressure was beginning to overwhelm him.
+
+Anakin attacked high.
+
+Leia struck low.
+
+Virex barely managed to defend against both.
+
+He suddenly raised one hand.
+
+The ceiling above Anakin cracked.
+
+A large section broke free.
+
+Leia saw it first.
+
+“DAD! Watch out!”
+
+Anakin looked up.
+
+He jumped aside.
+
+The ceiling crashed down exactly where he had been standing.
+
+Dust and debris exploded across the corridor.
+
+Virex attacked through the cloud.
+
+Anakin blocked.
+
+Leia rejoined him.
+
+The duel resumed.
+
+Virex fought fiercely, but the imbalance was becoming obvious.
+
+Against Anakin alone, he could hold his own.
+
+Against Anakin and Leia together, he was steadily losing ground.
+
+He was forced backward.
+
+His defenses became more desperate.
+
+Finally, Virex recognized the reality of the situation.
+
+He broke away.
+
+Then he retreated.
+
+Anakin immediately moved after him.
+
+Leia grabbed his attention.
+
+“Dad, don’t worry about him. Let’s just get out of here!”
+
+“But I think we can defeat him for good today!”
+
+“It’s not worth the risk. We are on the Death Star right now; there is nowhere where the Empire has a bigger advantage over us. Let’s not spend one extra second here!”
+
+Anakin looked toward the direction Virex had disappeared.
+
+Then back toward Leia.
+
+“...Fine. I suppose our mission here has been accomplished already anyway.”
+
+They ran toward the Falcon.
+
+Han and Chewie arrived at almost the same time.
+
+Han saw Leia.
+
+His face lit up.
+
+“Leia! I’m so glad you’re safe!”
+
+Leia looked at him.
+
+“Hmm. I wonder why...”
+
+Han said nothing.
+
+The four of them rushed aboard.
+
+The Falcon’s ramp closed.
+
+Engines roared.
+
+The freighter lifted from the docking bay and blasted away from the Death Star.
+
+Once they were clear, Han leaned back.
+
+“Excellent. That actually worked.”
+
+Anakin looked toward him.
+
+“What worked?”
+
+“The way we deactivated the tractor beam.”
+
+Leia turned.
+
+“How did you do it?”
+
+“Chewie literally just fired at it until the entire system collapsed.”
+
+Chewie roared proudly.
+
+Anakin stared.
+
+“I have to admit, that was reckless.”
+
+Han shrugged.
+
+“But hey, if it works, it works.”
+
+Leia looked toward Anakin.
+
+“Where are the Death Star plans now?”
+
+“I have them on me.”
+
+“Good. Now that Alderaan has been destroyed, we must take the plans to the Rebel base on Yavin 4 instead. Luke and the other Rebel pilots are there.”
+
+Han frowned.
+
+“Since you just got rescued and are now finally safe again, how about if we just go home?”
+
+Leia shook her head.
+
+“Han, we have a mission to fulfill. The Death Star plans must reach the Rebel base.”
+
+Han sighed.
+
+He knew there was no stopping her.
+
+Anakin suddenly became still.
+
+“I think we are being tracked. I sense something unusual in the Force.”
+
+Leia focused.
+
+Then nodded.
+
+“I do too. I think Dad is right.”
+
+Han looked between them.
+
+“What do we do about it?”
+
+“There’s nothing we can do about it for now. We have to continue.”
+
+“But won’t the Empire track us to the Rebel base on Yavin 4?”
+
+“That would be worth the risk. The Death Star plans must be delivered as soon as possible.”
+
+Han looked frustrated.
+
+“As you say, Leia.”
+
+Anakin was less certain.
+
+But he decided to defer to Leia.
+
+Han and Chewie set the Falcon’s destination for Yavin 4.
+
+The freighter entered hyperspace.
+
+Meanwhile, aboard the Death Star, Virex established a holographic connection with Emperor Palpatine.
+
+Palpatine’s image appeared.
+
+Virex bowed.
+
+“My Master. If I am not mistaken, I have just fought Anakin Skywalker himself.”
+
+Palpatine stared at him.
+
+“Anakin Skywalker? Did he not die to the clones many decades ago?”
+
+“Apparently he survived. Oh, and I believe that the prisoner we had captured is his daughter. She calls him Dad.”
+
+Palpatine’s expression changed.
+
+“He has a daughter too? There is no way. Transmit a copy of the Death Star’s security camera footage to me. I shall see for myself whether it is all true.”
+
+Virex transmitted the footage.
+
+Palpatine watched.
+
+There was Anakin.
+
+Older, but unmistakable.
+
+There was Leia beside him.
+
+And there was the moment she called him Dad.
+
+Palpatine’s eyes narrowed.
+
+“Yes, that man is unmistakably Anakin Skywalker. And you are right; the girl does indeed call him Dad. How this happened without my knowledge is beyond me.”
+
+Virex waited.
+
+“What shall I do, my Master?”
+
+Palpatine looked back at him.
+
+“I want the girl captured and brought to me alive. If she truly is the daughter of Anakin Skywalker, she will be of great use to the Empire... and to me.”
+
+Virex bowed.
+
+“Yes, my Master.”
+
+---
+
+# Part 14
+
+The *Millennium Falcon* dropped out of hyperspace above Yavin 4 and descended toward the Rebel base below.
+
+By the time it touched down, word had already spread that Leia had returned alive.
+
+Luke came running out from the base still wearing his pilot jumpsuit.
+
+“You guys made it!”
+
+Leia hurried toward him.
+
+The twins embraced tightly.
+
+Then Luke turned and embraced Anakin as well.
+
+Leia pulled back first.
+
+“We have to get the plans inside now.”
+
+There was no time to linger.
+
+The group hurried into the Rebel base, moving through the crowded corridors until they reached General Jan Dodonna.
+
+Anakin produced the Death Star plans and handed them over.
+
+“Thank you,” Jan said. “We will analyze the schematics and see what we can do.”
+
+The plans were immediately taken away for study.
+
+Meanwhile, aboard the Death Star, an Imperial officer approached Darth Virex.
+
+“My Lord, we have tracked the ship to Yavin 4. We believe that is where the Rebel base is located.”
+
+Virex did not hesitate.
+
+“Then waste no time. Jump the Death Star to the Yavin system immediately.”
+
+“Yes, sir.”
+
+The enormous battle station changed course.
+
+Not long afterward, a Rebel patrol pilot rushed into the base on Yavin 4.
+
+“The Death Star has arrived in our system! We estimate that they will be ready to fire upon us within half an hour. We don’t have enough time to evacuate. We must try to bring down the battle station before then.”
+
+Jan Dodonna looked toward the newly recovered plans.
+
+“We have already found the exact details of a major structural flaw in the Death Star’s design. If we act fast, we should have enough time to take down the Death Star.”
+
+He immediately ordered all available pilots to assemble.
+
+Within minutes, Rebel pilots filled the briefing area.
+
+Luke joined the formation.
+
+Anakin, Leia, Han, and Chewie remained farther back, watching.
+
+A large holographic projection of the Death Star plans appeared beside Jan.
+
+He gestured toward the image.
+
+“We have discovered a major structural flaw in the design of the Death Star.”
+
+The projection zoomed inward.
+
+A small thermal exhaust port appeared.
+
+“Our aim is to fire a proton torpedo precisely into this exact thermal exhaust port. Once that happens, a chain reaction will start, and the entire battle station should explode. However, the exhaust port is very small, so the level of precision required will be enormous. This is why we need every pilot we have available, so that each one of you can take turns attempting the shot until one of you gets your torpedoes in.”
+
+The hologram zoomed outward slightly, revealing the trench surrounding the target.
+
+“The exhaust port is located within a trench on the Death Star. In order to approach the port, you must first fly through the trench.”
+
+The image expanded again until the entire battle station filled the projection.
+
+Jan looked over the assembled pilots.
+
+“We have less than thirty minutes. We must move now.”
+
+The briefing ended immediately.
+
+Pilots rushed toward their starfighters.
+
+Ground crews scrambled to finish preparations.
+
+One by one, X-wings and other Rebel craft lifted from Yavin 4 and climbed into space.
+
+Luke ran toward his own fighter.
+
+Anakin watched him go, then approached Jan.
+
+“General Dodonna, may I ask if you have any extra ships? I would like to join the assault as well.”
+
+Leia stepped forward.
+
+“Me too.”
+
+Jan shook his head.
+
+“Unfortunately... we have more qualified pilots than ships already. So we can’t give you a ship.”
+
+Anakin and Leia both looked disappointed.
+
+Han stepped forward.
+
+“Anakin, Leia, you guys can come with me and Chewie. We can join the assault together on the Falcon.”
+
+Jan looked at him.
+
+“Isn’t your ship a freighter?”
+
+Han looked almost offended.
+
+“Oh boy. It may be a freighter in name, but it’s so heavily armed that it’s probably worth four or five of your starfighters.”
+
+Anakin nodded.
+
+“I concur. Han’s ship is no ordinary freighter.”
+
+Jan considered that for a moment.
+
+“Then go for it. Let’s see what you can do.”
+
+Han, Chewie, Anakin, and Leia hurried aboard the *Millennium Falcon*.
+
+The engines roared to life.
+
+Moments later, the Falcon lifted from Yavin 4 and joined the assault above the planet.
+
+The battle around the Death Star was already chaotic.
+
+Imperial TIE fighters swarmed the Rebel formation.
+
+X-wings broke apart and scattered as laser fire crossed the darkness in every direction.
+
+The Death Star itself fired continuously from its defensive emplacements, forcing Rebel pilots to dodge incoming blasts even while dealing with Imperial fighters.
+
+Luke banked hard around a stream of cannon fire.
+
+Another X-wing vanished in an explosion nearby.
+
+He kept moving.
+
+Then he saw an opening.
+
+Luke turned sharply and entered the trench.
+
+The walls of the Death Star rose around him.
+
+He accelerated.
+
+Inside the *Millennium Falcon*, Leia suddenly focused on one of the Imperial fighters ahead.
+
+“I think that’s Virex.”
+
+Han glanced toward her.
+
+“What makes you say that?”
+
+“The dark side of the Force surrounds that TIE. None of the other TIEs are like this. So this one has to be Virex.”
+
+Han adjusted course.
+
+“I’ll trust you on this one.”
+
+The Falcon gave chase.
+
+The TIE fighter immediately responded.
+
+Laser fire streaked backward toward them.
+
+Han rolled the Falcon out of the path.
+
+Chewie roared and returned fire.
+
+The two ships twisted through open space, trading shots while Rebel and Imperial fighters streaked around them.
+
+The TIE was fast.
+
+The Falcon was larger, but far more heavily armed.
+
+Han pushed the controls forward and stayed on Virex’s tail.
+
+Meanwhile, Luke continued down the trench.
+
+Three other Rebel pilots had already reached the exhaust port before him.
+
+All three had attempted the shot.
+
+All three had missed.
+
+Luke knew there might not be many more chances.
+
+The trench rushed past on both sides.
+
+The targeting computer displayed the approaching exhaust port.
+
+Then, high above him, the TIE fighter being pursued by the Falcon suddenly dove.
+
+It plunged directly into the trench.
+
+Anakin immediately sensed what was happening.
+
+“Virex wants to take Luke out! We have to stop him!”
+
+Han pulled the Falcon after him.
+
+“We’ll go after him.”
+
+The Falcon approached the trench.
+
+Han looked down.
+
+Then stopped short of entering.
+
+“That trench is barely wider than the Falcon. It’s too narrow to enter safely.”
+
+Anakin looked ahead.
+
+“We’ll fly just above it, then. It should be enough.”
+
+Han adjusted the Falcon’s altitude.
+
+The freighter skimmed above the trench, following Virex’s path from directly overhead.
+
+Below them, Luke was nearly at the exhaust port.
+
+His targeting computer continued to calculate.
+
+He stared at it.
+
+Then he reached for the Force.
+
+Luke switched the computer off.
+
+He closed his eyes.
+
+The trench disappeared from his conscious awareness.
+
+So did the mechanical readouts.
+
+He felt the fighter beneath him.
+
+The walls around him.
+
+The tiny opening ahead.
+
+Behind him, Virex’s TIE drew closer.
+
+The red targeting indicators on the Imperial fighter locked toward Luke’s X-wing.
+
+Above them, Han struggled to line up the Falcon.
+
+Chewie suddenly roared with passion and ferocity.
+
+Then he fired.
+
+A single volley of laser cannon fire streaked downward.
+
+The shots struck Virex’s TIE.
+
+The fighter jerked violently.
+
+Its stabilizers failed.
+
+It spun out of the trench and tumbled away into space.
+
+A split second later, Luke reached the exhaust port.
+
+His eyes remained closed.
+
+He fired.
+
+Two proton torpedoes launched from his X-wing.
+
+They streaked forward.
+
+Both disappeared directly into the exhaust port.
+
+The torpedoes raced down the shaft.
+
+Luke opened his eyes.
+
+He reached for his comm.
+
+“Everyone out. Now!”
+
+Across the battlefield, Rebel ships immediately broke away.
+
+X-wings accelerated.
+
+The Falcon turned sharply.
+
+Surviving pilots fled the Death Star as fast as their engines could carry them.
+
+For several seconds, nothing happened.
+
+Then the chain reaction reached the station’s core.
+
+The Death Star exploded.
+
+A massive fireball erupted outward.
+
+The battle station vanished into expanding light and debris.
+
+The superweapon was gone.
+
+Some time later, the surviving Rebel pilots returned to the surface of Yavin 4.
+
+The base filled with celebration.
+
+Luke climbed down from his X-wing.
+
+Han approached him almost immediately.
+
+“Luke, that was impressive!”
+
+Luke smiled.
+
+“Without you guys, I couldn’t have done it.”
+
+Han looked around at the Rebels celebrating around them.
+
+Then he made a decision.
+
+“I have made a decision. I will join the Rebel Alliance.”
+
+He looked toward Chewie.
+
+“Chewie, you coming with me?”
+
+Chewie roared enthusiastically.
+
+Leia smiled.
+
+“I knew you guys would join for real.”
+
+The celebration continued for some time.
+
+Eventually, once things had calmed down, Anakin found Luke and Leia privately.
+
+He looked at both of them.
+
+“You two still need some training. But not from me.”
+
+Luke frowned.
+
+“Then from who?”
+
+“Master Yoda and Master Obi-Wan Kenobi.”
+
+Leia immediately understood.
+
+“Oh, them. Of course it’s them. But why?”
+
+“There are some things they know very well that I could never teach you. And now that you guys are confronting Virex and openly fighting against the Empire, I think it would be good for you to learn those things.”
+
+Luke nodded.
+
+Leia looked thoughtful.
+
+“Won’t this take away from our Rebel duties?”
+
+“For a while, it might. But in the end you will return only stronger. The Rebels have plenty of ordinary soldiers now, but not many people trained in the Force. And so making the two of you stronger will certainly benefit the Rebellion in the long run.”
+
+Leia considered that.
+
+“That’s a fair point. Okay, I’ll go.”
+
+Luke nodded.
+
+“I will as well.”
+
+Anakin smiled.
+
+“Good luck.”
+
+The Rebel Alliance remained desperately short on ships.
+
+Because of that shortage, Luke and Leia decided to share a single starfighter for their journey to Dagobah.
+
+It was cramped.
+
+It was uncomfortable.
+
+But they could make it work.
+
+The twins boarded together and prepared to leave Yavin 4.
+
+Anakin, meanwhile, discovered a more mundane problem.
+
+He was stranded.
+
+The Falcon belonged to Han and Chewie.
+
+Luke and Leia had taken a Rebel starfighter.
+
+The Alliance could not spare another vessel simply to transport Anakin back to Takodana.
+
+So Anakin found himself contacting Padmé.
+
+Her hologram appeared.
+
+"Padmé, I am stranded on Yavin 4. Please come and take me back home."
+
+“Again? What am I, your personal chauffeur?”
+
+Anakin looked mildly embarrassed.
+
+“It’s not my fault the Rebels won’t let me take a starfighter back home. They don’t have enough ships right now.”
+
+Padmé sighed.
+
+“Fine. I’m coming.”
+
+The call ended.
+
+Soon everyone began going their separate ways.
+
+Han and Chewie, now full members of the Rebel Alliance, joined their fellow Rebels and prepared for whatever mission came next.
+
+Luke and Leia departed Yavin 4 together in their shared starfighter, beginning the journey toward Dagobah.
+
+Anakin remained behind until Padmé arrived in the family skiff.
+
+He climbed aboard.
+
+The skiff lifted from Yavin 4.
+
+Anakin and Padmé headed back toward Takodana together, while their children traveled in a different direction toward the hidden world where Yoda and Obi-Wan were waiting.
+
+---
+
+# Part 15
+
