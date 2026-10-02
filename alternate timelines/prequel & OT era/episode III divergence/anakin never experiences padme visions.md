@@ -6798,7 +6798,7 @@ He climbed aboard.
 
 The skiff lifted from Yavin 4.
 
-Anakin and Padmé headed back toward Takodana together, while their children traveled in a different direction toward the hidden world where Yoda and Obi-Wan were waiting.
+Anakin and Padmé headed back toward Takodana together, while their children traveled in a different direction toward the hidden world where Yoda and Obi-Wan remained in hiding.
 
 ---
 
