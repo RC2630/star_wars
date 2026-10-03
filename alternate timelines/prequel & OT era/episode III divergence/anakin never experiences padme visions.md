@@ -7354,3 +7354,1189 @@ Then both twins suddenly felt Han’s pain through the Force.
 
 # Part 16
 
+Luke’s face tightened.
+
+“We must go now. Our friend is in trouble.”
+
+Leia nodded.
+
+“We will come back. We promise.”
+
+Yoda studied both of them.
+
+“Hmm. If go you must, go you shall.”
+
+Obi-Wan glanced toward Yoda.
+
+“Are they ready for this?”
+
+Yoda looked back at him.
+
+“The answer, only they can know. Trust them, we must.”
+
+Luke and Leia hurried back to their starfighter, climbed aboard, and lifted away from Dagobah.
+
+Once they were in space, Luke replayed what he had seen through the Force.
+
+“I saw a city in the clouds. Is that what you saw as well?”
+
+“Yes. A city in the clouds. But where might that be?”
+
+“I don’t know of any city that looks like that. Let’s ask Dad. He knows everything.”
+
+Leia activated the communications system.
+
+A moment later, they established a channel to the hut on Takodana.
+
+Anakin answered.
+
+Luke leaned toward the transmitter.
+
+“Do you happen to know any city in the clouds?”
+
+Anakin frowned.
+
+“City in the clouds? No, not really. Hang on, let me ask R2.”
+
+Leia added quickly, “Tell him the city looks like it’s floating in giant gas clouds.”
+
+Anakin left the transmitter and went to find Artoo inside the hut.
+
+“Artoo, do you know of any city that floats in giant gas clouds?”
+
+Artoo beeped.
+
+Then he began searching through his astromech database.
+
+Several minutes passed.
+
+Finally, a holographic image appeared above him.
+
+Cloud City.
+
+Beside it were coordinates.
+
+Anakin smiled.
+
+“Thank you, Artoo.”
+
+He returned to the transmitter with Artoo beside him and angled the holoprojection toward Luke and Leia.
+
+Luke’s eyes widened.
+
+“Yes, it looks exactly like that. Well done, Artoo.”
+
+Leia smiled.
+
+“You really are the best astromech ever!”
+
+Artoo beeped proudly.
+
+The call ended.
+
+Luke and Leia immediately entered the coordinates and set their destination for Cloud City.
+
+Meanwhile, in Cloud City itself, Virex finally decided Han’s torture session had gone on long enough.
+
+The restraints released.
+
+Han slumped to the floor.
+
+His breathing was ragged.
+
+An Imperial officer who had landed in Cloud City with Virex earlier entered the room.
+
+“My Lord, I have found a carbon-freezing chamber near here used to freeze Tibanna gas.”
+
+Virex turned toward him.
+
+“Perfect. We will use that to transport the girl to the Emperor.”
+
+The officer hesitated.
+
+“But won’t the freezing damage her permanently? Are you sure it is safe to use?”
+
+Virex looked down at Han, still collapsed on the floor.
+
+“Well, then we shall test it on Solo first. Officer, prepare the carbon-freezing chamber right away.”
+
+“Yes, my Lord.”
+
+Imperial technicians moved quickly.
+
+Working alongside Cloud City collaborators, they prepared the chamber for use on Han.
+
+Controls were calibrated.
+
+The freezing platform was readied.
+
+Systems were checked and rechecked.
+
+Finally, everything was prepared.
+
+Han was brought into the chamber.
+
+At the same time, Luke and Leia raced through hyperspace toward Bespin.
+
+The moment they arrived, they pushed forward with urgency.
+
+They descended into Cloud City and followed the Force.
+
+Han’s pain had given them a path.
+
+They moved quickly through corridors, platforms, and passageways, trying to reach him before it was too late.
+
+By the time they reached the carbon-freezing chamber, Han was moments away from being lowered into the machine.
+
+Leia saw him.
+
+“Han!”
+
+Han looked up.
+
+“Leia!”
+
+Leia took in the chamber around him.
+
+The machinery.
+
+The freezing pit.
+
+The restraints.
+
+She understood immediately.
+
+For years, she had deflected Han’s romantic advances whenever they came.
+
+Now, suddenly, there might not be another chance.
+
+Leia looked at him.
+
+“I love you.”
+
+Han held her gaze.
+
+“I know.”
+
+Then the platform began to descend.
+
+Han vanished into the freezing pit.
+
+Luke and Leia embraced one another tightly as the machinery activated.
+
+They watched in horror.
+
+Moments later, the platform rose again.
+
+Han emerged encased completely in carbonite.
+
+His frozen form was trapped inside the slab.
+
+Technicians immediately took possession of it and moved it out of the chamber.
+
+Boba Fett was already waiting.
+
+He took the frozen Han and began carrying him through the corridor toward the *Slave I*.
+
+Luke and Leia rushed after him.
+
+“Leave him alone!” Luke shouted.
+
+Boba kept moving.
+
+Luke ignited his lightsaber.
+
+Leia did the same.
+
+Boba turned and fired.
+
+The twins deflected the shots.
+
+Then Boba activated his jetpack.
+
+He shot upward into the air.
+
+Leia looked up.
+
+“That guy has a jetpack?”
+
+Luke stared after him.
+
+“That’s a new one.”
+
+They could do nothing but watch as Boba reached the *Slave I*, carried the frozen Han aboard, and took off.
+
+The ship accelerated away from Cloud City and vanished into the distance.
+
+Luke lowered his lightsaber.
+
+“Oh no. We came too late. Now Han is doomed.”
+
+Leia looked toward him.
+
+“We need to get out of here then. Go back to Dagobah.”
+
+They turned around.
+
+And stopped.
+
+Darth Virex stood directly in front of them.
+
+Leia’s expression hardened.
+
+“You. I knew it was you.”
+
+Virex laughed.
+
+“This was all a trap. And you fell right into it.”
+
+Leia raised her still-ignited lightsaber.
+
+“Not yet.”
+
+Virex ignited his red blade.
+
+The duel began.
+
+Luke and Leia attacked together.
+
+Virex met them head-on.
+
+Three blades collided in a burst of light.
+
+The fight moved almost immediately away from the platform.
+
+Virex retreated through a corridor while deflecting strikes from both twins.
+
+Luke attacked from one side.
+
+Leia pressed from the other.
+
+Virex twisted between them, using the narrow space to keep them from fully surrounding him.
+
+The duel spilled into a tunnel.
+
+Virex tried to force Luke back with a heavy overhead strike.
+
+Luke blocked.
+
+Leia attacked low.
+
+Virex turned and caught her blade.
+
+He broke away again.
+
+They chased him onto an open platform.
+
+Clouds churned beyond the city.
+
+The wind tore at their clothing as the three continued fighting.
+
+Luke and Leia moved with greater control than before.
+
+Obi-Wan’s training showed in their defense.
+
+They no longer overcommitted as easily.
+
+They protected one another’s openings.
+
+When Virex tried to overwhelm one twin, the other was already there.
+
+Yoda’s training had changed them as well.
+
+Their movements were calmer.
+
+Their connection to the Force was deeper.
+
+They anticipated more.
+
+They reacted faster.
+
+Virex noticed.
+
+Leia blocked a strike that once would have driven her backward.
+
+This time, she absorbed the pressure and countered immediately.
+
+Virex disengaged.
+
+He stared at her.
+
+“Where did you acquire your new powers?”
+
+Leia raised her blade.
+
+“From someone you fear.”
+
+The fight continued.
+
+They moved through another corridor.
+
+Then another platform.
+
+Then back into a network of tunnels.
+
+Virex fought aggressively, trying repeatedly to separate the twins.
+
+It did not work.
+
+Luke kept his defense tight.
+
+Leia pressed whenever Virex gave ground.
+
+Slowly, the Sith began to realize the truth.
+
+He could not defeat both of them together.
+
+He started retreating.
+
+Luke and Leia pursued.
+
+Luke’s voice rang through the corridor.
+
+“You are not leaving alive today. You have done enough harm to the galaxy.”
+
+Leia followed close behind.
+
+“You must suffer the consequences of your actions. Today you will fall.”
+
+Virex continued backing away.
+
+Then he reached the end of his retreat.
+
+There was nowhere else to go.
+
+Luke and Leia closed in.
+
+Virex raised his lightsaber and attacked desperately.
+
+Luke blocked.
+
+Leia countered.
+
+Virex parried.
+
+Luke struck again.
+
+The pressure became relentless.
+
+Virex’s defenses broke down.
+
+Leia knocked his blade aside.
+
+Luke followed.
+
+The red lightsaber flew from Virex’s hand.
+
+He was disarmed.
+
+A final strike ended the duel.
+
+Darth Virex fell.
+
+He did not rise again.
+
+For the first time in years, Palpatine’s longtime Sith apprentice and Imperial enforcer was dead.
+
+Elsewhere in Cloud City, chaos had already erupted.
+
+Imperial forces had seen Virex attacked.
+
+They assumed Lando had reneged on his agreement.
+
+The invasion began immediately.
+
+Stormtroopers moved into the city.
+
+Cloud City’s air defenses powered back up.
+
+Blasterfire filled the platforms and corridors.
+
+Lando joined the resistance with a blaster in hand.
+
+Chewie fought beside him with his bowcaster.
+
+They pushed back where they could.
+
+Luke and Leia joined them immediately after killing Virex.
+
+The twins cut through advancing stormtroopers and deflected blasterfire while Cloud City personnel fought around them.
+
+For a time, the defenders held.
+
+Then more Imperial forces arrived.
+
+The balance became impossible.
+
+Luke, Leia, Lando, and Chewie all reached the same conclusion.
+
+They could not win.
+
+They had to escape.
+
+Luke and Leia ran toward their starfighter.
+
+Lando and Chewie headed for the *Millennium Falcon*.
+
+Both ships launched amid the fighting.
+
+Imperial fire followed them into the sky.
+
+TIE fighters moved to intercept.
+
+Luke pushed the starfighter hard.
+
+Lando did the same with the Falcon.
+
+The two ships forced their way through the Imperial blockade.
+
+Against the odds, both broke free.
+
+Moments later, they reached hyperspace.
+
+Not long afterward, Cloud City fell under Imperial occupation.
+
+Aboard the *Millennium Falcon*, Lando sat in the pilot’s seat.
+
+Chewie occupied the copilot’s position.
+
+For the first time since the fighting began, both could relax.
+
+Chewie roared.
+
+Lando glanced over.
+
+“You want me to join the Rebel Alliance?”
+
+Chewie roared again.
+
+“Do it for Han’s sake? What do you mean?”
+
+Chewie gave a long roar.
+
+Lando’s expression changed.
+
+“Well, since I wasn’t able to prevent him from being captured, I suppose I failed him. So maybe you are right. I will not fail him again. I will join the Rebel Alliance.”
+
+Chewie roared triumphantly.
+
+Lando entered a new destination.
+
+The Rebel base on Hoth.
+
+Meanwhile, Luke and Leia returned to Dagobah.
+
+They landed near the swamp and made their way back to Obi-Wan and Yoda.
+
+Yoda looked at them when they arrived.
+
+“Back already, you are. Sooner than I expected.”
+
+Luke looked down.
+
+“We failed. Our friend has been captured. We were not able to stop it.”
+
+Yoda regarded him calmly.
+
+“Hmm. Accomplish everything you want, you will never be able to. Such is the reality of life.”
+
+Luke nodded.
+
+“We understand.”
+
+Obi-Wan looked toward them.
+
+“Maybe your friend will return to you one day.”
+
+Leia sighed.
+
+“I sure hope so.”
+
+Then she added almost casually, “Oh, by the way, we killed Darth Virex.”
+
+Obi-Wan stared at her.
+
+“You what?!”
+
+Leia continued.
+
+“Turns out, this was all a trap by Virex to lure us to Cloud City. It appears that he wanted to capture us.”
+
+Luke nodded.
+
+“But apparently his plans turned against him when we overpowered and killed him. So yeah. He’s dead now.”
+
+Yoda looked from Luke to Leia.
+
+“Well done, Luke. Well done, Leia. True Jedi you have finally become.”
+
+Luke bowed his head slightly.
+
+“Thank you, Master Yoda.”
+
+Leia did the same.
+
+“We are honoured, Master Yoda.”
+
+Yoda nodded.
+
+“More to teach you, I have not. Complete, your training is. Go now. Return to the Rebellion, you shall.”
+
+Obi-Wan looked at both of them.
+
+“Good luck. With Virex dead, we may finally be seeing the beginning of the end of the Empire.”
+
+Luke and Leia said their farewells.
+
+Then they returned to their starfighter.
+
+The engines ignited.
+
+The ship lifted from Dagobah and climbed into the atmosphere.
+
+Soon afterward, the twins entered hyperspace and headed toward the Rebel base on Hoth.
+
+---
+
+# Part 17
+
+Echo Base was still under construction when Luke and Leia arrived on Hoth.
+
+The Rebel Alliance had chosen the frozen world as a new refuge, but much of the base remained unfinished. Equipment was still being hauled into place. Technicians worked around exposed conduits and temporary power systems. Personnel moved constantly through the icy corridors, preparing defenses and turning the cavernous installation into something that could function as a long-term headquarters.
+
+Luke and Leia eventually found Lando and Chewie inside the base.
+
+None of them were in much of a mood to celebrate their safe arrival.
+
+Han was still gone.
+
+Luke looked around at the group.
+
+“Does anyone have any idea where that bounty hunter took Han?”
+
+Leia thought for a moment.
+
+“Han told me that he had an unsettled debt with Jabba the Hutt, and that Jabba has placed a bounty on his head. So I guess the bounty hunter took him to Jabba’s palace on Tatooine.”
+
+Luke frowned.
+
+“Well, we certainly don’t have time to go to Tatooine right now. The Rebels need us here.”
+
+Lando crossed his arms.
+
+“I know Jabba. He’s very scary. Even if we had the time to go to Tatooine, I doubt it would be easy to retrieve Han.”
+
+Luke looked toward Leia.
+
+“Let's call Dad to see what he says. He grew up on Tatooine.”
+
+The group established communications with the Skywalker hut on Takodana.
+
+Anakin answered.
+
+“So how did Cloud City go?”
+
+Luke did not soften the answer.
+
+“Not great. Han got captured and frozen in carbonite. A bounty hunter took him away, and we believe that he’s taking him to Jabba’s palace on Tatooine.”
+
+Leia leaned closer to the transmitter.
+
+“We don’t have time to go to Tatooine right now. Do you have any ideas on how we can get Han out?”
+
+Anakin’s expression changed immediately.
+
+“Tatooine? I’ll handle it myself then.”
+
+Lando leaned into view.
+
+“Are you sure? Jabba is very scary.”
+
+Anakin stared at him.
+
+“...Who are you?”
+
+“I’m Lando Calrissian. An old friend of Han’s.”
+
+Recognition came to Anakin.
+
+“Oh, I remember hearing about you a long time ago. Did Han really win the *Millennium Falcon* from you in a game of sabacc?”
+
+Lando nodded.
+
+“Yep. Who told you that?”
+
+“Maz Kanata.”
+
+Lando sighed.
+
+“Oh, of course it’s her. She knows everything. Anyway, Jabba is no joke. He is—”
+
+“I know Jabba better than you probably think. Don’t worry about it. I can handle him.”
+
+Lando hesitated.
+
+“Then good luck.”
+
+“Thanks, Lando.”
+
+The call ended shortly afterward.
+
+Anakin wasted little time preparing to leave.
+
+He gathered what he needed and headed toward the family skiff.
+
+Padmé found him before he departed.
+
+“Are you sure about this?”
+
+Anakin looked over.
+
+“Why is everyone doubting me? It’s just a trip to Tatooine.”
+
+Padmé’s expression remained uneasy.
+
+“Ani. I... I don’t fully trust you on Tatooine.”
+
+Anakin frowned.
+
+“Why?”
+
+“The Tuskens.”
+
+He immediately understood.
+
+“Oh, come on, Padmé. Can you not bring up stuff from over twenty years ago?”
+
+Padmé sighed.
+
+“Promise me you won’t get into trouble with the Tuskens again this time.”
+
+“Fine. I promise.”
+
+Anakin boarded the skiff.
+
+The engines rose.
+
+Padmé watched as the vessel lifted from beside the hut, climbed above Takodana, and vanished toward space.
+
+Eventually, Anakin arrived on Tatooine.
+
+He chose to land in Mos Espa.
+
+The moment he stepped outside the skiff, old memories returned.
+
+He had not visited his childhood hometown since before the Clone Wars.
+
+The streets were different in small ways, but familiar in countless others.
+
+The heat.
+
+The dust.
+
+The crowded markets.
+
+The architecture.
+
+The sound of engines passing overhead.
+
+Anakin walked slowly through Mos Espa, taking it all in.
+
+The experience filled him with nostalgia.
+
+Eventually, something caught his attention.
+
+A large promotional poster had been mounted where passing pedestrians could easily see it.
+
+It read:
+
+“BOONTA EVE CLASSIC: TOMORROW AFTERNOON @ MOS ESPA GRAND ARENA”
+
+Anakin stopped.
+
+He stared at it.
+
+Then curiosity took over.
+
+For a moment, he nearly forgot why he had come to Tatooine in the first place.
+
+The next afternoon, Anakin made his way to the Mos Espa Grand Arena.
+
+The stands were already crowded.
+
+Spectators packed the seats, talking loudly as the racers prepared below.
+
+Then Jabba the Hutt arrived on the grandmaster host’s platform.
+
+Bib Fortuna accompanied him.
+
+So did Gardulla the Hutt.
+
+Anakin’s expression immediately hardened.
+
+He looked at the three of them with open revulsion and disdain.
+
+Then, unexpectedly, an idea began forming.
+
+He did not act on it yet.
+
+For the moment, he turned his attention back toward the race.
+
+Jabba announced the annual Boonta Eve Classic in Huttese.
+
+Thunderous applause erupted throughout the arena.
+
+The racers moved into position.
+
+Engines roared.
+
+Anakin looked down at the starting lineup.
+
+Then his eyes widened.
+
+“Sebulba is still podracing?!”
+
+A nearby spectator heard him.
+
+“Yeah, and he’s been winning year after year. There was only a single year in which he lost. And to a 9-year-old boy named Anakin Skywalker, at that.”
+
+Anakin chuckled quietly.
+
+The spectator clearly had no idea who he was.
+
+“Well, then let’s see how he does this year.”
+
+The race began.
+
+Sebulba immediately surged ahead.
+
+His podracer tore away from the rest of the field and quickly established a comfortable lead.
+
+Anakin watched closely.
+
+Three laps later, Sebulba crossed the finish line first.
+
+The arena erupted.
+
+Spectators cheered and roared.
+
+Anakin waited until the celebration distracted enough people around him.
+
+Then he slipped away.
+
+He began moving toward Jabba’s entourage.
+
+Before he could get close, one of Jabba’s guards intercepted him.
+
+The guard wore full-body armor.
+
+Anakin stopped.
+
+Then he raised one hand.
+
+“You want to stop working for Jabba.”
+
+The guard’s posture relaxed.
+
+“I want to stop working for Jabba.”
+
+“You want to sell your armor to me for one credit.”
+
+“I want to sell my armor to you for one credit.”
+
+Anakin produced a single credit.
+
+The guard accepted it.
+
+Then, still under the influence of the mind trick, he removed his armor and handed it over.
+
+Anakin put it on.
+
+Once fully disguised, he waited.
+
+Eventually, Jabba approached.
+
+He motioned for Anakin to follow.
+
+The disguise worked.
+
+Jabba believed Anakin was one of his guards.
+
+Anakin followed him onto his sail barge.
+
+The vessel departed Mos Espa and flew across the desert.
+
+Some time later, it reached Jabba’s palace.
+
+Everyone disembarked.
+
+Anakin followed them inside.
+
+Then he waited.
+
+Hours passed.
+
+Night fell.
+
+Eventually, the palace quieted.
+
+Most of its occupants went to sleep.
+
+Anakin began moving through the corridors.
+
+He kept the borrowed armor on and stayed alert as he searched.
+
+Room after room passed.
+
+Then he finally found what he was looking for.
+
+Han.
+
+Still frozen in carbonite.
+
+Anakin approached the slab.
+
+He moved it into a thawing machine and activated the controls.
+
+The system came to life.
+
+Slowly, the carbonite began to release Han.
+
+The process was nearly complete when the door behind Anakin suddenly opened.
+
+Several guards stood there.
+
+Jabba loomed behind them.
+
+The Hutt spoke in Huttese.
+
+“Take him away!”
+
+The guards rushed forward.
+
+Anakin’s lightsaber ignited.
+
+The first guard barely had time to raise his weapon.
+
+Anakin cut him down.
+
+A second fired.
+
+Anakin deflected the shot and struck him immediately afterward.
+
+The remaining guards attacked together.
+
+Anakin moved through them quickly, his blade flashing in the dim chamber.
+
+Within seconds, they were all down.
+
+Anakin turned toward Jabba.
+
+He spoke in Huttese.
+
+“So you were not sleeping, huh?”
+
+Jabba’s eyes narrowed.
+
+“You think I would so easily fall for your trap?”
+
+Anakin pointed his lightsaber directly at him.
+
+“Let me leave with Han, or else.”
+
+Jabba laughed.
+
+“Or else what?”
+
+Anakin hesitated for a moment.
+
+Then his expression hardened.
+
+“Or else I will kill you.”
+
+Jabba laughed maniacally.
+
+“You think you can kill me?”
+
+Anakin’s grip tightened around his lightsaber.
+
+“Go on. Keep taunting me. You’ll regret it soon.”
+
+Jabba pressed a button on the wall.
+
+Alarms erupted throughout the palace.
+
+Within seconds, armed guards poured into the area from multiple directions.
+
+They opened fire.
+
+Anakin moved instantly.
+
+His lightsaber became a blur.
+
+Blaster bolts flew back toward their senders.
+
+One guard fell.
+
+Then another.
+
+Anakin advanced through the storm of fire.
+
+He deflected more shots, closed the distance, and began cutting through the guards directly.
+
+The attackers tried to surround him.
+
+It did not matter.
+
+Anakin moved faster than they could react.
+
+Soon, the chamber fell quiet again.
+
+He turned back toward Jabba.
+
+“Alright, Jabba, had enough fun? Your reign shall end now.”
+
+Jabba slammed another control.
+
+The floor beneath Anakin opened.
+
+He dropped.
+
+A trapdoor snapped shut above him.
+
+Anakin landed inside a deep pit.
+
+A monstrous roar filled the darkness.
+
+A rancor emerged.
+
+It charged.
+
+Anakin raised one hand.
+
+The creature abruptly flew backward.
+
+Its enormous body slammed into the opposite wall with tremendous force.
+
+Before it could recover, Anakin rushed forward and drove his lightsaber into it once.
+
+The rancor collapsed.
+
+Anakin looked up.
+
+He reopened the trapdoor using the Force.
+
+Then he bent his knees and leapt.
+
+The Force carried him high through the open trap above.
+
+He landed back inside the palace.
+
+Jabba was still there.
+
+Now the Hutt looked visibly afraid.
+
+Anakin approached.
+
+“Alright, Jabba. You have caused enough suffering on Tatooine. You have tortured enough people. You have enslaved enough people...”
+
+Jabba answered quickly.
+
+“Gardulla owns the slave trade, not me.”
+
+“But you enabled her. And the two of you work together to terrorize Tatooine.”
+
+Jabba stared at him.
+
+“What is your problem against me?! Why are you here?”
+
+“I am here to free my friend Han from you. You could have just let me leave with him. But since you decided to swarm me with your guards, then drop me into a rancor pit, I won’t let you off easy today.”
+
+Jabba’s hand began moving toward another button.
+
+Anakin saw it.
+
+He did not give him the chance to finish.
+
+One clean sweep of the lightsaber crossed Jabba’s body.
+
+The Hutt was bisected.
+
+Jabba fell.
+
+The tyrant of Tatooine was dead.
+
+The palace immediately descended into chaos.
+
+Shouting erupted.
+
+People fled.
+
+Others rushed toward different exits or tried to understand what had happened.
+
+Anakin ignored all of it.
+
+He returned to Han.
+
+The thawing process had finished.
+
+Han was no longer encased in carbonite, though his body remained limp and unresponsive.
+
+Anakin lifted him over one shoulder.
+
+Then he left the palace.
+
+Outside, Jabba’s sail barge sat empty.
+
+Anakin boarded.
+
+He placed Han carefully into a comfortable seat.
+
+Then he took control of the vessel and lifted away.
+
+The sail barge headed toward Mos Espa.
+
+A few minutes into the flight, Han stirred.
+
+His head moved weakly.
+
+“Where am I?”
+
+Anakin looked back.
+
+“Jabba’s sail barge. We’re going to Mos Espa, then we’re taking you home.”
+
+Han recognized the voice.
+
+“Anakin?”
+
+“Yes, it’s me. I’ve come to rescue you.”
+
+Han blinked repeatedly.
+
+“Why can’t I see anything?”
+
+“You just got thawed from carbonite. The blindness is expected and temporary. Your vision should return soon.”
+
+Han processed that.
+
+“Cool, cool.”
+
+Eventually, the sail barge reached Mos Espa.
+
+Anakin helped the still partially sighted Han down from the vessel and guided him toward the Skywalker skiff.
+
+Once Han was safely aboard, Anakin departed Tatooine.
+
+Some time later, Han’s vision fully returned.
+
+He sat up, blinking around the cabin.
+
+Then he looked toward Anakin.
+
+“Can I speak with Leia?”
+
+“Sure, come on over. The transmitter is in the cockpit.”
+
+Han walked forward.
+
+He opened communications with Echo Base on Hoth.
+
+Leia answered.
+
+The moment she saw him, her face changed.
+
+“Han!!! I thought I lost you!”
+
+“I’m alright now. Thanks to your dad, I guess.”
+
+“Come over to Hoth as soon as you can! The Rebels need you!”
+
+Han smiled faintly.
+
+“The Rebels need me? What about you?”
+
+Leia paused.
+
+“What do you mean, me?”
+
+From the pilot’s seat, Anakin listened with growing amusement.
+
+He leaned over.
+
+“Leia.”
+
+She looked toward his holographic image.
+
+“Yes, Dad?”
+
+“You know exactly what Han means.”
+
+Leia sighed.
+
+Then she looked back at Han.
+
+“Fine. I need you too.”
+
+Han smiled.
+
+“Thank you, Leia.”
+
+The transmission ended.
+
+Han turned toward Anakin.
+
+“Your daughter is so pretty.”
+
+“I know.”
+
+“She’s the most beautiful woman in the galaxy.”
+
+Anakin answered immediately.
+
+“No, Padmé is.”
+
+Han made a face.
+
+Then wisely dropped the subject.
+
+Eventually, Anakin reached Hoth.
+
+He dropped Han off at Echo Base.
+
+Then he departed again and returned to Takodana.
+
+Padmé met him inside their hut.
+
+“How did it go?”
+
+Anakin looked satisfied.
+
+“Very good. Han’s rescued. Jabba’s dead.”
+
+Padmé stared at him.
+
+“Jabba’s dead?”
+
+“I killed him.”
+
+“Anakin!”
+
+“He tried to kill me. So I say it was justified.”
+
+Padmé paused.
+
+“Oh... okay then.”
+
+Anakin looked mildly pleased with himself.
+
+“By the way, I didn’t get into any trouble with the Tuskens.”
+
+Padmé nodded.
+
+“Good.”
+
+---
+
+# Part 18
+
