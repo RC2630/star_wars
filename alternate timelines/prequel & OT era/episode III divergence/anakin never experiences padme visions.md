@@ -8540,3 +8540,1644 @@ Padmé nodded.
 
 # Part 18
 
+A few years passed.
+
+The Rebel Alliance continued its war against the Empire.
+
+It was now 4 years since the destruction of the Death Star, and the conflict had only grown more intense. Rebel forces remained vastly smaller than the Imperial military, but they had survived repeated attempts to destroy them and continued striking wherever opportunities appeared.
+
+One day, Mon Mothma, leader of the Rebel Alliance, called an important meeting at Echo Base.
+
+Personnel gathered from across the installation to hear what she had to say.
+
+Mon stood before them.
+
+“Our loyal and brave Bothan friends have discovered that the Empire is building a second Death Star.”
+
+Gasps spread through the audience.
+
+Mon raised one hand.
+
+“Not only that, but the Bothans have also discovered that the battle station is not yet operational. They have found that the battle station is protected by a shield whose generator is on the nearby forest moon of Endor. If we destroy that shield generator, the battle station will be vulnerable. Then all we need to do is fly into the Death Star’s superstructure and knock out its main reactor core, which should destroy the entire battle station.”
+
+Murmurs broke out across the room.
+
+Mon continued.
+
+“We must act quickly. If the Death Star II becomes operational, the survival of the Alliance itself will be put into jeopardy.”
+
+Plans were made hastily.
+
+General Lando Calrissian and Admiral Gial Ackbar were assigned to lead the Rebel fleet and prepare for the coming space battle.
+
+Meanwhile, Luke, Leia, Han, Chewie, R2-D2, and C-3PO were tasked with leading an infiltration unit onto Endor’s surface. Their objective was simple in concept and dangerous in execution: destroy the shield generator before the fleet attacked.
+
+As preparations began, Lando looked toward Han.
+
+“Han, you can’t take the Falcon to Endor. It has to be covert. The Empire knows the Falcon very well by now, and they will immediately know the Rebels have arrived if they see that ship.”
+
+Han thought about it.
+
+“Good point, Lando. How about this. You take the Falcon with you in the space battle. We’ll find a way to get our hands on an Imperial shuttle to fool the Empire.”
+
+Lando raised an eyebrow.
+
+“You trust me with the Falcon?”
+
+Han paused.
+
+“...No.”
+
+“I thought so.”
+
+“But it’s not about me trusting you. It’s about what the Rebels need. There is no better ship to take for an engagement with a massive battle station than the *Millennium Falcon*. So take it.”
+
+Lando studied him.
+
+“Are you sure?”
+
+“Take it.”
+
+Lando nodded.
+
+The Endor infiltration unit assembled soon afterward.
+
+Maps, reconnaissance reports, and possible approaches were discussed.
+
+Luke studied one of the maps.
+
+“Our recon team found a small Imperial outpost on nearby Serolonis a few weeks ago. We might be able to steal a shuttle from there.”
+
+Han looked at him.
+
+“You better make sure it works, Luke.”
+
+“You bet.”
+
+Threepio shifted nervously.
+
+“Why do we have to be a part of this? I didn’t sign up for any of it. Life at Master Anakin’s hut on Takodana is way better.”
+
+Leia turned toward him.
+
+“We brought you and Artoo here because you guys are vital for the Rebel Alliance. Threepio, I know you don’t like all of it, but we need you.”
+
+Threepio muttered to himself.
+
+“Since when is a protocol droid so indispensable...”
+
+The infiltration unit boarded a Rebel shuttle and took a short flight to Serolonis.
+
+They landed some distance from the Imperial outpost.
+
+Leia looked back toward their vessel.
+
+“We need to destroy our shuttle. We can’t let the Empire find a Rebel transport on this world.”
+
+Everyone nodded.
+
+Chewie raised his bowcaster.
+
+He fired repeatedly.
+
+Each blast tore into the shuttle until the hull collapsed, scorched, and broke apart. By the time Chewie stopped, almost nothing recognizable remained.
+
+The group headed toward the Imperial outpost on foot.
+
+As they approached, they spotted a Lambda-class Imperial shuttle sitting inside the installation.
+
+Luke studied it.
+
+“You guys stay here. I’ll handle this.”
+
+He entered the outpost alone.
+
+The shuttle was guarded by a squad of stormtroopers.
+
+Luke walked directly toward them.
+
+“My name is Adrian Leski, and I am an Imperial inspector. I have been ordered to take this shuttle to another base for inspection.”
+
+One stormtrooper stepped forward.
+
+“Show me your identification.”
+
+Luke stretched out one hand.
+
+“You don’t need to see my identification.”
+
+The stormtrooper relaxed.
+
+He turned toward the squad.
+
+“We don’t need to see his identification.”
+
+The others nodded.
+
+Luke smiled faintly.
+
+“Thank you.”
+
+He boarded the Lambda-class shuttle.
+
+A short time later, it lifted from the outpost and flew back toward the waiting infiltration unit.
+
+Luke picked everyone up.
+
+Then the stolen shuttle left Serolonis and headed toward Endor.
+
+Far away, aboard the Death Star II, Emperor Palpatine watched the construction of the enormous battle station unfold.
+
+Then he suddenly became still.
+
+Something had touched his awareness through the Force.
+
+He looked out through a viewport.
+
+“The Force is strong in that shuttle. If I am not mistaken, I think I know who is in it.”
+
+An Imperial officer nearby approached.
+
+“What are your orders, Your Majesty?”
+
+“Let the shuttle pass. I will handle it myself.”
+
+“As you wish, Your Majesty.”
+
+The Lambda-class shuttle reached Endor without resistance.
+
+Everyone climbed out after landing.
+
+Han looked around.
+
+“Alright, now where’s that damn shield generator?”
+
+Luke thought for a moment.
+
+“Hang on, I remember the Bothans gave us an exact coordinate. Let me pull it up.”
+
+He opened a datapad.
+
+The location of the shield generator appeared.
+
+Han leaned closer.
+
+“Well, that’s not too far away. Let’s go.”
+
+The group began moving through the forest.
+
+Trees towered overhead.
+
+The ground was uneven, thick with roots and undergrowth.
+
+They had not gone far before movement broke out around them.
+
+Small figures appeared between the trees.
+
+Ewoks.
+
+They attacked without warning.
+
+Luke and Leia ignited their lightsabers.
+
+Han drew his blaster.
+
+Chewie raised his bowcaster.
+
+Luke lifted his voice.
+
+“Guys, these creatures are native. Defense only. Use non-lethal force whenever possible.”
+
+Everyone nodded.
+
+Several Ewok warriors hurled spears toward them.
+
+Luke and Leia moved at once.
+
+Green and light blue blades flashed through the air, batting the spears aside without striking the creatures themselves.
+
+Then Threepio spoke.
+
+“Oh dear.”
+
+The Ewoks turned.
+
+They looked at him.
+
+One by one, their weapons lowered.
+
+Then, without warning, they dropped to their knees.
+
+Everyone in the Rebel group stared.
+
+“Huh??”
+
+The Ewoks began chanting in Ewokese.
+
+Threepio looked increasingly uncomfortable.
+
+“The Ewoks have apparently mistaken me for a god. Oh dear.”
+
+Luke looked at him.
+
+“Then can you tell them to leave us alone? Actually, better yet, tell them to join us against the Empire.”
+
+Threepio began speaking in Ewokese.
+
+The chanting continued.
+
+Leia frowned.
+
+“Tell them to stop chanting and join us.”
+
+Threepio tried again.
+
+Still no reaction.
+
+Luke raised one hand.
+
+Threepio suddenly lifted into the air.
+
+The Ewoks gasped.
+
+The chanting stopped instantly.
+
+Luke looked up at the floating protocol droid.
+
+“Try again now, Threepio.”
+
+Threepio repeated the message.
+
+This time, the Ewoks reacted immediately.
+
+They rose to their feet and raised their spears high.
+
+Threepio looked relieved.
+
+“Excellent. The Ewoks agreed to join us.”
+
+Luke nodded.
+
+“Then let’s keep going.”
+
+The enlarged group continued toward the shield generator.
+
+When they finally approached the target area, the mood changed immediately.
+
+The installation was heavily fortified.
+
+Stormtroopers guarded every approach.
+
+Several AT-ST walkers patrolled nearby.
+
+Threepio stared at the defenses.
+
+“Oh dear. We are going to be doomed!”
+
+Artoo beeped at him mockingly.
+
+Threepio turned.
+
+“Tell me that again when this is over.”
+
+Han studied the Imperial position.
+
+“We fire first. Take them by surprise.”
+
+Everyone nodded.
+
+Weapons came up.
+
+Han waited.
+
+Then gave the signal.
+
+The forest erupted.
+
+Blasterfire, bowcaster bolts, and arrows shot toward the Imperial defenses all at once.
+
+The first volley caught the stormtroopers completely off guard.
+
+Several fell before they could even turn toward the attackers.
+
+One AT-ST pivoted sharply.
+
+Another began firing immediately.
+
+The forest filled with explosions.
+
+Trees splintered.
+
+Chunks of earth burst upward.
+
+The Ewoks scattered between trunks and roots, using the terrain as cover.
+
+Han fired from behind a fallen log.
+
+Leia stood near him, deflecting blaster bolts away from the group.
+
+Luke advanced several steps into the open, his green blade moving rapidly as red bolts came toward him.
+
+He caught one.
+
+Then another.
+
+A third shot flew back toward the stormtroopers.
+
+Chewie fired his bowcaster into an Imperial position.
+
+The blast threw several soldiers backward.
+
+An AT-ST stomped forward.
+
+Its cannons opened fire.
+
+Luke and Leia both dove aside as an explosion tore through the ground where they had been standing.
+
+The Ewoks attacked from multiple directions.
+
+Some hurled spears.
+
+Others fired arrows.
+
+Several used the trees to strike from above before disappearing again into the undergrowth.
+
+The stormtroopers recovered from the initial surprise and formed firing lines.
+
+Their volleys became coordinated.
+
+The Rebels were forced back.
+
+Han leaned out from cover and fired rapidly.
+
+Chewie roared and answered with a burst from his bowcaster.
+
+Artoo rolled behind cover as blasterfire struck nearby.
+
+Threepio crouched beside him.
+
+“Oh dear, oh dear, oh dear!”
+
+An AT-ST moved toward the Ewoks.
+
+Its cannons tracked a group retreating between the trees.
+
+Before it could fire, Luke stretched out one hand.
+
+The walker lurched sideways.
+
+Its aim went wide.
+
+A blast struck the ground instead.
+
+Leia immediately rushed forward and cut through a stormtrooper who had moved too close.
+
+Another fired at her from the side.
+
+She turned and deflected the bolt back.
+
+The trooper fell.
+
+The fighting spread through the forest.
+
+Stormtroopers advanced.
+
+Ewoks ambushed them from cover.
+
+Rebel fighters moved between trees, firing whenever openings appeared.
+
+The AT-STs continued pounding the battlefield, forcing everyone to keep moving.
+
+During the chaos, Chewie broke away with several Ewoks.
+
+They ran toward a nearby tree.
+
+The Ewoks climbed quickly.
+
+Chewie followed.
+
+Below them, an AT-ST moved past, focused on the fighting ahead.
+
+Chewie and the Ewoks positioned themselves.
+
+Then they dropped.
+
+They landed directly on top of the walker.
+
+The machine rocked.
+
+Chewie grabbed the top hatch.
+
+With a roar, he pulled.
+
+Metal strained.
+
+Then tore open.
+
+The Ewoks immediately swarmed the opening.
+
+The walker’s driver and gunner barely had time to react before they were killed.
+
+Chewie climbed inside.
+
+Moments later, the AT-ST turned around.
+
+Then it opened fire on Imperial troops.
+
+Stormtroopers scattered in confusion.
+
+Luke looked toward the walker.
+
+“Why is that walker shooting at stormtroopers?”
+
+Leia stared at it.
+
+“Maybe it has gone rogue!”
+
+Then Chewie’s head appeared from the top hatch.
+
+Luke paused.
+
+“...Oh. Well, that explains it.”
+
+The captured walker fired again.
+
+One Imperial position exploded.
+
+Then another.
+
+The tide of the battle shifted.
+
+Luke and Leia pressed forward.
+
+Han followed, firing continuously.
+
+The Ewoks surged with them.
+
+One by one, the remaining stormtroopers fell.
+
+The other AT-ST walkers were destroyed.
+
+At last, the forest became quiet again.
+
+Smoke drifted through the trees.
+
+Luke looked toward the bunker containing the shield generator.
+
+“So how do we destroy this shield generator then? It’s protected inside this bunker.”
+
+Leia studied the structure.
+
+“That bunker looks very heavily fortified. I wonder if it’s blast-resistant.”
+
+Chewie roared loudly from inside the commandeered AT-ST.
+
+Then he opened fire.
+
+The walker’s cannons hammered the bunker.
+
+One blast struck the outer wall.
+
+Then another.
+
+Then another.
+
+The entire emplacement erupted in a massive fireball.
+
+The shield generator was destroyed.
+
+The Rebels and Ewoks celebrated.
+
+Luke activated his comlink and entered Echo Base’s frequency.
+
+“We destroyed the shield generator.”
+
+Mon Mothma answered.
+
+“Well done. We’ll send the Rebel fleet now.”
+
+“Say good luck to Lando and Admiral Ackbar for us.”
+
+Back at Echo Base, the news spread quickly.
+
+Ackbar prepared the *Home One* for takeoff.
+
+Lando did the same with the *Millennium Falcon*.
+
+Rebel pilots rushed into their starfighters.
+
+Engines ignited across the base.
+
+The Rebel fleet lifted from Hoth and began its journey toward the second Death Star.
+
+Meanwhile, on Endor, the celebration around the destroyed shield generator gradually died down.
+
+Luke and Leia turned around.
+
+Emperor Palpatine stood before them.
+
+---
+
+# Part 19
+
+Palpatine regarded Luke and Leia with open satisfaction.
+
+“Well, well, well. Look who I’ve finally found.”
+
+Luke and Leia ignited their lightsabers.
+
+Luke raised his green blade.
+
+“We’re not interested in small talk, Palpatine.”
+
+The twins struck immediately.
+
+Palpatine ignited a red lightsaber and blocked.
+
+The duel began.
+
+Luke attacked from one side while Leia moved in from the other, forcing Palpatine to divide his attention between them. Their blades flashed through the forest as they pressed him together.
+
+Palpatine’s speed and precision were overwhelming.
+
+Han, Chewie, the other Rebel commandos in the infiltration unit, and several Ewoks tried to intervene.
+
+Each time, Palpatine barely seemed to acknowledge them.
+
+A flick of one hand sent Han flying backward.
+
+Another gesture hurled several commandos away.
+
+Chewie charged with his bowcaster raised, only for a powerful Force push to throw him off his feet.
+
+The Ewoks were swept aside just as easily.
+
+Luke and Leia kept fighting.
+
+They were both extremely powerful by then, but even together, they were still not strong enough to defeat Palpatine.
+
+He gradually forced them backward.
+
+Luke tried to break through his defense.
+
+Palpatine turned his blade, caught Luke’s weapon, and tore it from his hand.
+
+Leia attacked immediately.
+
+Palpatine spun toward her and disarmed her as well.
+
+Both lightsabers flew into his possession.
+
+Without their weapons, the twins tried to resist through the Force.
+
+Palpatine overpowered them.
+
+He restrained both of them and confiscated their lightsabers.
+
+Han struggled back to his feet.
+
+Panic was obvious in his voice.
+
+“Leia!”
+
+Leia looked back at him as Palpatine dragged her away.
+
+“I’ll be back!”
+
+Palpatine forced Luke and Leia toward a nearby ship.
+
+He took them aboard.
+
+Soon afterward, the vessel lifted from Endor and headed toward the Death Star II.
+
+Far away from the second Death Star, Anakin was taking Padmé on a sightseeing trip in their family skiff.
+
+Then a vision struck him.
+
+Luke.
+
+Leia.
+
+Trouble.
+
+Pain.
+
+Anakin’s expression changed immediately.
+
+Padmé noticed.
+
+“What’s wrong, Ani?”
+
+“Luke and Leia. We need to go. Now.”
+
+“To where?”
+
+“I don’t know. I’ll just have to follow the Force.”
+
+Anakin changed course at once.
+
+He reached into the Force and followed the direction it seemed to be guiding him toward.
+
+The skiff accelerated away from its previous route and began heading toward the second Death Star.
+
+Meanwhile, the Rebel fleet arrived.
+
+Ships dropped out of hyperspace around the Death Star II.
+
+Almost immediately, the battle station opened fire with its superlasers.
+
+Rebel vessels scattered.
+
+Lando’s voice came over the comms.
+
+“I thought the Death Star’s not supposed to be operational yet?”
+
+Ackbar answered.
+
+“Perhaps we have been misled.”
+
+Then additional ships appeared.
+
+A huge Imperial fleet emerged seemingly from nowhere and surrounded the Rebels.
+
+Laser fire erupted from every direction.
+
+Lando stared at the tactical displays.
+
+“How did they know we were going to come?”
+
+Ackbar understood at once.
+
+“It’s a trap!”
+
+The Rebel fleet fought back.
+
+Starfighters broke into formations and attacked Imperial ships.
+
+Capital vessels returned fire.
+
+The *Millennium Falcon* twisted between incoming volleys while Rebel pilots tried to keep the Imperial fighters from surrounding them completely.
+
+But the Imperial fleet was far stronger.
+
+Rebel ships began disappearing one by one.
+
+Some were destroyed by Imperial vessels.
+
+Others were struck by the Death Star II’s superlasers.
+
+The shield protecting the battle station was gone, however, and Rebel pilots took advantage of that whenever possible.
+
+Starfighters swept across the surface and attacked exposed emplacements.
+
+Several Imperial positions exploded under repeated fire.
+
+Still, the damage was nowhere near enough to change the direction of the battle.
+
+Inside a throne room aboard the Death Star II, Palpatine sat on his throne.
+
+Luke and Leia stood restrained before him.
+
+Their lightsabers rested beside Palpatine, far beyond their reach.
+
+Palpatine smiled.
+
+“Join me, and you will be spared. Learn to embrace the dark side of the Force, and together we shall rule the galaxy!”
+
+Luke glared at him.
+
+“In your dreams, Palpatine.”
+
+Leia stood beside him.
+
+“We will never side with you.”
+
+Palpatine looked out through a viewport.
+
+Beyond it, Rebel ships continued to disappear under Imperial fire.
+
+“Look at your friends out there, getting absolutely decimated by our forces. They are foolish for daring to stand up to the almighty Galactic Empire. They think they can oppose me?!”
+
+Luke answered immediately.
+
+“The Rebels are noble and fight for a good cause, unlike your evil, wicked Empire.”
+
+“Your fleet has already lost. And they know it. They just don’t want to admit it.”
+
+Leia stared at him.
+
+“As long as one Rebel ship remains, we have not yet lost. And even if we lose this battle, the Empire will lose the war.”
+
+Palpatine chuckled.
+
+“Brave of you to say. I have always known that you are a tough one.”
+
+Luke raised his chin.
+
+“Finish us off if that’s what you want. We will never join you. We will never turn to the dark side.”
+
+Leia’s expression hardened.
+
+“And we are no longer interested in hearing you yap. If killing us is what you want, then do it.”
+
+Luke looked directly at Palpatine.
+
+“We are Jedi, and we will never be anything other than Jedi.”
+
+Palpatine slowly stood.
+
+“So be it... Jedi.”
+
+He raised both arms.
+
+Lightning erupted from his hands.
+
+One stream struck Luke.
+
+Another struck Leia.
+
+Both twins screamed.
+
+Their bodies convulsed under the attack.
+
+Palpatine continued pouring lightning into them.
+
+At roughly the same time, Anakin and Padmé reached the second Death Star.
+
+Anakin guided the skiff toward the battle station and found a relatively concealed location on its surface.
+
+He landed.
+
+The moment the engines powered down, he turned toward Padmé.
+
+“I sense that Luke and Leia are in here. And they are in immense pain.”
+
+Padmé’s face tightened.
+
+“Are they still alive?”
+
+“Yes, I can feel it in the Force.”
+
+“Hopefully they will make it.”
+
+Anakin stood.
+
+“Padmé, stay right here. Try not to be found.”
+
+He left the skiff and sprinted into the Death Star.
+
+Padmé remained behind where the vessel had landed.
+
+Anakin moved through the battle station as fast as he could.
+
+He followed Luke and Leia through the Force.
+
+The sensation of their pain grew stronger.
+
+Eventually, he reached the throne room.
+
+Palpatine was still torturing them with lightning.
+
+Anakin said nothing.
+
+He ignited his blue lightsaber and charged.
+
+Palpatine saw him coming.
+
+The lightning stopped instantly.
+
+Palpatine ignited his own red blade just in time to block Anakin’s strike.
+
+The impact forced both men apart.
+
+Then they attacked again.
+
+Luke and Leia collapsed to the floor.
+
+The pain left them barely able to move.
+
+For several moments, neither could stand.
+
+Then they realized something.
+
+Palpatine’s lightning had destroyed their restraints.
+
+They were free.
+
+Slowly, using all the strength they had left, Luke and Leia forced themselves back to their feet.
+
+Anakin and Palpatine continued dueling nearby.
+
+Anakin struck hard.
+
+Palpatine blocked.
+
+“You will pay for what you did to my children!”
+
+Palpatine pushed him back.
+
+“You say this as if you think you have the power to oppose me.”
+
+Anakin attacked again.
+
+“Don’t forget, I AM the Chosen One, after all.”
+
+Palpatine’s expression twisted.
+
+“Only a fool would believe in such lunacy.”
+
+Their blades clashed again.
+
+Then Anakin noticed two familiar lightsaber hilts resting on an armrest of Palpatine’s throne.
+
+He reached out with the Force.
+
+Both hilts flew toward him.
+
+Anakin caught them.
+
+Then he threw one toward Luke and the other toward Leia.
+
+The twins caught their weapons.
+
+Green and light blue blades ignited again.
+
+Luke and Leia joined their father.
+
+Meanwhile, several stormtroopers on patrol found Padmé and the skiff.
+
+One raised a blaster.
+
+“Hands up, intruder!”
+
+Padmé drew her own blaster and fired.
+
+The stormtrooper fell.
+
+The others immediately opened fire.
+
+Padmé moved behind cover and returned fire.
+
+Red bolts struck the surface around her.
+
+She leaned out and fired again.
+
+Another stormtrooper went down.
+
+The remaining soldiers spread out and tried to surround her.
+
+Padmé kept moving.
+
+She ducked another shot, returned fire, and struck one attacker in the chest.
+
+A final stormtrooper fired repeatedly.
+
+Every shot missed.
+
+Padmé steadied her aim.
+
+One blast ended the skirmish.
+
+Silence returned.
+
+Padmé looked around.
+
+She had not been hit once.
+
+“Wow, these stormtroopers have really bad aim.”
+
+Back in the throne room, the duel intensified.
+
+Three lightsabers attacked Palpatine from different angles.
+
+Palpatine met them with a combination of speed, precision, and raw power.
+
+Luke attacked high.
+
+Palpatine blocked him.
+
+Leia struck from the side.
+
+Palpatine turned just in time.
+
+Anakin came in immediately afterward and forced Palpatine backward.
+
+Palpatine raised one hand.
+
+Lightning burst outward.
+
+Luke and Leia both jumped aside.
+
+Anakin caught part of the attack on his lightsaber and drove forward through it.
+
+The room began to tear itself apart around them.
+
+A piece of furniture flew across the chamber under telekinetic force.
+
+Leia ducked.
+
+Luke hurled it back.
+
+Palpatine shattered it before it reached him.
+
+Another burst of lightning struck a wall.
+
+Panels exploded.
+
+Sections of the interior collapsed.
+
+Anakin attacked relentlessly.
+
+Luke and Leia supported him from either side.
+
+Palpatine tried repeatedly to isolate one of them.
+
+Each time, the other two closed the gap.
+
+The fight moved across the throne room.
+
+Blades crashed together.
+
+Lightning flashed.
+
+Objects flew through the air.
+
+More pieces of the room broke apart.
+
+The duel continued.
+
+Gradually, Palpatine began to lose ground.
+
+He could handle Anakin.
+
+He could handle Luke.
+
+He could handle Leia.
+
+Facing all three together was different.
+
+Anakin pressed from the front.
+
+Luke moved to one side.
+
+Leia circled toward the other.
+
+Palpatine struck at Luke.
+
+Luke blocked and immediately withdrew.
+
+Anakin attacked.
+
+Palpatine turned.
+
+That created an opening.
+
+Luke thrust out one hand.
+
+A powerful Force push slammed Palpatine into a wall.
+
+The impact staggered him.
+
+Leia lunged forward.
+
+Her blade struck Palpatine’s weapon and knocked it out of his hand.
+
+The red lightsaber flew away.
+
+Palpatine had barely recovered when Anakin moved in.
+
+One final strike ended the fight.
+
+Palpatine fell.
+
+The Emperor of the Galactic Empire was dead.
+
+Anakin looked toward Luke and Leia.
+
+“Come on, let’s get out of here.”
+
+The three of them sprinted from the throne room.
+
+They moved back through the Death Star until they reached the location where the skiff had been left.
+
+Padmé was still there.
+
+Everyone hurried aboard.
+
+Padmé immediately took control and flew the skiff away from the battle station.
+
+Once they were clear, she looked toward the others.
+
+“Where should we go now?”
+
+Leia answered.
+
+“Endor. Our friends are all waiting there.”
+
+Padmé changed course.
+
+The skiff descended toward Endor.
+
+Soon afterward, it landed on the forest moon.
+
+Luke, Leia, Anakin, and Padmé reunited with Han, Chewie, Artoo, Threepio, the other Rebel commandos, and the Ewoks.
+
+Han immediately hurried toward Leia.
+
+“Leia, you’re back!”
+
+Leia smiled.
+
+“I told you so.”
+
+Luke looked at Han.
+
+“You don’t seem nearly as excited about me being back, huh, Han?”
+
+Han glanced toward him.
+
+“Maybe Leia really is more likeable than you, Luke.”
+
+Luke gave him a look but said nothing.
+
+Meanwhile, news of Palpatine’s death spread rapidly throughout the Death Star II.
+
+Confusion followed.
+
+Command structures broke down.
+
+Orders began to conflict.
+
+Insubordination surged.
+
+Riots broke out aboard the battle station.
+
+Imperial coordination deteriorated.
+
+The Rebel fleet noticed the change almost immediately.
+
+Imperial defenses that had previously operated with overwhelming coordination began to fragment.
+
+Lando’s voice came over the comms.
+
+“What happened?”
+
+Ackbar answered.
+
+“No clue. But let’s seize the chance.”
+
+The Rebels attacked.
+
+Capital ships pushed forward.
+
+Starfighters broke through weakened Imperial formations.
+
+The *Millennium Falcon* led a squadron toward the Death Star II.
+
+With the protective shield already gone and Imperial resistance collapsing, the fighters entered the battle station’s superstructure.
+
+They raced through narrow internal passages.
+
+Imperial fire followed them.
+
+Lando pushed the Falcon forward.
+
+The squadron reached the main reactor core.
+
+Weapons fired.
+
+The core erupted.
+
+Lando immediately turned the Falcon around.
+
+The Rebel fighters followed.
+
+They accelerated back through the superstructure as explosions spread behind them.
+
+The battle station began coming apart.
+
+The Falcon emerged first.
+
+The other Rebel fighters followed close behind.
+
+Moments later, the Death Star II exploded in a massive fireball.
+
+The Falcon and the surviving fighters barely cleared the blast.
+
+The remaining Rebel ships descended toward Endor.
+
+On the surface, they joined Luke, Leia, Anakin, Padmé, Han, Chewie, Artoo, Threepio, the commandos, and the Ewoks.
+
+A massive celebration began.
+
+The Emperor was dead.
+
+The second Death Star was gone.
+
+And for the first time in years, there was genuine hope that the Empire’s grasp over the galaxy might one day end.
+
+---
+
+# Part 20
+
+As soon as Luke and Leia returned to Echo Base on Hoth, Rebel medical personnel rushed them into treatment.
+
+Both twins had suffered badly from Palpatine’s Force lightning.
+
+Their injuries were serious enough that doctors placed each of them inside a bacta tank.
+
+For a time, Luke and Leia remained suspended in the healing fluid while Rebel physicians monitored them closely. The damage gradually began to recede. Their pain diminished. Their bodies recovered.
+
+Eventually, the doctors determined that both twins had healed sufficiently.
+
+Luke and Leia were released from treatment.
+
+Meanwhile, Mon Mothma had already begun thinking about what should come after the Rebel Alliance’s victory at Endor.
+
+Almost immediately after the battle concluded, she began reorganizing the Alliance into a new political government.
+
+That government became known as the New Republic.
+
+Mon believed that if the Rebels eventually intended to govern the galaxy, they needed more legitimacy, more stability, and a stronger political structure than a wartime alliance could provide.
+
+The New Republic provided that structure.
+
+Mon became its first Chancellor.
+
+The Galactic Civil War did not end immediately.
+
+The New Republic continued fighting against the Empire.
+
+But without Emperor Palpatine directing Imperial rule from the top, the Empire began to fracture.
+
+Different Imperial forces struggled to coordinate.
+
+Defeat followed defeat.
+
+Territory was lost.
+
+Eventually, the Core World of Chandrila was liberated from Imperial control.
+
+Mon Mothma declared Chandrila the capital of the New Republic and established the government there.
+
+The war continued.
+
+Then, about a year after the Battle of Endor, the remaining Imperial forces gathered for a desperate final stand at Jakku.
+
+They failed.
+
+After their defeat, the Empire agreed to surrender to the New Republic and relinquish its remaining territories.
+
+The Galactic Civil War was over.
+
+With the fighting finally ended, Leia and Han made a decision they had been putting off for a long time.
+
+They were going to get married.
+
+A wedding ceremony was arranged beside Nymeve Lake on Takodana, not far from the home where Leia had grown up.
+
+The setting was familiar to the Skywalker family.
+
+The lake stretched out beside them.
+
+The old family hut remained nearby.
+
+Maz Kanata’s castle stood farther along the shore.
+
+Friends and family gathered for the ceremony.
+
+Luke stood beside Leia as her man of honour.
+
+Lando stood beside Han as his best man.
+
+Anakin and Padmé attended.
+
+Chewie was there.
+
+Maz Kanata was there.
+
+Artoo joined them.
+
+Threepio served as ring bearer.
+
+Mon Mothma officiated.
+
+Before the gathered guests, Han and Leia exchanged their vows and formally became husband and wife.
+
+Not long after the wedding, Luke and Leia decided to visit Dagobah.
+
+The twins traveled back to the swamp world and made their way toward the familiar hut where Obi-Wan and Yoda had lived during their training.
+
+They reached the door and knocked.
+
+Obi-Wan answered.
+
+Luke smiled.
+
+“Hello, Obi-Wan.”
+
+“Hello, Luke. Nice to see you here.”
+
+“How are you doing?”
+
+“I’m doing well. Life is pretty boring here, but it’s good enough for my liking.”
+
+Leia looked past him.
+
+“How about Master Yoda?”
+
+Obi-Wan’s expression immediately changed.
+
+Sadness crossed his face.
+
+“Master Yoda... he passed away a few years ago from old age. He became one with the Force.”
+
+Luke and Leia both fell quiet.
+
+Leia lowered her gaze.
+
+“Well, I hope he is at peace now.”
+
+Obi-Wan nodded.
+
+Then he continued.
+
+“Master Yoda told me one thing before he died. He said he envisions that the Jedi Order will be restored one day. And he believes that the two of you are the key to that.”
+
+Luke looked stunned.
+
+“Us?!”
+
+“Yes, you.”
+
+Leia straightened.
+
+“Then we will not fail him. Luke and I will do what we can to restore the Jedi Order.”
+
+Luke looked toward Obi-Wan.
+
+“Will you come with us, Obi-Wan?”
+
+Obi-Wan thought about it for a moment.
+
+Then he shook his head.
+
+“No. This journey will be for you, not me. I will help if you ever need it. But Dagobah is my home now, and I am going to remain here.”
+
+Leia nodded.
+
+“We understand.”
+
+Obi-Wan looked at both twins.
+
+“This is not an easy task. But I know you guys can do it. Good luck.”
+
+“Thank you, Obi-Wan,” Luke said.
+
+Leia nodded.
+
+“We will do our best.”
+
+The twins eventually left Dagobah and returned to Takodana.
+
+Once home, they found Anakin and told him everything Obi-Wan had said.
+
+Luke looked at his father.
+
+“Will you join us, Dad?”
+
+Anakin shook his head.
+
+“No, I don’t think so. If Yoda specifically said this is for the two of you, then he means it. I will not interfere with his wishes.”
+
+Leia replied, “At least Obi-Wan offered to help us if we ever need it.”
+
+Anakin raised an eyebrow.
+
+“What makes you think I won’t? But I doubt you guys will come to me for help. I’ve already given you all that I can teach you.”
+
+Luke smiled faintly.
+
+“We will see about that.”
+
+Luke and Leia committed themselves to restoring the Jedi.
+
+They decided to establish a new Jedi Order on Takodana.
+
+A new Jedi Temple was built beside Nymeve Lake, roughly halfway between the Skywalker family hut and Maz Kanata’s castle.
+
+When construction was completed, Luke and Leia moved into the Temple.
+
+One day, Han and Chewie came to visit.
+
+Han looked around the building.
+
+Then he looked at Leia.
+
+“You want me to live inside a temple for the rest of my life?”
+
+“Nobody forced you to. You can live wherever you want.”
+
+Han thought about that for a moment.
+
+“Then Chewie and I will go live in Cloud City. Lando offered us a home there.”
+
+Leia accepted his decision.
+
+“As you wish.”
+
+Han and Chewie left Takodana and moved to Cloud City.
+
+Luke and Leia remained behind.
+
+They dedicated themselves to rebuilding the Jedi Order.
+
+They searched the galaxy for surviving Jedi archives.
+
+Whenever they found records, teachings, histories, or other preserved material, they collected and studied them carefully.
+
+They also began looking for Force-sensitive students who might one day train as Jedi.
+
+The twins frequently discussed what kind of Order they wanted to build and what lessons should guide its future.
+
+Meanwhile, Han and Chewie discovered that life in Cloud City was not going quite as Han had imagined.
+
+They lasted barely a month.
+
+Then Han changed his mind.
+
+The *Millennium Falcon* returned to Takodana.
+
+Han and Chewie made their way to the Jedi Temple and found Luke and Leia there.
+
+Han looked at Leia.
+
+“I’ve changed my mind, Leia.”
+
+Leia folded her arms.
+
+“Oh yeah?”
+
+“I’ve decided that I will live right here in this Temple.”
+
+Leia looked amused.
+
+“Oh, so Cloud City isn’t as great as you thought, huh?”
+
+Han immediately objected.
+
+“Oh, no. Cloud City is awesome! It’s a lot of fun!”
+
+“So then why did you come here?”
+
+Han’s tone softened.
+
+“Leia... I missed you. I missed my wife. I realized I can’t keep living apart from you long-term. So I’ve decided to come here and live with you.”
+
+Luke interjected.
+
+“I made a bet that you would do exactly that, Han.”
+
+Han looked toward him.
+
+“Am I really that predictable?”
+
+“Apparently.”
+
+Han made a face.
+
+Leia smiled.
+
+“Well, welcome, Han and Chewie. I hope you find this Temple bearable to live in.”
+
+Han sighed.
+
+“I guess that will be the hard part...”
+
+Chewie gave a soft roar.
+
+Han and Chewie officially moved into the Temple with Luke and Leia.
+
+Meanwhile, Padmé had become increasingly interested in New Republic politics.
+
+One day, Anakin found her inside their Takodana hut, absorbed in a document.
+
+He looked at the time she had spent reading it.
+
+“Padmé, you have been reading the third draft of the New Republic Constitution for five hours already.”
+
+Padmé did not look particularly concerned.
+
+“And?”
+
+“Why are you so interested all of a sudden?”
+
+She looked up.
+
+“What do you mean? I’ve always been interested in politics.”
+
+“Not during the Imperial era.”
+
+“Well, duh. Obviously the Empire won’t let me do anything in politics. The New Republic, on the other hand...”
+
+Anakin suddenly understood what she was implying.
+
+He stared at her.
+
+“...Are you saying you want to go back to politics?”
+
+Padmé did not answer.
+
+That was enough.
+
+She simply returned her attention to the draft Constitution.
+
+Two years after the end of the Galactic Civil War, the New Republic prepared to hold its first election for the chancellorship.
+
+Mon Mothma was still serving as Chancellor.
+
+Before the election, she addressed the New Republic Senate on Chandrila.
+
+“Distinguished representatives of the New Republic, I stand before you today to make an important announcement. First of all, I would like to say that it has been an honour to lead the Rebel Alliance for years, to oversee its reorganization into the New Republic, and to continue to lead the New Republic. But as we approach our first democratic election, I am announcing that I will not be running for the chancellorship this time. I have served for quite a while by now, and frankly the work has been quite stressful for me at times. I believe that now that the New Republic is becoming more and more stable, there are plenty of competent people who can take my place. I am sure that no matter who wins this election, the New Republic will remain in good hands.”
+
+Gasps and murmurs swept through the Senate chamber.
+
+Most senators had assumed Mon would run for another term.
+
+Her announcement caught many of them by surprise.
+
+Gradually, the chamber quieted.
+
+On Takodana, Anakin and Padmé watched the speech over the HoloNet from their hut.
+
+Padmé remained thoughtful for several moments after Mon finished.
+
+Then she spoke.
+
+“I think I am going to run for the chancellorship.”
+
+Anakin turned toward her.
+
+“Are you sure? That is quite a big thing for you to say.”
+
+“Yes. I am absolutely certain.”
+
+Anakin considered that.
+
+“Well, it’s not like I can stop you anyway. Go for it.”
+
+Padmé began campaigning.
+
+Almost immediately, the galaxy was shocked by the revelation that she was still alive.
+
+Questions spread everywhere.
+
+“Padmé Amidala? Didn’t she die more than twenty years ago?”
+
+“I remember there were rumours about her dying due to ‘heartbreak over the Republic.’ So it wasn’t true after all?”
+
+“If she was alive for all these years, where could she have been? She literally disappeared without a trace.”
+
+But the surprise quickly became fascination.
+
+Padmé proved extremely popular.
+
+Older citizens remembered her as the strong-willed, principled senator who had served during the old Republic and the Clone Wars.
+
+Younger citizens had grown up hearing stories and legends about her.
+
+Many were astonished to discover that such a well-known historical figure had survived and was now standing for election.
+
+As Padmé continued campaigning, her support grew.
+
+Eventually, election day arrived.
+
+Senators gathered inside the New Republic Senate chamber on Chandrila and cast their votes.
+
+When the count was complete, Padmé had won.
+
+Padmé Amidala became Chancellor of the New Republic.
+
+She walked to the centre of the chamber and addressed the Senate.
+
+“Esteemed delegates of the New Republic, I am honoured to have been elected by this body. As the galaxy moves into a new era, I promise to use my position and power to make the galaxy a better place. I would greatly appreciate your trust and confidence in me as I try my best to do what’s good for the galaxy. Thank you for your support.”
+
+Not long afterward, Anakin and Padmé took Threepio and Artoo to visit Luke, Leia, Han, and Chewie at the Jedi Temple on Takodana.
+
+Padmé looked toward her children.
+
+“I’m going to be moving to Chandrila full-time now.”
+
+Luke nodded.
+
+“Well, that’s expected for a Chancellor.”
+
+Leia looked toward Anakin.
+
+“What about you, Dad? Will you go with Mom, or will you stay here?”
+
+Anakin looked at Luke and Leia.
+
+“Luke, Leia, I’m going to miss being so close to you all the time. But I’m going to go with your mother. She needs me.”
+
+Han immediately added, “And you need her.”
+
+Anakin stared at him.
+
+Padmé laughed.
+
+Anakin sighed.
+
+“...Yes, and I need her.”
+
+Han nodded.
+
+“I think you made the right choice. Don’t ask how I know. I learned it the hard way.”
+
+Leia chuckled.
+
+Luke looked toward the droids.
+
+“Are you taking Threepio and Artoo with you?”
+
+Padmé seemed surprised by the question.
+
+“Yes, of course! I mean, why wouldn’t we?”
+
+Leia hesitated.
+
+“I’m just thinking... now that we’ve worked with Threepio and Artoo for so long, maybe we deserve to keep them with us here.”
+
+Anakin shook his head.
+
+“Leia, we’ve had the droids for far longer than either of you have. I’m sure they would prefer to come with us than stay here with you.”
+
+Luke raised a hand.
+
+“Fine, Dad. How about this. Why don’t you ask them directly?”
+
+Anakin sighed.
+
+Then he turned toward Threepio and Artoo.
+
+“Alright, Threepio, would you rather come with Padmé and me to Chandrila, or would you rather stay here on Takodana with Luke and Leia?”
+
+Threepio stiffened.
+
+“Master Anakin, quite frankly, I’m not sure how I can respond to this question without offending anyone.”
+
+Luke reassured him.
+
+“There won’t be any offense taken, Threepio. Just answer what you honestly prefer.”
+
+Threepio looked from one side of the room to the other.
+
+“Oh dear. I have never been asked a more difficult question.”
+
+He considered it for a while.
+
+Finally, he answered.
+
+“I will choose... Master Anakin and Mistress Padmé.”
+
+Anakin grinned.
+
+Padmé smiled.
+
+Luke and Leia looked mildly disappointed but nodded.
+
+Anakin turned toward Artoo.
+
+“And you, Artoo?”
+
+Artoo immediately gave a rapid series of excited beeps.
+
+Threepio translated.
+
+“For the record, for any of you who might not understand Binary, Artoo just said, ‘Of course I’m going with Master Anakin and Mistress Padmé to Chandrila. Why is this even a question?’”
+
+This time, Luke and Leia looked more obviously sad.
+
+Anakin gave them a sympathetic look.
+
+“Luke, Leia, you guys know how close Artoo and I were during the Clone Wars. There was no chance he would have chosen anything else.”
+
+With the question settled, Anakin, Padmé, Threepio, and Artoo prepared to leave Takodana for their new life on Chandrila.
+
+Luke, Leia, Han, and Chewie remained behind.
+
+Luke and Leia continued building and expanding the new Jedi Order.
+
+Padmé began leading the New Republic as Chancellor.
+
+The war was over.
+
+The Empire had fallen.
+
+A new government had risen in its place.
+
+A new Jedi Order was taking shape beside Nymeve Lake.
+
+For the first time in many years, the galaxy was filled with hope.
+
+The end.
