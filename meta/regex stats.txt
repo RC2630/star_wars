@@ -62,6 +62,7 @@ Rey: (?<![a-zA-Z])(Rey)(?![a-zA-Z])
 Snoke: (?<![a-zA-Z])(Snoke)(?![a-zA-Z])
 Ben Solo / Kylo Ren: (?<![a-zA-Z])((Ben)|(Kylo)|(Ren))(?![a-zA-Z]) - (?<![a-zA-Z])(Kylo Ren)(?![a-zA-Z])
 Grogu: (?<![a-zA-Z])(Grogu)(?![a-zA-Z])
+Maz Kanata: (?<![a-zA-Z])((Maz)|(Kanata))(?![a-zA-Z]) - (?<![a-zA-Z])(Maz Kanata)(?![a-zA-Z])
 
 ---
 
